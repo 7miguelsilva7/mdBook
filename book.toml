@@ -1,0 +1,10 @@
+[book]
+authors = ['R. GUILLEN']
+multilingual = false
+src = 'src'
+title = 'A AUTORIDADE DIVINA DELEGADA A ASSEMBLEIA'
+
+[output.html]
+additional-js = ['custom.js']
+
+

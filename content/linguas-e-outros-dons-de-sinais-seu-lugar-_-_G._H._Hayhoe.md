@@ -1,0 +1,503 @@
+---
+date: 2017-06-19T17:00:00+09:00
+slug: # 
+title: Línguas e outros dons de Sinais 
+author: Gordon H. Hayhoe
+translator: Mario Persona
+image: linguas-e-outros-dons-de-sinais-seu-lugar-nas-escrituras-g-h-hayhoe.jpeg
+---
+
+Revisão: Luiz Amalfi
+
+LÍNGUAS E OUTROS DONS DE SINAIS
+===============================
+
+Seu Lugar Nas Escrituras "Está escrito na lei: Por gente doutras
+línguas, e por outros lábios, falarei a este povo; e ainda assim Me não
+ouvirão, diz o Senhor. De sorte que as línguas são um sinal, não para os
+fiéis, mas para os infiéis; e a profecia não é sinal para os infiéis,
+mas para os fiéis" ([1 Coríntios
+14:21-22](http://bibliaonline.com.br/acf/1co/14/21-22)).
+
+"E todos foram cheios do Espírito Santo, e começaram a falar noutras
+línguas, conforme o Espírito Santo lhes concedia que falassem... E todos
+pasmavam e se maravilhavam, dizendo uns aos outros: Pois que! Não são
+galileus todos esses homens que estão falando?... os temos ouvido em
+nossas próprias línguas falar das grandezas de Deus" ([Atos
+2:4-11](http://bibliaonline.com.br/acf/atos/2/4-11)).
+
+Quando nos referimos a este assunto, é de suma importância que
+entendamos duas coisas:
+
+​1. Qual era o propósito do dom de línguas?
+
+​2. Eram elas línguas normalmente faladas no mundo, ou eram meramente um
+balbuciar pronunciado em êxtase?
+
+Os versículos citados no início respondem com muita clareza a estas
+perguntas: Primeiro, foram dadas como um sinal para os incrédulos e não
+para os crentes. Segundo, eram línguas entendidas por pessoas
+originárias de países onde se falava aqueles idiomas.
+
+Se tivermos estas duas coisas em mente, todas as passagens que tratam do
+assunto se tornarão claras de uma só vez. Quanto ao fato delas existirem
+ou não nos dias de hoje, se existirem, devemos esperar que sejam as
+mesmas mencionadas pelas Escrituras. Deus deu sinais para confirmar a
+Palavra para os incrédulos, isto é, antes que o Novo Testamento tivesse
+sido escrito ([Marcos 16:20](http://bibliaonline.com.br/acf/mc/16/20); [Hebreus
+2:3-4](http://bibliaonline.com.br/acf/hb/2/3-4)). Porém hoje encontramos
+duas coisas que chamam nossa atenção no moderno movimento de línguas:
+Primeiro, elas não são utilizadas para proclamar as grandezas de Deus
+aos infiéis em suas próprias línguas.
+
+Segundo, elas encontram-se, freqüentemente, associadas com algum erro
+sério acerca da Pessoa e obra de Cristo, e também estão conectadas a
+outras práticas que não são bíblicas.
+
+Estas coisas devem nos colocar em estado de alerta antes que nos
+envolvamos com tais movimentos, pois nos é dito: "Examinai tudo. Retende
+o bem" ([1 Tessalonicenses 5:21](http://bibliaonline.com.br/acf/1ts/5/21)). A maneira
+de as examinarmos é pela Palavra de Deus. É algo muito sério buscarmos
+algum tipo de poder que não esteja em conformidade com a Palavra de
+Deus.
+
+Consideremos as três passagens em Atos que falam das línguas. Em [Atos
+2](http://bibliaonline.com.br/acf/atos/2), no dia de Pentecostes, o
+Espírito Santo desceu de acordo com a promessa de [Atos
+1:4-5](http://bibliaonline.com.br/acf/atos/1/4-5) (veja também [João
+7:39](http://bibliaonline.com.br/acf/jo/7/39);
+[16:7](http://bibliaonline.com.br/acf/jo/16/7)). Até àquela época Deus
+estava tratando com uma nação em particular, e o Senhor Jesus, quando
+esteve aqui na Terra, declarou, "Eu não fui enviado senão às ovelhas
+perdidas da casa de Israel" ([Mateus
+15:24](http://bibliaonline.com.br/acf/mt/15/24)). Ele também falou aos
+Seus discípulos, "Não ireis pelo caminho das gentes (gentios), nem
+entrareis em cidade de samaritanos; mas ide antes às ovelhas perdidas da
+casa de Israel" ([Mateus 10:5-6](http://bibliaonline.com.br/acf/mt/10/5-6)).
+Porém no dia de Pentecostes algo novo estava para começar. O Senhor
+Jesus havia dito, "Edificarei a Minha Igreja" ([Mateus
+16:18](http://bibliaonline.com.br/acf/mt/16/18)), e essa igreja seria
+composta de judeus e gentios ([1 Coríntios
+12:13](http://bibliaonline.com.br/acf/1co/12/13)). A parede de separação
+entre judeus e gentios estava para ser derrubada ([Efésios
+2:14](http://bibliaonline.com.br/acf/ef/2/14)), e qual sinal poderia ser
+mais apropriado, para ser dado em conexão com esse algo novo, do que o
+dom de línguas? A mensagem das grandezas de Deus era assim proclamada em
+muitas línguas diferentes, e isso sem qualquer aprendizado prévio por
+parte dos que as falavam. Deus mostrava estar indo além das fronteiras
+de Israel, pois Ele estava pronto para derrubar a parede de separação
+que dividia os judeus dos gentios.
+
+Encontramos a próxima referência ao dom de línguas em [Atos 10:46](http://bibliaonline.com.br/acf/atos/10/46). Vemos
+ali um grupo de gentios na casa de Cornélio, pois mais uma vez Deus está
+apresentando aquilo que é novo pela introdução dos gentios na formação
+da Igreja de Deus sobre a Terra. Eles receberam o evangelho proclamado
+por Pedro e, quando o Espírito Santo veio sobre eles, falaram em línguas
+e foram acrescentados à Igreja. Em [Atos 11:4-18](http://bibliaonline.com.br/acf/atos/11/4-8), ao recordar o que
+acontecera, Pedro disse, "caiu sobre eles o Espírito Santo, como também
+sobre nós ao princípio". Isso deixa bem claro que eles também falaram
+línguas inteligíveis (idiomas falados neste mundo), pois foi assim que o
+dom de línguas havia sido dado "ao princípio". Mais uma vez vemos que
+isso estava em harmonia com os desígnios de Deus, em demonstrar que Ele
+estava alcançando, muito além de Israel, os próprios gentios. Aqueles
+que se encontravam na assembléia em Jerusalém foram levados a admitir
+isso, pois disseram, "Na verdade até aos gentios deu Deus o
+arrependimento para a vida" ([Atos
+11:18](http://bibliaonline.com.br/acf/atos/11/18)).
+
+A terceira vez em que lemos acerca do dom de línguas é em Atos 19:6,
+quando Paulo vai a Éfeso. Ali vemos um grupo de discípulos que nunca
+havia ouvido o evangelho da graça de Deus. Eles haviam aceitado a
+mensagem de João Batista que falava da vinda do Messias e, em
+arrependimento, tinham sido por ele batizados. Agora eles ouvem acerca
+do Senhor Jesus que morreu e ressuscitou, e que o Espírito Santo foi
+enviado. João havia dito que o Senhor Jesus batizaria com o Espírito
+Santo ([Mateus 3:11](http://bibliaonline.com.br/acf/mt/3/11)), e isso já
+havia acontecido no dia de Pentecostes, como o Senhor Jesus havia
+predito que aconteceria em [Atos
+1:5](http://bibliaonline.com.br/acf/atos/1/5). Agora já não era mais
+necessário esperar pelo batismo do Espírito Santo, pois Ele já havia
+vindo, e assim, quando Paulo impôs suas mãos sobre eles, receberam o
+Espírito Santo. Eles também deram testemunho, ao falar em línguas, que o
+cristianismo não era igual à mensagem de João à nação de Israel, pois a
+mensagem do evangelho no cristianismo alcançava até os gentios. A
+epístola de Paulo aos Efésios não menciona o dom de línguas, mas revela
+claramente como a parede de separação entre judeus e gentios foi
+derrubada, formando um corpo em Cristo ([Efésios
+2:14-16](http://bibliaonline.com.br/acf/ef/2/14-16);
+[3:6](http://bibliaonline.com.br/acf/ef/3/6)).
+
+A única epístola que fala do dom de línguas é 1 Coríntios. Ali nos é
+dito que aos Coríntios não faltava nenhum dom, e ainda assim eram
+cristãos carnais ([1 Coríntios 1:7](http://bibliaonline.com.br/acf/1co/1/7);
+[3:1](http://bibliaonline.com.br/acf/1co/3/1)). Uma vez que "os dons e a
+vocação de Deus são sem arrependimento" ([Romanos
+11:29](http://bibliaonline.com.br/acf/rm/11/29)), Deus não retira um dom
+que tenha sido dado a uma pessoa, mesmo que ela não o esteja utilizando
+em conformidade com a Sua vontade revelada em Sua Palavra. É possível
+usar um dom dado por Deus de maneira errada, ou fazê-lo apenas para
+exibição e exaltação própria. Além disso é importante notar que nem
+todos os crentes em Corinto tinham o dom de línguas ([1 Coríntios
+12:30](http://bibliaonline.com.br/acf/1co/12/30)), mas alguns, que
+haviam recebido esse dom, não o estavam usando em amor e nem para
+proveito, razão pela qual Paulo os exorta a não agirem como meninos que
+gostam de se exibir ([1 Coríntios
+13:11](http://bibliaonline.com.br/acf/1co/13/11);
+[14:20](http://bibliaonline.com.br/acf/1co/14/20)). Quando ele fala das
+línguas dos homens e dos anjos, o faz no mesmo sentido em que fala de
+anjos pregando um outro evangelho ([Gálatas
+1:8](http://bibliaonline.com.br/acf/gl/1/8)), pois podemos estar certos
+de que os anjos são capazes de falar qualquer língua deste mundo, e que
+os anjos eleitos são espíritos ministradores cuidando de todos os filhos
+de Deus, independente de sua nacionalidade ([Hebreus
+1:13-14](http://bibliaonline.com.br/acf/hb/1/13-14)).
+
+Não existe aqui nenhum pensamento acerca da, assim chamada, "língua
+celestial", pois como poderia uma língua desconhecida a qualquer pessoa
+ou nação deste mundo ser um testemunho para incrédulos? Pois as
+Escrituras nos demonstram, conforme já mostramos, que as línguas foram
+dadas como um sinal para os incrédulos. As línguas não serão necessárias
+quando "vier o que é perfeito" ([1 Coríntios
+13:8-10](http://bibliaonline.com.br/acf/1co/13/8-10)), portanto cessarão
+na glória vindoura. Note aqui que não diz "o dom de línguas", mas
+simplesmente que as "línguas" cessariam. Nos céus a profecia não será
+necessária, o conhecimento não será mais em parte e, já que todos serão
+de um mesmo parecer e falarão a mesma linguagem, então as línguas (ou
+idiomas) cessarão. As diferentes línguas começaram com a torre de Babel
+quando o homem, em seu orgulho, procurou erguer uma torre de tijolos
+cujo topo alcançaria os céus. Agora Deus está construindo uma casa
+espiritual, da qual todos os crentes fazem parte como pedras vivas, não
+importa que língua falem ou a que nacionalidade pertençam. Mais uma vez
+vemos a sabedoria de Deus em apresentar esse algo novo por meio do dom
+de línguas. O uso desse dom sem amor e para pura exibição não estava nos
+propósitos de Deus.
+
+Mais adiante, no capítulo quatorze de 1 Coríntios, o apóstolo continua
+tratando deste assunto e dá as regras para o seu uso em assembléia. Nas
+ocasiões anteriormente registradas em Atos elas não eram usadas na
+assembléia, quando estavam reunidos, mas apenas como um sinal para
+cumprir o propósito para o qual Deus lhes havia dado. Já que era um dom
+dado por Deus o seu uso não era proibido, a não ser quando não houvesse
+um intérprete. O dom seria, quando usado adequadamente, uma lembrança à
+assembléia da graça de Deus em operar entre as nações em bênção,
+reunindo-os num só corpo em Cristo. Mesmo em nossos dias podemos ser
+propensos a esquecer, em uma assembléia onde todos falem a mesma língua,
+que Deus está salvando almas de toda tribo, língua, povo e nação, e
+dando a elas o Espírito Santo como membros do único corpo. Com
+freqüência, quando alguém que fala outra língua nos visita, e temos que
+interpretá-la para os demais, somos lembrados de como, no dia de
+Pentecostes, cada um ouviu das grandezas de Deus em sua própria língua
+natal ([Atos 2:8](http://bibliaonline.com.br/acf/atos/2/8)).
+
+É triste termos que admitir que os coríntios estavam usando o dom de
+línguas para exibição e, por esta razão, Paulo precisou dizer-lhes que
+não falassem em outra língua, desconhecida dos presentes, a menos que
+houvesse um intérprete. Eles poderiam, porém, falar "consigo mesmo e com
+Deus" em outra língua, pois Ele entende todas as línguas. Se eu
+estivesse em uma reunião onde ninguém compreendesse o inglês, eu falaria
+comigo mesmo e com Deus em inglês. Mas os [versículos 21 e 22 de 1
+Coríntios 14](http://bibliaonline.com.br/acf/1co/14/21-22) deixam claro
+que não se tratava de algum balbuciar pronunciado em êxtase, Porém as
+línguas que Paulo mencionava eram diferentes idiomas que poderiam servir
+de sinal para os incrédulos, do poder de Deus e de como a mensagem da
+salvação chegava agora a todas as nações. Se nenhum dos presentes na
+assembléia pudesse entender a língua, e se não houvesse nenhum
+intérprete, ela não serviria para o propósito dado por Deus, conforme é
+demonstrado em [Atos 2](http://bibliaonline.com.br/acf/atos/2). Além do
+mais teria parecido loucura para os estranhos que chegassem e não
+pudessem compreender o que estava sendo falado. Seria confusão; Deus não
+seria glorificado e ninguém seria edificado ([1 Coríntios
+14:21-25](http://bibliaonline.com.br/acf/1co/14/21-25)).
+
+Mas a pergunta que normalmente se faz é se ainda temos o dom de línguas
+em nossos dias. Perguntar isso já é dar a resposta, pois não existe uma
+pessoa ou grupo que possa admitir ser capaz de fazer o que aconteceu em
+[Atos 2](http://bibliaonline.com.br/acf/atos/2), reunindo um grupo de
+pessoas de "todas as nações que estão debaixo do céu" ([Atos
+2:5](http://bibliaonline.com.br/acf/atos/2/5)), e então falar-lhes, em
+suas próprias línguas, das grandezas de Deus.
+
+Isto nos leva a uma consideração importante, não apenas com respeito ao
+dom de línguas, mas também acerca de todos os dons de sinais. As
+Escrituras não prometem que os dons de línguas, curas e milagres, que
+incluíam até o ressuscitar mortos, conforme eram exercidos na igreja
+primitiva por pessoas especialmente dotadas, iriam continuar. Sabemos
+que eles existiram nos primeiros dias da Igreja, como está claramente
+registrado em Atos e Coríntios, como sinais para confirmarem a Palavra
+que ainda não tinha sido escrita. Há, no entanto, a promessa da
+continuidade dos dons de ministério para edificação da Igreja ([Efésios
+4:7-16](http://bibliaonline.com.br/acf/ef/4/7-16)). Temos agora, na
+Palavra escrita, o fundamento do cristianismo lançado pelos apóstolos e
+profetas ([Romanos 16:26](http://bibliaonline.com.br/acf/rm/16/26); [1 Coríntios
+3:10](http://bibliaonline.com.br/acf/1co/3/10); [Efésios
+2:20-22](http://bibliaonline.com.br/acf/ef/2/20-22)), e a continuação
+dos dons de ministério, "para edificação do corpo de Cristo; até que
+todos cheguemos à unidade da fé, e ao conhecimento do Filho de Deus, a
+varão perfeito, à medida da estatura completa de Cristo. Para que não
+sejamos mais meninos inconstantes, levados em roda por todo o vento de
+doutrina" ([Efésios 4:12-14](http://bibliaonline.com.br/acf/ef/4/12-14)).
+
+Como já foi mencionado, há aqueles que professam possuir o dom de
+línguas e outros "dons de sinais" em nossos dias. À medida em que
+colocamos à prova suas afirmativas, pela Palavra de Deus e pelos
+próprios fatos, constatamos que não são iguais àquilo que nos é
+apresentado no livro de Atos Não usam o dom de línguas como um sinal para
+os incrédulos e nem podem fazer que um grupo de doentes se aproxime e
+sejam todos curados ([Atos
+5:12-16](http://bibliaonline.com.br/acf/atos/5/12-16)). Mesmo com respeito
+às curas registradas em Atos não existe a certeza de que aqueles que
+foram curados fossem crentes, mas tudo indica justamente o contrário.
+Era um sinal para confirmar a Palavra para os incrédulos, mesmo porque
+os verdadeiros crentes não necessitam que a Palavra lhes seja
+confirmada, pois a receberam como sendo a Palavra de Deus ([1 Tessalonicenses
+2:13](http://bibliaonline.com.br/acf/1ts/2/13)). É também importante
+notar que a cura tem relação com o tempo ou século futuro ([Hebreus
+6:5](http://bibliaonline.com.br/acf/hb/6/5); [Isaías
+33:24](http://bibliaonline.com.br/acf/is/33/24); [Salmos
+103:3](http://bibliaonline.com.br/acf/sl/103/3)). Era um sinal dirigido
+especialmente àqueles que haviam rejeitado o seu Messias, e a outros
+também, mostrando que é Ele Quem irá no futuro trazer as bênçãos do
+reino sobre a Terra; que Ele Se encontra agora ressuscitado, e que essas
+obras de poder eram feitas em nome dEle ([Atos
+4:9-10](http://bibliaonline.com.br/acf/atos/4/9-10)).
+
+É muito importante distinguirmos as duas esferas de bênção das quais o
+Senhor será o centro no dia vindouro ([Efésios
+1:10](http://bibliaonline.com.br/acf/ef/1/10)). Haverá a esfera
+celestial à qual pertence a Igreja ([2 Coríntios
+5:1](http://bibliaonline.com.br/acf/2co/5/1); [Colossenses
+1:5](http://bibliaonline.com.br/acf/cl/1/5); [1 Pd
+1:3-4](http://bibliaonline.com.br/acf/1pe/1/3-4)) e haverá a esfera
+terrenal da qual Jerusalém, na Terra, será o centro ([Isaías
+4:3-5](http://bibliaonline.com.br/acf/is/4/3-5);
+[65:18](http://bibliaonline.com.br/acf/is/65/18)). Já que nós, como
+parte que somos da Igreja, somos um povo celestial, aguardamos o momento
+da Sua vinda quando seremos transformados e teremos corpos de glória à
+imagem do corpo glorioso de Cristo ([Fp
+3:20-21](http://bibliaonline.com.br/acf/fp/3/20-21)). Enquanto isso,
+neste tabernáculo "gememos, desejando ser revestidos da nossa habitação,
+que é do céu" ([2 Coríntios 5:2](http://bibliaonline.com.br/acf/2co/5/2)).
+
+Em relação a isto, é bem interessante notar com cuidado as referências
+feitas à doenças entre os crentes nas epístolas, entre aqueles que
+pertencem ao povo celestial. Lemos em [Romanos
+8:23](http://bibliaonline.com.br/acf/rm/8/23) que "nós mesmos, que temos
+as primícias do Espírito, também gememos em nós mesmos, esperando a
+adoção, a saber, a redenção do nosso corpo". Não há aqui nenhuma
+referência a cura, mas sim a esperar pela redenção de nosso corpo. O
+Espírito, enquanto isso, "ajuda as nossas fraquezas" ("enfermidades",
+cf. versão inglesa), mas não diz que Ele as remove.
+
+Mais adiante, em [2 Coríntios
+12:7-10](http://bibliaonline.com.br/acf/2co/12/7-10), vemos que Paulo
+tinha um espinho na carne, chamado de "enfermidade física" em [Gálatas
+4:13](http://bibliaonline.com.br/acf/gl/4/13) (versão Almeida Revista e
+Atualizada), e ainda assim o Senhor não o curou, mas o ensinou a
+depender dEle quanto àquela dificuldade. Timóteo tinha "frequentes
+enfermidades", mas Paulo não lhe indicou alguém que o curasse, mas
+aconselhou que utilizasse um remédio para sua enfermidade ([1 Timóteo
+5:23](http://bibliaonline.com.br/acf/1tm/5/23)). Mais uma vez vemos, em
+[2 Timóteo 4:20](http://bibliaonline.com.br/acf/2tm/4/20), que embora Paulo
+houvesse curado a muitos em seu trabalho no evangelho, (como está
+registrado em [Atos
+19:11-12](http://bibliaonline.com.br/acf/atos/19/11-12);
+[28:8-9](http://bibliaonline.com.br/acf/atos/28/8-9)), deixou Trófimo
+doente em Mileto.
+
+Em [Tiago 5:14-18](http://bibliaonline.com.br/acf/tg/5/14-18) encontramos o
+caso de um que, estando doente, chama pelos anciãos para orarem por ele.
+Não se trata da fé do doente que lhe restaura a saúde - sua fé nem mesmo
+é mencionada - mas trata-se de um exercício de fé da parte daqueles que
+oraram por ele. Também não se trata do dom de curar sendo exercitado,
+mas sim de uma oração respondida, sugerindo que aquele que estava doente
+reconhecia que devia ser honesto o suficiente para confessar um pecado
+conhecido. Aqueles que oram discernem a vontade de Deus em relação à
+enfermidade, e orando de acordo com a vontade de Deus, Ele responde à
+oração. Não há menção aqui de uma cura súbita e miraculosa, mas do
+Senhor levantando o enfermo novamente. Além do mais, naqueles dias havia
+anciãos (ou presbíteros) designados pelos apóstolos, enquanto que hoje
+não há apóstolos ou quem tenha recebido autoridade delegada diretamente
+por eles, como era o caso de Tito ([Tito
+1:5](http://bibliaonline.com.br/acf/tt/1/5)), para estabelecer anciãos.
+A assembléia local nunca nomeava os seus próprios anciãos, mesmo nos
+tempos bíblicos, embora não exista dúvida de que mesmo nestes nossos
+dias de ruína e fracasso Deus permaneça fiel, e assim como Paulo previu
+que viriam dias em que lobos vorazes entrariam (e estão entrando) no
+rebanho, ele se referiu também àqueles anciãos de Éfeso, não como tendo
+sido nomeados por Paulo, mas pelo Espírito Santo ([Atos
+20:28-30](http://bibliaonline.com.br/acf/atos/20/28-30)). Não existem
+anciãos (bispos ou presbíteros) oficiais hoje, mas sem dúvida há, ainda
+hoje, aqueles levantados por Deus para tomar conta do Seu povo, em um
+espírito de humildade e amor pelo rebanho de Deus. Não há dúvida de que
+é por esta razão que Tiago menciona o caso de Elias, um profeta nos dias
+da ruína e divisão de Israel, e demonstra como ele era conhecedor da
+vontade de Deus em suas orações. Ele primeiro viu, ao suspender as
+chuvas, a necessidade de disciplina do povo de Deus, e então Deus em
+graça respondeu à oração de Elias ao enviar chuva. Com freqüência temos
+visto, em nossos dias, o Senhor respondendo às orações, em situações de
+dificuldade ou ao restaurar a saúde aos enfermos, mas precisamos
+compreender as épocas e termos discernimento da Sua vontade a este
+respeito ([Efésios 5:17](http://bibliaonline.com.br/acf/ef/5/17)).
+
+Por meio de [1 Coríntios 11:30](http://bibliaonline.com.br/acf/1co/11/30)
+podemos ver como Deus utiliza a enfermidade em Seus desígnios
+governamentais, pois lemos que em virtude de pecado não julgado Deus
+permitiu que muitos em Corinto estivessem "fracos e doentes", por não
+terem julgado a si mesmos por seu proceder negligente. João também fala
+destas coisas em sua epístola ([1 João
+5:14-17](http://bibliaonline.com.br/acf/1jo/5/14-17)), mostrando como o
+Senhor poderia remover alguém, por meio da morte, que não tomasse
+cuidado com seu proceder. Embora o cristão esteja eternamente seguro no
+que diz respeito à salvação de sua alma, ele se encontra sob os
+desígnios governamentais de Deus, e Ele às vezes utiliza a doença para
+tratar com os que são Seus. Se nos recusamos a escutar, poderemos perder
+o privilégio de vivermos aqui como um testemunho para Cristo, embora o
+sangue de Cristo já nos tenha tornado prontos para o céu. Evidentemente
+isto não significa que toda enfermidade seja uma punição, pois ela pode
+vir tanto em razão de nosso corpo fazer parte de uma criação que geme, e
+termos por isso herdado alguma fraqueza, como pode também fazer parte do
+método de ensino de Deus, como quando se poda uma videira para que
+produza mais fruto. Era este o caso de Paulo em [2 Coríntios
+12:7-10](http://bibliaonline.com.br/acf/2co/12/7-10).
+
+É de suma importância para nós, em nossa expectativa, não irmos além da
+Palavra de Deus ([1 Coríntios 4:6](http://bibliaonline.com.br/acf/1co/4/6); [Salmos
+62:5](http://bibliaonline.com.br/acf/sl/62/5); [Números
+23:19](http://bibliaonline.com.br/acf/nm/23/19)). Aqueles que buscam por
+dons de sinais nos dias de hoje, estão permitindo que suas expectativas
+ultrapassem a Palavra de Deus, e isso os deixa vulneráveis a "todo vento
+de doutrina" e ao poder do inimigo ([Salmos
+17:4-5](http://bibliaonline.com.br/acf/sl/17/4-5); [2 Timóteo
+2:24-26](http://bibliaonline.com.br/acf/2tm/2/24-26)). Falsos profetas
+farão sinais e maravilhas no futuro ([Mateus
+24:24](http://bibliaonline.com.br/acf/mt/24/24)), mas serão sinais
+feitos pelo poder de Satanás, e a única maneira de termos certeza se
+algo é de Deus é que esteja de acordo com Sua Palavra. Todas as
+passagens das Escrituras que tratam dos últimos dias da história da
+Igreja, falam do abandono de Deus e de fraqueza, não de sinais e
+maravilhas. Veja a descrição que Paulo faz dos últimos dias da Igreja em
+[2 Timóteo 3](http://bibliaonline.com.br/acf/2tm/3), ou a descrição que João
+faz dos últimos dias da Igreja como é vista em Laodicéia ([Apocalipse
+3:14-20](http://bibliaonline.com.br/acf/ap/3/14-20)), e também os avisos
+de Pedro em [2 Pedro 3:3-4](http://bibliaonline.com.br/acf/2pe/3/3-4). A
+profecia de Joel em [Atos 2](http://bibliaonline.com.br/acf/atos/2), que
+alguns usam para dar fundamento aos sinais e maravilhas nestes últimos
+dias da história da igreja, se refere a um tempo futuro para Israel
+(trata-se dos últimos dias para Israel - [Joel
+2:21-32](http://bibliaonline.com.br/acf/jl/2/21-32)). O dia de
+Pentecostes encontrava-se naquele caráter pois a Israel, como nação, foi
+dada naquela ocasião a oportunidade de se arrepender de sua culpa por
+ter crucificado o Messias, e assim receber a bênção prometida, que será
+deles em um dia futuro quando efetivamente irão se arrepender ([Atos
+3:17-26](http://bibliaonline.com.br/acf/atos/3/17-26)).
+
+O Espírito Santo foi dado no dia de Pentecostes, e agora, como uma
+Pessoa divina, Ele habita nos corpos dos crentes ([1 Coríntios
+6:19](http://bibliaonline.com.br/acf/1co/6/19)) e Se encontra também na
+casa professante da cristandade ([Efésios
+2:22](http://bibliaonline.com.br/acf/ef/2/22)). O Senhor Jesus falou
+disso ([João 14:16-17](http://bibliaonline.com.br/acf/jo/14/16-17)),
+dizendo aos discípulos, antes do dia de Pentecostes, que esperassem por
+Sua vinda em cujo tempo eles seriam "do alto revestidos de poder" ([Lucas
+24:49](http://bibliaonline.com.br/acf/lc/24/49)). Em Corinto, não foi
+dito aos crentes que esperassem que viesse "poder" sobre eles, mas, ao
+invés disso, foi dito que deveriam usar os dons do Espírito, que Deus
+lhes havia dado, inteligentemente, dirigidos por Sua Palavra e em uma
+santa liberdade, conforme fossem guiados pelo Espírito ([1 Coríntios
+12:4-11](http://bibliaonline.com.br/acf/1co/12/4-11)). Como alguém já
+disse, "O Espírito e a Palavra não podem ser separados sem que se caia
+no fanatismo, de um lado, ou no racionalismo, do outro". É perigoso
+aguardar por um derramamento adicional do Espírito, além daquele que
+temos, sendo habitados pelo Espírito de Deus. Há dois poderes acima do
+homem, e estes são o poder de Deus e o poder de Satanás. O movimento
+carismático leva as pessoas a buscarem por demonstrações de poder que
+não estão em conformidade com a Palavra de Deus e, portanto, não são
+pelo Espírito de Deus. Edward Irving, que iniciou esse movimento na
+Inglaterra no século passado, ensinou algumas coisas chocantes acerca da
+Pessoa de Cristo, as quais não convém repetir aqui (conforme citado por
+J.N.Darby em "Collect Writtings", Vol. 15, Pg. 1-51), no entanto
+aconteceram grandes demonstrações de poder e "línguas" naquela época,
+colhendo em suas redes até mesmo cristãos verdadeiros (cf. "Spirit
+Manifestations", Sir Robert Anderson, pg. 19-20). Mesmo nos dias de hoje
+a demonstração desse poder e "línguas" está com freqüência associada a
+má doutrina acerca da Pessoa e obra do Senhor Jesus Cristo, e a outras
+práticas não bíblicas, pois Satanás pode tomar a forma tanto de um "anjo
+de luz" ([2 Coríntios 11:13-15](http://bibliaonline.com.br/acf/2co/11/13-15))
+como de um "leão que brama" ([1 Pd
+5:8-9](http://bibliaonline.com.br/acf/1pe/5/8-9)). Seu grande alvo
+sempre foi atacar a gloriosa Pessoa e a obra consumada de nosso bendito
+Senhor e Salvador.
+
+Por esta razão vemos a importância de primeiro testarmos esse movimento
+carismático moderno pela Palavra de Deus. Não busquemos por "poder",
+pois se alguém, seja homem ou mulher, é um verdadeiro crente no Senhor
+Jesus Cristo, tal pessoa é habitada pelo Espírito de Deus, que é o poder
+para nosso andar como filhos de Deus. Em [Lucas
+11:13](http://bibliaonline.com.br/acf/lc/11/13), antes do dia de
+Pentecostes, o Senhor Jesus disse aos Seus discípulos que pedissem pelo
+Espírito Santo, pois Ele ainda não havia sido dado ([João
+7:39](http://bibliaonline.com.br/acf/jo/7/39)), mas agora Ele habita nos
+corpos de todos que creram no evangelho ([Efésios
+1:13](http://bibliaonline.com.br/acf/ef/1/13)). Não há qualquer registro
+de alguém a quem tenha sido dito que esperasse pelo batismo do Espírito
+Santo após o dia de Pentecostes. Existe a exortação que diz "enchei-vos
+do Espírito" ([Efésios 5:18](http://bibliaonline.com.br/acf/ef/5/18)), que
+significa que devemos permitir que Ele nos guie em tudo o que fazemos.
+Ela é dada em contraste com o embriagar-se com vinho, uma vez que alguém
+assim estaria fora de controle, enquanto que aquele que está cheio com o
+Espírito encontra-se sob controle, pois um dos frutos do Espírito é
+temperança e domínio próprio ([Gálatas
+5:22-23](http://bibliaonline.com.br/acf/gl/5/22-23) Almeida Versão
+Atualizada). Onde o Espírito de Deus estiver guiando, aí há liberdade e
+serviço inteligente.
+
+À medida em que andarmos perto do Senhor em dependência e obediência,
+haverá, pelo poder do Espírito de Deus, o desfrutar de Cristo e de nossa
+porção nEle, pois o Espírito Santo não fala de Si mesmo, mas nos guia a
+toda verdade e glorifica a Cristo ([João
+16:13-14](http://bibliaonline.com.br/acf/jo/16/13-14); [Efésios
+3:16,21](http://bibliaonline.com.br/acf/ef/3/16,21); [Colossenses
+1:8-14](http://bibliaonline.com.br/acf/cl/1/8-14)). Ele também nos
+capacitará a darmos um verdadeiro testemunho por Cristo perante outros
+([Fp 2:15-16](http://bibliaonline.com.br/acf/fp/2/15-16)). Se virmos
+demonstrações de poder ao nosso redor, seremos mais prontos a verificar
+se estão de acordo com a Palavra de Deus do que a nos deixarmos levar
+pelo próprio sinal ou maravilha ([Deuteronômio
+13:1-4](http://bibliaonline.com.br/acf/dt/13/1-4)).
+
+Ao terminar, gostaria de colocar estas palavras diante do Senhor para
+que possam ser úteis para auxiliar o povo de Deus a discernir o caminho
+de fé nestes últimos dias. Nos regozijamos ao ver Deus operando em graça
+ao salvar almas, usando Sua preciosa Palavra por quem quer que a pregue
+([Fp 1:18](http://bibliaonline.com.br/acf/fp/1/18)). Mas Deus quer
+também que todos os que são Seus "venham ao conhecimento da verdade"
+([1 Timóteo 2:4](http://bibliaonline.com.br/acf/1tm/2/4)). O caminho de
+obediência à Sua Palavra é o único caminho seguro e verdadeiramente
+feliz, e neste caminho, como alguém já disse, "não existem
+desapontamentos e nem esperanças perdidas". Os caminhos da sabedoria
+"são caminhos de delícias, e todas as suas veredas, paz" ([Provérbios
+3:17](http://bibliaonline.com.br/acf/pv/3/17)). As Escrituras não nos
+dizem que devemos buscar por um segundo Pentecostes; ao invés disso nos
+exortam a saber como devemos agir e como devemos nos reunir ao Nome do
+Senhor Jesus Cristo em obediência, numa época em que a cristandade se
+tornou uma grande casa, com "vasos para honra, outros, porém, para
+desonra" ([2 Timóteo 2:16-26](http://bibliaonline.com.br/acf/2tm/2/16-26)).
+Certa ocasião o Senhor teve que dizer a Pedro, "Para trás de mim,
+Satanás" ([Mateus 16:23](http://bibliaonline.com.br/acf/mt/16/23)),
+mostrando que até mesmo um crente útil e verdadeiro pode ser seduzido e
+usado pelo inimigo.
+
+Que possamos compreender o que é desfrutar de nossa porção em Cristo
+agora, pelo Espírito, possuindo, como alguém já disse, corações amplos
+para amarmos a todos os verdadeiros filhos de Deus e pés estreitos para
+caminharmos no estreito caminho da obediência à Palavra de Deus,
+enquanto ansiamos pelo bendito dia em que estaremos com Cristo naquele
+glorioso lar nas alturas. Então a Igreja será apresentada "Igreja
+gloriosa, sem mácula, nem ruga, nem coisa semelhante" ([Efésios
+5:27](http://bibliaonline.com.br/acf/ef/5/27)). Tudo o que será
+verdadeiramente levado em conta então será ter a Sua aprovação quanto ao
+caminho que trilhamos em direção ao Lar, a casa do Pai.
+
+Gordon H.Hayhoe
+
+\

@@ -1,0 +1,74 @@
+---
+date: 2017-07-21T17:00:00+09:00
+slug: folhetos/doutrinarios/seguranca-eterna/ 
+title: SEGURANÇA ETERNA 
+image: SEGURANCA-ETERNA.jpeg
+---
+
+SEGURANÇA ETERNA 
+================
+
+Existem cinco coisas que deveriam acontecer antes que um salvo perca a
+sua salvação. Porém, são coisas impossíveis de acontecer!
+
+​1. Alguém teria que nos tirar da mão do próprio Deus. "Meu Pai, que mas
+deu, é maior do que todos; e ninguém pode arrebatá-las da mão de meu
+Pai" ([João 10:29](http://bibliaonline.com.br/acf/jo/10/29)).
+
+​2. Alguém teria que quebrar o selo de propriedade que nos tornou
+propriedade particular de Deus. "Fostes selados com o Espírito Santo da
+promessa. O qual é o penhor da vossa herança, para redenção da possessão
+de Deus, para louvor da Sua glória" ([Efésios 1:13,
+14](http://bibliaonline.com.br/acf/ef/1/13,14)).
+
+​3. Alguém teria que expulsar o Espírito Santo de Deus que habita em
+nós. "Não sabeis vós que sois o templo de Deus, e que o Espírito de Deus
+habita em vós?" ([1 Coríntios 3:16](http://bibliaonline.com.br/acf/1co/3/16)).
+"E eu rogarei ao Pai, e ele vos dará outro Consolador, para que fique
+convosco para sempre" ([João
+14:16](http://bibliaonline.com.br/acf/jo/14/16)).
+
+​4. Alguém teria que nos separar do amor de Cristo. "Se Deus é por nós,
+quem será contra nós? Aquele que nem mesmo a seu próprio Filho poupou,
+antes o entregou por todos nós, como nos não dará também com ele todas
+as coisas? Quem intentará acusação contra os escolhidos de Deus? É Deus
+quem os justifica. Quem os condenará? Pois é Cristo quem morreu, ou
+antes quem ressuscitou dentre os mortos, o qual está à direita de Deus,
+e também intercede por nós. Quem nos separará do amor de Cristo? A
+tribulação, ou a angústia, ou a perseguição, ou a fome, ou a nudez, ou o
+perigo, ou a espada? Como está escrito: Por amor de ti somos entregues à
+morte todo o dia: fomos reputados como ovelhas para o matadouro. Mas em
+todas estas coisas somos mais do que vencedores, por aquele que nos
+amou. Porque estou certo de que, nem a morte, nem a vida, nem os anjos,
+nem os principados, nem as potestades, nem o presente, nem o porvir, nem
+a altura, nem a profundidade, nem alguma outra criatura nos poderá
+separar do amor de Deus, que está em Cristo Jesus nosso Senhor" ([Romanos
+8:31-39](http://bibliaonline.com.br/acf/rm/8/31-39)).
+
+​5. Alguém teria que apagar o nome do crente do Livro da Vida do
+Cordeiro. "Alegrai-vos antes por estarem os vossos nomes escritos nos
+céus" ([Lucas 10:20](http://bibliaonline.com.br/acf/lc/10/20)). "...cujos
+nomes estão escritos no livro da vida" ([Fp.
+4:3](http://bibliaonline.com.br/acf/fp/4/3)). "E aquele que não foi
+achado escrito no livro da vida foi lançado no lago de fogo" ([Apocalipse
+20:15](http://bibliaonline.com.br/acf/ap/20/15)). "Os que estão
+inscritos no livro da vida do Cordeiro" ([Apocalipse
+21:27](http://bibliaonline.com.br/acf/ap/21/27)).
+
+Nossos nomes, das palmas de Suas mãos,
+
+A eternidade não conseguirá apagar;
+
+Impressos no coração de Deus já estão,
+
+Com a indelével tinta da graça sem par;
+
+E nós, até o fim viver poderemos,
+
+Na solene certeza que nos é dada;
+
+Já seguros, mas sempre mais serenos,
+
+Tendo nos céus o final da jornada.
+
+Christian Treasury
