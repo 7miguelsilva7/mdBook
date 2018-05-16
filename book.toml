@@ -1,8 +1,8 @@
 [book]
-authors = ['R. GUILLEN']
+authors = ['BRUCE ANSTEY']
 multilingual = false
 src = 'src'
-title = 'A AUTORIDADE DIVINA DELEGADA A ASSEMBLEIA'
+title = 'UM SÓ CORPO NA PRÁTICA'
 
 [output.html]
 additional-js = ['custom.js']

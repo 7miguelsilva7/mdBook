@@ -3,8 +3,9 @@
 (
 echo 'Executando tarefa, aguarde... '
 
-cp comandoEmPastas.sh src/
-bash src/comandoEmPastas.sh
+cd src
+sed -i 's/{#.*}//g' *.md
+cd ..
 
 # Configurações de Livros
 nomeLivro=$( zenity --entry --text "Nome do Livro" --entry-text "nomeLivro" --title "Gerando Livro")
