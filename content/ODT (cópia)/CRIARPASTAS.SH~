@@ -1,0 +1,9 @@
+(
+echo 'Executando tarefa, aguarde... '
+
+ls --format single-column >lista.txt 
+
+for i in `cat lista.txt`
+do
+mkdir $i
+done

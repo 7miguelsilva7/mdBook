@@ -1,6 +1,7 @@
 atualizar-git.sh
 book
 book.toml
+book.toml~
 comandoEmPastas.sh
 comandoEmPastas.sh~
 content
