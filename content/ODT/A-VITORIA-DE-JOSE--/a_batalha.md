@@ -1,3 +1,0 @@
-# A Batalha {#a-batalha}
-
-A esposa de Potifar pedia a José que este se deitasse com ela, incitando-o a cometer fornicação. Mas José se recusava, dizendo: &quot;Como pois faria eu este tamanho mal, e pecaria contra Deus?&quot; A esposa de Potifar continuou a tentá-lo, procurando fazê-lo pecar, até o dia em que agarrou a José por suas roupas na tentativa de forçá-lo. Ele, porém, deixou sua roupa, fugindo da casa.

@@ -1,1 +1,0 @@
-# Roma e Seus Governantes (64 d.C. – 177 d.C.) {#roma-e-seus-governantes-64-d-c-177-d-c}

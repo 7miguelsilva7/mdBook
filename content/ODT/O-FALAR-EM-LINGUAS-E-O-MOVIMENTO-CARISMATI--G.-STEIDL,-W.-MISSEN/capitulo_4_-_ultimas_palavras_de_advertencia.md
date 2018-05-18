@@ -1,3 +1,0 @@
-# Capítulo 4 - Últimas palavras de advertência. {#cap-tulo-4-ltimas-palavras-de-advert-ncia}
-
-Através do que temos considerado vemos que existe um esforço muito sutil do inimigo para desviar os santos. Por isso, não podemos gozar de plena comunhão com os que têm e ensinam aquelas opiniões e doutrinas de erro. Uma só pessoa que em uma congregação tenha tais ideias é suficiente para causar confusão e logo, divisão. Por isso é necessário evitar esses problemas instruindo e avisando aos santos, e estar em guarda para perceber a presença do fermento ([Gálatas 5:9](http://bibliaonline.com.br/acf/gl/5/9)).

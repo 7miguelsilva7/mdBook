@@ -1,1 +1,0 @@
-# A ÚLTIMA TROMBETA {#a-ltima-trombeta}

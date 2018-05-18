@@ -1,7 +1,0 @@
-# O-FALSO-MESSIAS-W-SCOTT-W.-SCOTT {#o-falso-messias-w-scott-w-scott}
-
-O FALSO MESSIAS
-
-W. SCOTT
-
-2017-07-21T17:00:00+09:00

@@ -1,7 +1,0 @@
-# 1 Coríntios 6:9-11: {#1-cor-ntios-6-9-11}
-
-[1 Coríntios 6:9-11](http://bibliaonline.com.br/acf/1co/6/9-11)
-
-Se o divórcio (e talvez o novo casamento) aconteceu antes da pessoa ter sido salva, deveria ser explicado claramente a ele, ela ou ambos, que como cristãos eles deveriam entender a ordem de Deus quanto ao divórcio e novo casamento. O passado poderia não ser totalmente esquecido, pois colhemos aquilo que semeamos ([Gálatas 6:7](http://bibliaonline.com.br/acf/gl/6/7)). No entanto, vemos que na assembléia de Corinto, havia muitos pecados cometidos no tempo em que não eram salvos, que teriam sido objeto da disciplina da assembléia se fossem cometidos quando salvos, pois o juízo começa pela casa de Deus ([1 Pd 4:17](http://bibliaonline.com.br/acf/1pe/4/17)). Eles foram recebidos como estavam, quando salvos, como novas criaturas em Cristo, havendo tido lugar a &quot;lavagem da regeneração&quot; ([Tito 3:5](http://bibliaonline.com.br/acf/tt/3/5)). Agora era para eles se aplicarem &quot;às boas obras&quot; ([Tito 3:3-8](http://bibliaonline.com.br/acf/tt/3/3-8)), e estavam sob a disciplina da assembléia de Deus* ([1 Coríntios 5:12](http://bibliaonline.com.br/acf/1co/5/12)).
-
-(N.T. O termo &quot;assembléia de Deus&quot; é usado aqui no sentido da igreja conforme encontrada nas Escrituras. Nada tem a ver com a denominação adotada por certa organização religiosa).

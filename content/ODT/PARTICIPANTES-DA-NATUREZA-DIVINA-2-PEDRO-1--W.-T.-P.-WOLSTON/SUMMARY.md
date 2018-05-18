@@ -1,4 +1,0 @@
-# Summary
-
-* [PARTICIPANTES-DA-NATUREZA-DIVINA-2-PEDRO-1-W.-T.-P.-WOLSTON](README.md)
-* [PARTICIPANTES DA NATUREZA DIVINA](participantes_da_natureza_divina.md)

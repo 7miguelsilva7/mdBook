@@ -1,3 +1,0 @@
-# A VITÓRIA DE CRISTO SOBRE A MORTE {#a-vit-ria-de-cristo-sobre-a-morte}
-
-Cristo passou pela morte e conquistou a grande vitória sobre ela para os filhos de Deus. [Hebreus 2:14,15](http://bibliaonline.com.br/acf/hb/2/14,15) diz, “E, visto como os filhos participam da carne e do sangue, também ele participou das mesmas coisas, para que pela morte aniquilasse o que tinha o império da morte, isto é, o diabo; e livrasse todos os que, com medo da morte, estavam por toda a vida sujeitos à servidão”.

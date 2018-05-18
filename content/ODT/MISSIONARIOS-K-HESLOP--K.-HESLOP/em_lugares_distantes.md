@@ -1,3 +1,0 @@
-# EM LUGARES DISTANTES {#em-lugares-distantes}
-
-“ Ide por todo o mundo, pregai o evangelho” ( [Marcos 16:15](http://bibliaonline.com.br/acf/mc/16/15)). Pode ser que algum dia o Senhor me envie para terras distantes a fim de pregar o evangelho. Não há diferença entre ser um missionário em casa e ser um missionário em terras distantes. É o Senhor quem envia Seu servo. O Senhor também providencia a mensagem : Seu grande amor. Portanto, quer seja aqui ou alí, eu sou enviado. Para onde ou para quem quer que seja, eu tenho a missão de pregar o evangelho.

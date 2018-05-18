@@ -1,3 +1,0 @@
-# 4\. O aumento do conhecimento e o rápido ritmo de vida {#4-o-aumento-do-conhecimento-e-o-r-pido-ritmo-de-vida}
-
-[Daniel 12:4](http://bibliaonline.com.br/acf/dn/12/4). Foi dito a Daniel que os últimos dias seriam marcados pelo rápido ritmo de vida e pelo aumento de conhecimento. Uma simples olhada para a história do homem é suficiente para mostrar que nunca existiu uma época como esta para o conhecimento em todos os campos, seja na medicina, tecnologia, ciência, etc. Isto é certamente um sinal dos tempos em que vivemos e mais uma vez vem a confirmar que &quot;o tempo se abrevia&quot; ([1 Coríntios 7:29](http://bibliaonline.com.br/acf/1co/7/29)).

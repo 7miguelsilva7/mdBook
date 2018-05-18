@@ -1,7 +1,0 @@
-# NOSSO-SENHOR-JESUS-CRISTO-H-E-HAYHOE-H.-E.-HAYHOE {#nosso-senhor-jesus-cristo-h-e-hayhoe-h-e-hayhoe}
-
-NOSSO SENHOR JESUS CRISTO
-
-H. E. HAYHOE
-
-2017-07-21T17:00:00+09:00

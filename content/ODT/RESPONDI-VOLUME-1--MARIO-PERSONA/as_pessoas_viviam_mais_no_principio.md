@@ -1,9 +1,0 @@
-# As pessoas viviam mais no princípio? {#as-pessoas-viviam-mais-no-princ-pio}
-
-Quanto à sua outra pergunta, não sei exatamente que calendário os homens usavam no princípio, mas os anos sempre foram anos, ou seja, com igual período de tempo, uma vez que estavam condicionados às fases da lua e ao ciclo solar (que rege as estações). É provável que o inicio do ano fosse diferente para diferentes povos. Os anos que encontramos no princípio da Bíblia, mostrando idades de centenas de anos para as pessoas do mundo antediluviano, são períodos de tempo como temos hoje.
-
-Não é, como dizem alguns, que os anos fossem menores e por isso as pessoas faziam &quot;mais aniversários&quot;. Não, aquelas pessoas tiveram realmente 200, 300, 500, ou mais anos de idade! Não é possível um homem atual viver tanto, mas era possível naquele tempo por dois motivos. Havia pouco o homem tinha sido expulso do Éden, e ao longo da Bíblia vamos vendo que conforme o tempo passa as idades diminuem, parecendo mostrar que houve uma degradação gradual do corpo humano, quanto mais longe ficava da criação original de Deus.
-
-Outro ponto a ser considerado eram as condições climáticas anteriores ao dilúvio. Não existia chuva, mas a terra era regada por uma neblina (ao que parece, a primeira chuva que caiu foi o dilúvio, o que tornava ainda mais absurda, aos incrédulos, a pregação de Noé — Gênesis[2:5,6](http://bibliaonline.com.br/acf/gn/2/5,6)). Numa atmosfera tão diferente e protegida dos raios solares pela densa atmosfera (que depois se transformou em chuva), é de se prever que o organismo funcionasse de maneira diferente, fazendo com que as pessoas atingissem idades tão avançadas.
-
-*****

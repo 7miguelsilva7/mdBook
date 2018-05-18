@@ -1,1 +1,0 @@
-### A Carta à Igreja de Éfeso (ap 2:1–7) {#a-carta-igreja-de-feso-ap-2-1-7}

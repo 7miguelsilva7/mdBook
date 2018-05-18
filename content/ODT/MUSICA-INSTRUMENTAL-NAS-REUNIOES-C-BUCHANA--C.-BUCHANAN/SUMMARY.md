@@ -1,4 +1,0 @@
-# Summary
-
-* [MUSICA-INSTRUMENTAL-NAS-REUNIOES-C-BUCHANA-C.-BUCHANAN](README.md)
-* [MÚSICA INSTRUMENTAL NAS REUNIÕES](musica_instrumental_nas_reunioes.md)

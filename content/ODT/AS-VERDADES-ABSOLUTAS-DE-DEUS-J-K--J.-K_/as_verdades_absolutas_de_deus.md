@@ -1,5 +1,0 @@
-# AS VERDADES ABSOLUTAS DE DEUS {#as-verdades-absolutas-de-deus}
-
-Certa vez, um professor fez um comentário que tem vindo a minha mente nestes dias. Depois de ter ouvido falar de sua necessidade do Salvador, ele comentou: &quot;Você não pode ter certeza das coisas de que você fala, não existem verdades absolutas. Tudo é relativo&quot;. Ele então passou a falar das &quot;zonas cinzentas &quot; da vida, no qual é impossível saber com precisão o que é verdadeiro.
-
-Ele faz meu coração cantar pensando nas verdades absolutas de Deus. Não somos deixados no mundo para vagar em &quot;zonas cinzentas&quot;, indecisão, &quot;se&quot; ou &quot;talvez&quot; ou em nossas próprias experiências e opiniões. Como aceitamos Jesus Cristo como nosso Salvador pessoal, já agradecemos hoje a Deus pela fé em conhecer e ser convencidos de Suas verdades? Já fizemos uma pausa para agradecer a Ele pelas escrituras que apresentam o Salvador de forma simples e clara como o único capaz de atender as nossas necessidades? Temos agradecido a Ele por um livro que dá respostas e princípios claros para cada pergunta, problema ou julgamento com o qual sempre somos confrontados?

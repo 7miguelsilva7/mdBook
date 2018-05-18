@@ -1,4 +1,0 @@
-# Summary
-
-* [JUGO-DESIGUAL-C-H-MACKINTOSH-C.-H.-MACKINTOSH](README.md)
-* [JUGO DESIGUAL](jugo_desigual.md)

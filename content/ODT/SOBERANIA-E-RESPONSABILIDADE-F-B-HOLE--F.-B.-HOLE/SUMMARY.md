@@ -1,4 +1,0 @@
-# Summary
-
-* [SOBERANIA-E-RESPONSABILIDADE-F-B-HOLE-F.-B.-HOLE](README.md)
-* [SOBERANIA E RESPONSABILIDADE](soberania_e_responsabilidade.md)

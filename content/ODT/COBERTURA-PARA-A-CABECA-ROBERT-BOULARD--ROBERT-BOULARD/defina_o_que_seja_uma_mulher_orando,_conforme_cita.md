@@ -1,5 +1,0 @@
-# Defina o que seja uma mulher orando, conforme citado em 1 Coríntios 11:3-16. {#defina-o-que-seja-uma-mulher-orando-conforme-citado-em-1-cor-ntios-11-3-16}
-
-[1 Co 11:3-16](http://bibliaonline.com.br/acf/1co/11/3-16)
-
-Alguns, desejosos de deixar de lado o uso da cobertura para a cabeça, irão nos dizer que se uma mulher estiver numa reunião bíblica e não participar de forma audível, não haverá necessidade de usar uma cobertura para a cabeça, pois ela não estará orando e nem profetizando. Todavia isto é não entender o que o Apóstolo está dizendo. Ele usa oração aqui para representar a esfera do sacerdócio e profetizar para representar a esfera do ministério da Palavra. Como já foi mencionado, sempre que uma mulher se encontrar em uma dessas esferas ou em ambas, ela deve ter a sua cabeça coberta.

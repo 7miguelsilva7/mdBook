@@ -1,1 +1,0 @@
-# PERGUNTAS FREQUENTES SOBRE O USO DE COBERTURAS PARA A CABEÇA {#perguntas-frequentes-sobre-o-uso-de-coberturas-para-a-cabe-a}

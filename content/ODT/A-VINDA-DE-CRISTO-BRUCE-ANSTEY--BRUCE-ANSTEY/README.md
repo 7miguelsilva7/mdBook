@@ -1,7 +1,0 @@
-# A-VINDA-DE-CRISTO-BRUCE-ANSTEY-BRUCE-ANSTEY {#a-vinda-de-cristo-bruce-anstey-bruce-anstey}
-
-A VINDA DE CRISTO
-
-BRUCE ANSTEY
-
-2017-07-21T17:00:00+09:00

@@ -1,3 +1,0 @@
-# A Teologia do Pacto priva o Senhor Jesus de Sua glória pública {#a-teologia-do-pacto-priva-o-senhor-jesus-de-sua-gl-ria-p-blica}
-
-A doutrina da Teologia do Pacto priva o Senhor Jesus da exibição da glória do Seu reino neste mundo ([Habacuque 2:14](http://bibliaonline.com.br/acf/hc/2/14); [2 Tessalonicenses 1:10](http://bibliaonline.com.br/acf/2ts/1/10); [Apocalipse 1:7](http://bibliaonline.com.br/acf/ap/1/7)), e priva a Deus Pai da satisfação de ver Seu Filho publicamente inocentado no lugar onde Ele foi desonrado ([João 5:23](http://bibliaonline.com.br/acf/jo/5/23)).

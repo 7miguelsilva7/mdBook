@@ -1,1 +1,0 @@
-# OS DEZ MANDAMENTOS {#os-dez-mandamentos}

@@ -1,7 +1,0 @@
-# A-SALVACAO-E-PARA-SEMPRE-RON-REEVES-RON-REEVES {#a-salvacao-e-para-sempre-ron-reeves-ron-reeves}
-
-A SALVAÇÃO É PARA SEMPRE
-
-RON REEVES
-
-2017-07-21T17:00:00+09:00

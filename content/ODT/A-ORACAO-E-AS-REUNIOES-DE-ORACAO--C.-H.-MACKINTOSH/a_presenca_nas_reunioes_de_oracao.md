@@ -1,9 +1,0 @@
-## A Presença Nas Reuniões de Oração {#a-presen-a-nas-reuni-es-de-ora-o}
-
-Em alguns casos o povo do Senhor se ausenta porque nossas reuniões de oração se caracterizam por serem extensos, cansativos, sem propósito, cheios de orações que são pregações. Ao invés de sentir-se refrescado, consolado e fortalecido, se cansa, sofre e fica impaciente. Por isso, as pessoas preferem não ir. Pensam que é muito mais proveitoso passar esse tempo no particular de seu próprio quarto onde podem derramar seu coração perante o Senhor em oração fervorosa, do que ir a uma &quot;reunião de oração&quot; onde se cansam com o canto sem poder dos hinos, ou com extensas orações-sermões.
-
-É isto que se deve fazer? Esta não é a forma de resolver o problema que temos estado abordando. Já que é bom reunir-se para orar, então não é correto que ninguém falte por causa da debilidade, fracasso, ou da tolice de alguns dos participantes da reunião. Mas se todos os membros verdadeiramente espirituais não forem às reuniões por esses motivos, que seria da reunião de oração? Mesmo que não tenhamos uma participação audível na oração, sempre podemos ser de muita ajuda na reunião ao esperar em Deus com o espírito correto.
-
-Vamos às reuniões por outros motivos e não somente por nossa comodidade, proveito e benção. Devemos pensar na glória do Senhor. Devemos buscar fazer sua bendita vontade e em toda forma possível tratar de promover o bem de outros. Nenhum destes fins podem ser alcançados se intencionalmente nos ausentarmos do lugar de oração.
-
-É certo que às vezes há coisas que impedem de estarmos presentes: enfermidade, trabalhos domésticos e outras coisas que ocupam o nosso tempo. Mas é um fato que aquele que se ausenta da reunião de oração deliberadamente está em mal estado! O cristão saudável, alegre e fervoroso estará na reunião de oração!

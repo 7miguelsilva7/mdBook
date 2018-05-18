@@ -1,5 +1,0 @@
-# Quem eram eles? {#quem-eram-eles}
-
-Veja o [versículo 42](http://bibliaonline.com.br/acf/atos/2/42) do capítulo 2: &quot;E perseveravam na doutrina dos apóstolos, e na comunhão, e no partindo pão, e nas orações&quot;. Diz que eles &quot;perseveravam&quot;. Quem eram eles? O novo grupo, aquela companhia de pessoas batizadas com o Espírito de Deus, e batizadas com água para que se identificas sem com essa nova posição aqui neste mundo.
-
-Portanto aqui vemos uma companhia de pessoas batizadas; eles haviam recebido a Palavra e foram batizados. Naquele dia em particular, quando Pedro fez sua pregação, três mil almas foram acrescentadas. &quot;E perseveravam na doutrina dos apóstolos, e na comunhão, e no partir do pão, e nas orações.&quot; Qualquer grupo de cristãos que rejeite qualquer uma destas quatro coisas não está agindo em conformidade com o plano que Deus tem em mente. Lembre-se: é a igreja dEle, e Ele é Quem decide o caminho, e tanto eu como você só estaremos obedecendo se estivermos seguindo aquilo que é a Palavra de Deus. Uma das características de um cristão é &quot;perseverar&quot;.

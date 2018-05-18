@@ -1,3 +1,0 @@
-# DEUS, O FILHO {#deus-o-filho}
-
-Como HOMEM, Ele pôde sentir fome, sede e temor, para Se compadecer de nós como Sumo Sacerdote. Como DEUS Ele podia deter o vento e as ondas. Ele podia ressuscitar os mortos. Ele podia abrir o entendimento de Seus discípulos. Ele podia (e fez isto) comunicar poder. Ele conhecia os pensamentos daqueles que O cercavam. Ele podia predizer, como o fez, a forma como iria morrer.

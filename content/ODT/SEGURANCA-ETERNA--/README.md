@@ -1,5 +1,0 @@
-# SEGURANCA-ETERNA {#seguranca-eterna}
-
-SEGURANÇA ETERNA
-
-2017-07-21T17:00:00+09:00

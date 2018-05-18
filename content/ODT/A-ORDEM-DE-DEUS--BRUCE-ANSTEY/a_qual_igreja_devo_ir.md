@@ -1,5 +1,0 @@
-### A qual igreja devo ir? {#a-qual-igreja-devo-ir}
-
-Depois que alguém descobre que esteve participando de uma comunhão cristã cuja ordem é em grande parte inventada pelo homem, e se separa dela, sua pergunta pode muito bem ser: &quot;Aonde ir?&quot;. Depois de vermos todos os nomes e divisões na desordem existente na cristandade, é esta a pergunta que nos aflige. Mas, sem dúvida alguma, a resposta é: **&quot;a Deus e à palavra da sua graça&quot;** ([At 20:32](http://bibliaonline.com.br/acf/atos/20/32)).
-
-É na Palavra de Deus que devemos procurar a Sua vontade. Se concordarmos que a Palavra de Deus deve ser o guia do Cristão, então devemos buscar a Sua Palavra a fim de encontrar a ordem bíblica. Em vista disso, perguntamos: &quot;Em que denominação a Palavra de Deus diz que devo ingressar?&quot; A resposta é óbvia: em nenhuma, pois a Palavra de Deus não nos fala de ingressarmos em denominações! Portanto, fica bem claro que não posso pertencer a uma denominação, seja ela qual for, pois ao fazê-lo eu estaria me colocando em uma posição na qual a Palavra de Deus não me colocou.

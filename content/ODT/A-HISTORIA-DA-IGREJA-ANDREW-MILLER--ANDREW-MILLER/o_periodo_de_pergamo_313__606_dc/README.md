@@ -1,1 +1,0 @@
-# O Período de Pérgamo (313 – 606 d.C.) {#o-per-odo-de-p-rgamo-313-606-d-c}

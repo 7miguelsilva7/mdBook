@@ -1,5 +1,0 @@
-# O que é o Livro da Vida? {#o-que-o-livro-da-vida}
-
-Trata-se do registro dos nomes das pessoas como estando vivas. Um livro, também chamado simplesmente de livro de Deus, pode ser um livro daqueles que tão somente tem um nome para viver, cujos nomes podem, consequentemente, ser apagados ([Êx 32:32,33](http://bibliaonline.com.br/acf/ez/32/32,33);[Salmo 69:28](http://bibliaonline.com.br/acf/sl/69/28);[Apocalipse 3:5](http://bibliaonline.com.br/acf/ap/3/5);[22:19](http://bibliaonline.com.br/acf/ap/22/19)). Outro aspecto que o livro da vida assume é o de um livro dos salvos, do qual ninguém será apagado ([Fp 4:3](http://bibliaonline.com.br/acf/fp/4/3);[Apocalipse 3:8](http://bibliaonline.com.br/acf/ap/3/8);[17:8](http://bibliaonline.com.br/acf/ap/17/8);[20:12,15](http://bibliaonline.com.br/acf/ap/20/12,15);[21:27](http://bibliaonline.com.br/acf/ap/21/27)). Um terceiro livro, simplesmente chamado de &quot;o livro&quot;, contém os nomes do remanescente de Israel. ([Dn 12:1](http://bibliaonline.com.br/acf/dn/12/1)). (Concise Bible Dictionary)
-
-*****

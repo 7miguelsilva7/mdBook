@@ -1,3 +1,0 @@
-# O Testemunho da Assembleia {#o-testemunho-da-assembleia}
-
-Os coríntios eram a representação local de Cristo naquela comunidade. Na segunda epístola de Paulo aos Coríntios ele escreveu: “Porque já é manifesto que vós sois a carta de Cristo” ([2 Co 3:3](http://bibliaonline.com.br/acf/2co/3/3)). Repare que ele não diz “as cartas” de Cristo, como geralmente alguns fazem ao mencionar a passagem, mas “a carta (singular) de Cristo”. Apesar de seu testemunho coletivo ser formado de muitos indivíduos, e de existirem muitas reuniões naquela grande cidade, o grande objetivo daquilo tudo era demonstrar uma unidade singular e unificada perante o mundo.

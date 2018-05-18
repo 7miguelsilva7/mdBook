@@ -1,4 +1,0 @@
-# Summary
-
-* [CRISTO-NOSSO-REDENTOR-EDWARD-DENNETT-EDWARD-DENNETT](README.md)
-* [CRISTO NOSSO REDENTOR](cristo_nosso_redentor.md)

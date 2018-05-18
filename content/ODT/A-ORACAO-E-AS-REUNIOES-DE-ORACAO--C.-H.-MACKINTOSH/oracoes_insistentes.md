@@ -1,7 +1,0 @@
-## Orações Insistentes {#ora-es-insistentes}
-
-Outra condição moral importante da oração em [Lucas 11](http://bibliaonline.com.br/acf/lc/11) é a importunação ou insistência. O homem atinge seu objetivo por sua grande insistência. Não se deu por vencido: tinha que levar os três pães. A insistência prevaleceu ainda mais, onde os direitos da amizade não eram suficientes. O homem estava decidido a alcançar seu propósito. Tinha uma grande necessidade e não ia aceitar uma resposta negativa.
-
-Como devemos entender esta grande lição? É que Deus sempre nos responderá de &quot;dentro&quot;. Nunca nos dirá, “Não me moleste”, ou “Não posso levantar-me para fazê-lo”. Sempre é nosso amigo verdadeiro e sempre está pronto; é um Dador alegre e abundante. Contudo, todavia Ele nos anima a insistir. No entanto, em nossas reuniões de oração há uma grande falta disto, assim como de especificar o que queremos.
-
-os dois vão juntos. Quando o que se busca é tão definido como &quot;três pães&quot;, em geral haverá insistência ao pedir, teremos o firme propósito de conseguí-lo. Porém, freqüentemente, não nos portamos como pessoas que pedem o que querem e depois esperam pelo que pediram. Por isso nossas reuniões se tornam apáticos, sem propósito, sem poder. E somente são reuniões para falar.

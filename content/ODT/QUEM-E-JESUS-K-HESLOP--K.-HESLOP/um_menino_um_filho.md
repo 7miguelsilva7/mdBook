@@ -1,9 +1,0 @@
-# UM MENINO... UM FILHO {#um-menino-um-filho}
-
-Em [Isaías 9:6](http://bibliaonline.com.br/acf/is/9/6) lemos estas maravilhosas palavras proféticas: &quot;Porque um menino nos nasceu, um Filho se nos deu, e o principado está sobre os Seus ombros, e se chamará o Seu nome: Maravilhoso, Conselheiro, Deus Forte, Pai da Eternidade, Príncipe da Paz.&quot; Neste versículo são mencionadas tanto Sua humanidade como Sua divindade; &quot;Porque um menino nos nasceu&quot;, mostra Sua humanidade; &quot;um Filho se nos deu&quot; mostra Sua divindade. Voltando [ao sétimo capítulo, versículo 14, Isaías](http://bibliaonline.com.br/acf/is/7/14) escreveu: &quot;Eis que a virgem conceberá, e dará à luz um filho, e chamará o Seu nome Emanuel&quot; (que significa Deus conosco).
-
-Indo ao Novo Testamento podemos continuar com a história de Sua vinda no evangelho de [Lucas, capítulo 1\. No versículo 31](http://bibliaonline.com.br/acf/lc/1/31) o anjo diz a Maria: &quot;E eis que em teu ventre conceberás e darás à luz um filho, e pôr-Ihe-ás o nome de Jesus&quot;. Maria concebeu e deu à luz um filho, o que fez dEle um Homem completo. &quot;E, respondendo o anjo, disselhe: Descerá sobre ti o Espírito Santo, e a virtude do Altíssimo to cobrirá com a Sua sombra; por isso também o Santo, que de ti há de nascer, será chamado Filho de Deus&quot; ([Lucas 1:35](http://bibliaonline.com.br/acf/lc/1/35)).
-
-É importante reconhecer que embora Jesus tenha Se tornado um Homem, Ele é sempre Deus. Deus é eterno, não tendo nem começo e nem fim. Jesus confirmou isto quando respondeu à jactância dos judeus que se declaravam filhos de Abraão.
-
-Quando ele afirmou, &quot;Antes que Abraão existisse, Eu sou&quot; ([João 8:58](http://bibliaonline.com.br/acf/jo/8/58)), eles tentaram apedrejá-Lo pois reconheceram em Sua afirmação uma confirmação de Sua eterna divindade.

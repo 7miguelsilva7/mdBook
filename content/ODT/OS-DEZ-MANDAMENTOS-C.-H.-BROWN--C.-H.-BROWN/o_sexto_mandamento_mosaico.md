@@ -1,3 +1,0 @@
-# O Sexto Mandamento Mosaico {#o-sexto-mandamento-mosaico}
-
-&quot;Não matarás&quot; ([Êxodo 20:13](http://bibliaonline.com.br/acf/ex/20/13)). Lemos agora em [1 Pedro 4:15](http://bibliaonline.com.br/acf/1pe/4/15): &quot;Que nenhum de vós padeça como homicida&quot;. A norma divina quanto a tirar a vida de outro ser humano não é menos estrita sob a revelação cristã do que o foi sob o judaísmo. Não se pode tolerar o homicídio na dispensação cristã.

@@ -1,5 +1,0 @@
-### Separar-se não significa isolar-se {#separar-se-n-o-significa-isolar-se}
-
-Devemos nos lembrar de que, quando a Palavra de Deus fala de _separação_, ela não está se referindo ao _isolamento_. Nenhum dos escritores do Novo Testamento, que trataram da ruína e da confusão que viria sobre o testemunho cristão, diz que devemos nos isolar. O isolamento não é a solução para o problema. Na verdade, eles nos instruem a fazer exatamente o contrário.
-
-A mesma passagem das Escrituras que diz para nos purificarmos da confusão existente na grande casa, separando-nos disso tudo, também diz: **&quot;Segue a justiça, a fé, o amor, e a paz** **_com os que_****, com um coração puro, invocam o Senhor&quot;** ([2 Tm 2:22](http://bibliaonline.com.br/acf/2tm/2/22)). Isso mostra que devemos buscar comunhão com aqueles que estão procurando manter os princípios da Palavra de Deus.

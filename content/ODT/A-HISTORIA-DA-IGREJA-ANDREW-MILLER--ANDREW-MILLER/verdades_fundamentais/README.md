@@ -1,1 +1,0 @@
-# Verdades Fundamentais {#verdades-fundamentais}

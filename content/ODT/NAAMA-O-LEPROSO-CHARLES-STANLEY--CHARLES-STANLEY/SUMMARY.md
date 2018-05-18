@@ -1,4 +1,0 @@
-# Summary
-
-* [NAAMA-O-LEPROSO-CHARLES-STANLEY-CHARLES-STANLEY](README.md)
-* [NAAMÃ, O LEPROSO](naama,_o_leproso.md)

@@ -1,1 +1,0 @@
-# De Pentecostes ao Martírio de Estêvão {#de-pentecostes-ao-mart-rio-de-est-v-o}

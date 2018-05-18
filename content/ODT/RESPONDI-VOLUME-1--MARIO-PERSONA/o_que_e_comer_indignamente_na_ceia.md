@@ -1,9 +1,0 @@
-# O que é &quot;comer indignamente&quot; na ceia? {#o-que-comer-indignamente-na-ceia}
-
-Como saberemos que o nosso comer e o beber é indigno? ([1 Co 11](http://bibliaonline.com.br/acf/1co/11)). Os Coríntios estavam celebrando a ceia apenas como uma refeição qualquer ([v.20](http://bibliaonline.com.br/acf/1co/11/20)), fazendo dela uma ocasião para comer e beber ([v.21,22](http://bibliaonline.com.br/acf/1co/11/21-22)). O apóstolo tem que trazer à memória deles a origem da ordenança e a solene ocasião em que foi instituída (&quot;na noite em que foi traído&quot;) para mostrar que não era algo banal. Ele ainda mostra que a celebração é em memória de Cristo morto, do corpo e do sangue do Senhor ([v.25,26](http://bibliaonline.com.br/acf/1co/11/25,26)).
-
-Ora, qualquer pessoa que não tenha estas coisas em mente ao participar da ceia, estará comendo e bebendo indignamente. Estará, como os Coríntios, considerando aquela apenas uma simples refeição, razão pela qual estavam recebendo juízo sobre eles mesmos ([v.30](http://bibliaonline.com.br/acf/1co/11/30)). Comer indignamente, não discernindo o corpo do Senhor, é, portanto, fazer da ceia algo banal e corriqueiro.
-
-Quanto a julgar-se a si mesmo na Ceia, ao nos julgarmos a nós mesmos, reconhecemos que somos, por nossos méritos, indignos de estar ali participando dos símbolos do corpo e do sangue de Cristo. Mas, ao mesmo tempo, entendemos que Deus nos tornou dignos pela obra de Cristo e, portanto, estamos ali por favor. O juízo próprio sempre nos leva a nos considerarmos nada e Deus tudo. O julgamento próprio na Ceia não é para deixar de comer, mas para comer. &quot;E assim (julgado), coma.&quot;
-
-*****

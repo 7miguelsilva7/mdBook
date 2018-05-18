@@ -1,7 +1,0 @@
-# JESUS-NAO-PODERIA-PECAR-WILLIAM-MACDONALD-WILLIAM-MACDONALD {#jesus-nao-poderia-pecar-william-macdonald-william-macdonald}
-
-JESUS NÃO PODERIA PECAR
-
-WILLIAM MACDONALD
-
-2017-07-21T17:00:00+09:00

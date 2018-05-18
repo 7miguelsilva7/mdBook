@@ -1,3 +1,0 @@
-# Sara {#sara}
-
-Depois de Eva, a primeira mulher na Bíblia a receber mais do que apenas uma observação passageira foi Sara. Evidentemente ela era uma mulher de personalidade vigorosa. Ela não era um mero objeto, sem capacidade de raciocínio ou vontade própria. Pelo contrário, podemos deduzir que ela foi uma mulher hábil e decidida. Mas ela permanece como o exemplo das &quot;santas mulheres que esperavam em Deus, e estavam sujeitas aos seus próprios maridos&quot;, pois lemos “como Sara obedecia a Abraão, chamando-lhe senhor; da qual vós sois filhas, fazendo o bem” ([1 Pd 3.5,6](http://bibliaonline.com.br/acf/1pe/3/5-6)). Isto demonstra claramente a posição da mulher em relação ao homem, e a prática seguida pelas piedosas mulheres da antigüidade.

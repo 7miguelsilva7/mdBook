@@ -1,3 +1,0 @@
-# Faça com que seus filhos leiam a Bíblia reverentemente; em verdade ela é a Palavra de Deus. E faça com que a leiam regularmente. {#fa-a-com-que-seus-filhos-leiam-a-b-blia-reverentemente-em-verdade-ela-a-palavra-de-deus-e-fa-a-com-que-a-leiam-regularmente}
-
-Fale a eles do pecado, de sua culpa, das consequências, do seu poder, de sua vileza — você verá que são capazes de compreender algo a esse respeito. Fale a eles do Senhor Jesus Cristo, do Seu amor, da Sua obra para nossa salvação — Sua cruz, Seu sangue derramado, Sua ressurreição, ascensão e breve retorno. Em tudo você descobrirá algo que não estará além da compreensão deles.

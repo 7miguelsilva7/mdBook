@@ -1,5 +1,0 @@
-# O Caminho de Deus é o Único Caminho {#o-caminho-de-deus-o-nico-caminho}
-
-&quot;Vinde então, e arguí-Me, diz o Senhor: ainda que os vossos pecados sejam como a escarlata, eles se tornarão brancos como a neve; ainda que sejam vermelhos como o carmesim, se tornarão como a branca lã&quot; ([Isaías 1:18](http://bibliaonline.com.br/acf/is/1/18)).
-
-Este maravilhoso versículo, que descreve nossa experiência de salvação já no Antigo Testamento, revela claramente que quando Deus nos convida a sentarmos e debatermos as coisas com Ele, é só Ele Quem fala e só Ele Quem tem todas as respostas. Na verdade, nós, de nossa parte, nada temos a dizer. Se nos aproximamos de Deus cheios de justiça própria, jamais seremos salvos. A obra da salvação está baseada na satisfação de Deus para com a obra de Cristo sobre a cruz, e é só pela graça e amor de Deus que a oferta de salvação nos foi estendida. Nem a argumentação humana e nem os feitos humanos têm qualquer parte no assunto.

@@ -1,3 +1,0 @@
-# As assim chamadas “línguas” não necessariamente são idiomas {#as-assim-chamadas-l-nguas-n-o-necessariamente-s-o-idiomas}
-
-As línguas de hoje em dia não são idiomas, senão uma algazarra ininteligível, segundo dizem os experts em linguística que estudaram o fenômeno. Houve casos nos quais pessoas sob a influência de espíritos maus falaram em idiomas reais e a linguagem era suja ou blasfema, ou as duas coisas. Os missionários pentecostais que vão a países estrangeiros se veem obrigados a aprender o idioma do país (novo para eles), o mesmo que qualquer outra pessoa que não o conheça.

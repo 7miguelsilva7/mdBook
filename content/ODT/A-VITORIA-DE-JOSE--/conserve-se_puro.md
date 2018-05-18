@@ -1,5 +1,0 @@
-# Conserve-se Puro {#conserve-se-puro}
-
-Nosso desejo deve ser o de servir e honrar Àquele que morreu por nós. Ele nos deu o Espírito Santo para habitar em nós ([1 Co 6:19](http://bibliaonline.com.br/acf/1co/6/19)). Sendo assim, como devemos agir? Em Romanos somos instruídos a apresentar os nossos corpos como sacrifício vivo a Deus ([Rm 12:1](http://bibliaonline.com.br/acf/rm/12/1)). Nossas vidas, o que dizemos, o que fazemos, e até mesmo o que pensamos, deve ser para a honra de Deus. Conservemo-nos puros assim como Ele é puro ([1Tm 5:22](http://bibliaonline.com.br/acf/1tm/5/22); [1 jo 3:3](http://bibliaonline.com.br/acf/1jo/3/3)). Nossa vida deve ser de tal forma a sermos santificados, úteis para o Senhor e prontos para toda boa obra ([2Tm 2:21](http://bibliaonline.com.br/acf/2tm/2/21)). Um vaso contaminado não serve para uso do Senhor. Conserve-se puro.
-
-Verdades Bíblicas

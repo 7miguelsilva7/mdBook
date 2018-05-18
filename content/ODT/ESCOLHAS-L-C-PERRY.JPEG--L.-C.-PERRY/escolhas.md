@@ -1,5 +1,0 @@
-# ESCOLHAS {#escolhas}
-
-De um certo modo, este é um título meio enganador, mas expressa o que a maioria das pessoas considera como sendo uma descrição de suas vidas. As pessoas têm a tendência de sentir que a vida é uma longa sucessão de escolhas difíceis. Certamente a vida está cheia de pontos de decisão, encruzilhadas, desvios do caminho. Todavia, o que as Escrituras nos ensinam, como seguidores de Cristo, é que não existe realmente qualquer escolha para nós em qualquer uma das encruzilhadas desta vida. O único caminho para o crente é seguir a Cristo aonde Ele guiar, sempre em obediência à Sua Palavra.
-
-Na verdade, com frequência deixamos que nossa vontade própria intervenha e tome o caminho que mais nos agrade, ou aquele que pareça ser o mais lógico ou mais popular, ou então o que dê menos trabalho. Nenhum desses raciocínios tem base nas Escrituras; são sempre provenientes de Satanás.

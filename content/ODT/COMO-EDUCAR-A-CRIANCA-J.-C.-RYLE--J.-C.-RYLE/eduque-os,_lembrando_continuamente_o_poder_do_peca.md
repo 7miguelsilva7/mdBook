@@ -1,9 +1,0 @@
-# Eduque-os, lembrando continuamente o poder do pecado. {#eduque-os-lembrando-continuamente-o-poder-do-pecado}
-
-Isto o guardará de acalentar esperanças que não são bíblicas. É triste constatar quanta corrupção e quanto mal existe no coração de uma pequena criança, e quão cedo isso começa a dar fruto.
-
-Temperamento violento, vontade-própria, orgulho, obstinação, ira, preguiça, egoísmo, engano, astúcia, falsidade, hipocrisia, uma terrível aptidão para aprender o que é mau, uma triste lentidão para aprender o que é bom, uma prontidão para fingir qualquer coisa a fim de atingir seus propósitos. Você não deve achar estranho ou inusitado que corações tão pequenos possam estar tão cheios de pecado. Trata-se da única herança que nosso pai Adão nos deixou: a natureza caída com a qual viemos a este mundo.
-
-Nunca dê ouvidos àqueles que dizem que seus filhos são bons e bem-criados, e que são de confiança. No fundo eles precisam apenas de uma pequenina faísca para acender sua corrupção. Normalmente os pais não são muito prontos a admitir isto. Lembre-se da natureza depravada de seus filhos e tome cuidado.
-
-“Lança o teu pão sobre as águas”, diz o Espírito, “porque depois de muitos dias o acharás” ([Ec 11:1](http://bibliaonline.com.br/acf/ec/11/1)). Não tenho dúvida de que muitas crianças se levantarão no dia do juízo e bendirão a seus pais pela boa educação que receberam, mesmo que nunca tenham dado mostra de haverem tirado algum proveito disso durante a vida de seus pais. Portanto, siga adiante por fé, e pode ter certeza de que seu trabalho não será totalmente em vão. Por três vezes Eliseu se estendeu sobre o corpo do filho da viúva antes que este revivesse. Siga o exemplo dele e persevere.

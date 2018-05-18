@@ -1,3 +1,0 @@
-# As três principais dispensações {#as-tr-s-principais-dispensa-es}
-
-Existem três principais dispensações no modo de Deus agir (cf. “Concise Bible Dictionary” — pag. 216-217). Alguns podem enxergar mais de três dispensações, mas todos os dispensacionalistas concordam que as três que iremos considerar são as principais, e são aquelas sobre as quais recai a controvérsia a respeito do ensino dispensacional. Portanto é de vital importância entender as diferentes maneiras de Deus agir em conexão com elas.

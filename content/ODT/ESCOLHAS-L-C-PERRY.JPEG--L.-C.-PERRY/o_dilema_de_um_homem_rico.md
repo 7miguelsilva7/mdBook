@@ -1,5 +1,0 @@
-# O Dilema de Um Homem Rico {#o-dilema-de-um-homem-rico}
-
-&quot;E perguntou-Lhe um certo príncipe, dizendo: Bom Mestre, que hei de fazer para herdar a vida eterna? Jesus lhe disse: Por que me chamas bom? Ninguém há bom, senão um, que é Deus. Sabes os mandamentos: Não adulterarás, não matarás, não furtarás, não dirás falso testemunho, honra a teu pai e a tua mãe. E disse ele: Todas essas coisas tenho observado desde a minha mocidade. E quando Jesus ouviu isto, disse-lhe: Ainda te falta uma coisa; vende tudo quanto tens, reparte-o pelos pobres, e terás um tesouro no céu; vem, e segue-me. Mas, ouvindo ele isto, ficou muito triste, porque era muito rico. ([Lucas 18:18-23](http://bibliaonline.com.br/acf/lc/18/18-23)).
-
-Ele estava diante de uma bifurcação no caminho; uma opção era obedecer a Jesus, abandonando todas as suas riquezas, e a outra era seguir o caminho da ganância e do orgulho de suas possessões. Somente um conduzia à vida eterna. Será que existe escolha aqui? Será que os prazeres temporários do pecado compensam uma eternidade no inferno? Nunca.

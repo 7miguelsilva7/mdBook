@@ -1,5 +1,0 @@
-# O que significa dispensação? {#o-que-significa-dispensa-o}
-
-Uma dispensação é a maneira como Deus trata com o homem durante um determinado período de tempo, quando o homem é provado e testado quanto à obediência a certas revelações definidas da vontade de Deus. Por exemplo, desde os dias de Moisés até Cristo o homem foi provado sob a Lei. O período atual é chamado de &quot;dispensação da graça de Deus&quot; ([Ef 3:2](http://bibliaonline.com.br/acf/ef/3/2)). No Milênio o homem será provado sob o reinado pessoal de Cristo, sem a presença de um tentador (Satanás). É a chamada “dispensação da plenitude dos tempos” ([Ef 1:10](http://bibliaonline.com.br/acf/ef/1/10)). Existem ao todo sete dispensações nas quais o homem tem sido provado: em inocência, em consciência (da expulsão do jardim do Éden ao dilúvio), em autoridade ou governo (do dilúvio a Abraão), sob a promessa (de Abraão a Lei), sob a Lei (da Lei a Cristo), sob a graça (de Cristo ao arrebatamento), sob o reinado pessoal de Cristo (da vinda de Cristo ao final do Milênio). (Traduzido de “Outline of Prophetic Events” — Bruce Anstey)
-
-*****

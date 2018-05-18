@@ -1,4 +1,0 @@
-# Summary
-
-* [CRISTO-NOSSO-PASTOR-EDWARD-DENNETT-EDWARD-DENNETT](README.md)
-* [CRISTO NOSSO PASTOR](cristo_nosso_pastor.md)

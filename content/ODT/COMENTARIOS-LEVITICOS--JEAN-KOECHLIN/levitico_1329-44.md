@@ -1,7 +1,0 @@
-# Levítico 13:29-44 {#lev-tico-13-29-44}
-
-([13:29-44](http://bibliaonline.com.br/acf/lv/13/29-44))
-
-Em determinados pontos, certas doenças da pele, podem induzir ao erro. O doente era então encerrado por sete dias e depois examinado para comprovar se uma ferida de lepra estava presente ou não. Nunca julguemos precipitadamente! Vamos ter o cuidado de pensar bem dos outros antes de atribuir maus motivos para eles desde o início. O amor “não suspeita mal&quot; ([1 Co 13:5](http://bibliaonline.com.br/acf/1co/13/5)). Observe que o doente não deu a sua opinião. Era o sacerdote que via e, em seguida, declarava a natureza da ferida. Pouco importa o que o homem pensava de si mesmo. Ele não podia sentir nada e até mesmo acreditar que estava saudável, mas o tempo todo estava gravemente doente.
-
-Quantas pessoas não sabem que são vítimas da doença do pecado. Nunca consideraram a sua condição à luz da Palavra de Deus; nunca se apresentaram ao Sacerdote. É Ele quem estabelece a culpa do homem e o declara irremediavelmente perdido. &quot;Afastai-vos, pois, do homem... porque em que se deve ele estimar?&quot; ([Is 2:22](http://bibliaonline.com.br/acf/is/2/22)). Mas o Sacerdote que anuncia nossa condição é também Aquele que se ocupa dela em graça, como o Grande Médico que deu uma cura completa para nossas almas ([Lc 5:31](http://bibliaonline.com.br/acf/lc/5/31)).

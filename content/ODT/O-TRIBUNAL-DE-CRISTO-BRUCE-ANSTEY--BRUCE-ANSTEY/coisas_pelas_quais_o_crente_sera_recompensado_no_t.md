@@ -1,9 +1,0 @@
-# Coisas Pelas Quais O Crente Será Recompensado No Tribunal de Cristo {#coisas-pelas-quais-o-crente-ser-recompensado-no-tribunal-de-cristo}
-
-Por resistir à tentação ([Tiago 1:12](http://bibliaonline.com.br/acf/tg/1/12)).
-
-Por cuidar, pastorear e ensinar novos convertidos ([2 João 8](http://bibliaonline.com.br/acf/2jo/8)-&quot;inteiro galardão&quot;). Não podemos deixar nossos novos convertidos ao seu próprio caminho sem correr o risco de perder parte de nossa recompensa (galardão).
-
-Por dar suporte ao testemunho do Senhor financeiramente ([1 Timóteo 6:17-19](http://bibliaonline.com.br/acf/1tm/6/17-19); [2 Coríntios 9:6-11](http://bibliaonline.com.br/acf/2co/9/6-11)). Se não podemos estar envolvidos diretamente na obra do Senhor, nós podemos pelo menos colocar nosso dinheiro &quot;no banco&quot; e então receberemos &quot;juros&quot; em forma de recompensa na vinda do Senhor ([Lucas 19:23](http://bibliaonline.com.br/acf/lc/19/23)). A palavra para &quot;banco&quot; no idioma original pode também ser traduzida como &quot;comunhão.&quot; Portanto, se colocarmos nossos recursos em comunhão com a obra do Senhor, isso será lembrado com uma recompensa.
-
-Eu acho que podemos ver por meio destas coisas que haverá mais recompensas por obedecer a Palavra do Senhor do que por fazer grandes coisas por Ele. Eu acho que também podemos ver que Ele coloca um prêmio em ter uma atitude correta em como nós fazemos as coisas. Paulo disse, &quot;Vamos nos ocupar em serviço&quot; ([Romanos 12:7](http://bibliaonline.com.br/acf/rm/12/7) – versão J. N. Darby). Isto é bom, mas vamos nos certificar de que nós tenhamos um espírito correto em tudo o que fazemos, porque isso é muito importante para o Senhor ([Mateus 9:13](http://bibliaonline.com.br/acf/mt/9/13)).

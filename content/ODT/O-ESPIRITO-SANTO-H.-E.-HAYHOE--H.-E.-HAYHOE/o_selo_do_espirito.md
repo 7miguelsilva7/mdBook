@@ -1,3 +1,0 @@
-# O SELO DO ESPÍRITO {#o-selo-do-esp-rito}
-
-O selo do Espírito serve para marcar aqueles que crêem, como pertencentes a Cristo. ([2 Coríntios 1:22](http://bibliaonline.com.br/acf/2co/1/22).) Sendo assim, é dito em [Romanos 8:9](http://bibliaonline.com.br/acf/rm/8/9) que &quot;se alguém não tem o Espírito de Cristo, esse tal não é dele&quot;, pois um homem não estará ainda totalmente reconhecido como pertencente a Cristo até que seja selado pelo Espírito, mesmo que uma obra de Deus pelo Espírito possa ter começado em sua alma. ([Filipenses 1:6](http://bibliaonline.com.br/acf/fp/1/6).) Todo crente, uma vez selado, é selado até o dia da redenção. ([Efésios 4:30](http://bibliaonline.com.br/acf/ef/4/30).)

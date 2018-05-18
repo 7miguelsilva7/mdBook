@@ -1,3 +1,0 @@
-# A Estratégia {#a-estrat-gia}
-
-José fez três coisas distintas para ganhar a batalha contra a tentação de pecar. Primeiro, ele confessou que era responsável a Potifar por seus atos. Se José tivesse pecado, teria desonrado Potifar. Em segundo lugar, José reconheceu que ceder à tentação seria um grande mal e pecado contra Deus. Os princípios de Deus acerca de justiça eram de grande importância para José, e ele não iria querer pecar contra Deus. Finalmente, José fugiu da tentação. Não tentou enfrentá-la, nem lutar contra ela ou vencê-la. Ele fugiu da tentação, e ao fazer isto admitiu que não tinha poder em si mesmo para resistir, e que confiava em Deus para defendê-lo.

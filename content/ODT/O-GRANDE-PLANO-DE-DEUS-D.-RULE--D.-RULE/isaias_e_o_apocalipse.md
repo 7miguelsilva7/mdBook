@@ -1,3 +1,0 @@
-# Isaías e o Apocalipse {#isa-as-e-o-apocalipse}
-
-O mais abrangente livro da profecia é Isaías. O Apocalipse, por outro lado, é mais específico como um livro profético. Ele completa a palavra profética por tratar de assuntos que não podiam ser conhecidos antes que Cristo viesse e a Igreja fosse formada. Os profetas do Antigo Testamento nos apresentam a profecia vista da Terra, enquanto João, no Apocalipse, é levado em espírito ao céu para que possa ver a profecia do ponto de vista do céu.

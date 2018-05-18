@@ -1,7 +1,0 @@
-# Eduque seus filhos diligentemente, lembrando-se da importância de uma educação correta. {#eduque-seus-filhos-diligentemente-lembrando-se-da-import-ncia-de-uma-educa-o-correta}
-
-Os hábitos criados na tenra idade são, se podemos falar assim, os mais importantes para Deus. Somos o que somos pela educação que tivemos. Nosso caráter toma a forma do molde em que nossos primeiros anos foram colocados, sem esquecer, evidentemente, o que a graça de Deus pode fazer por aquele que se volta a Ele.
-
-Deus dá aos nossos filhos uma disposição para confiarem em nossa palavra e não na de um estranho, e suas mentes receberão marcas e impressões como acontece com a argila úmida. Em poucas palavras, Deus nos dá uma oportunidade de ouro para lhes fazermos bem. Fique atento para não negligenciar essa oportunidade, desperdiçando-a.
-
-Eu sei que você não pode converter seu filho. Sei muito bem que aqueles que são nascidos de novo são nascidos, não da vontade do homem, mas de Deus. Mas também estou ciente de que Deus diz expressamente, “criai-os na doutrina e admoestação do Senhor” ([Ef 6:4](http://bibliaonline.com.br/acf/ef/6/4)), e Ele nunca deu ao homem uma ordem sem prover também a graça para que fosse capaz de cumpri-la. O caminho de obediência é o caminho de bênção. Temos tão somente que fazer como fizeram os servos na festa de casamento em Caná, ou seja, encher os vasos com água; e podemos seguramente deixar que o Senhor transforme a água em vinho.

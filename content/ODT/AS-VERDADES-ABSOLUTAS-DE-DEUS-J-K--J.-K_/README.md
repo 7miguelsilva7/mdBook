@@ -1,7 +1,0 @@
-# AS-VERDADES-ABSOLUTAS-DE-DEUS-J-K-J.-K_ {#as-verdades-absolutas-de-deus-j-k-j-k}
-
-AS VERDADES ABSOLUTAS DE DEUS
-
-J. K.
-
-2017-07-21T17:00:00+09:00

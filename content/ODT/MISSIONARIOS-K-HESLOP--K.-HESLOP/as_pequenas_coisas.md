@@ -1,5 +1,0 @@
-# AS PEQUENAS COISAS {#as-pequenas-coisas}
-
-Talvez eu nunca seja enviado para terras distantes, e talvez nunca seja chamado a servir em alguma grande obra. Ainda assim existirão pequenas missões nas quais eu poderei ser enviado. Talvez a missão que me seja dada “ o que tendes, retende-o até que eu venha” ( [Apocalipse 2:25](http://bibliaonline.com.br/acf/ap/2/25)). O Senhor logo vem; vamos conservar o que temos. Talvez eu possa ser enviado para “ levantar as mãos cansadas, e os joelhos desconjuntados” ( [Hebreus 12:12](http://bibliaonline.com.br/acf/hb/12/12)). Minha missão pode ser de encorajar outros que foram enviados a pregar o evangelho. Onde quer que seja; para o que quer que seja; eu sou enviado! Que a oração do meu coração possa ser: “ Senhor, que queres que eu faça?” ( [Atos 9:6](http://bibliaonline.com.br/acf/atos/9/6))
-
-K. Heslop

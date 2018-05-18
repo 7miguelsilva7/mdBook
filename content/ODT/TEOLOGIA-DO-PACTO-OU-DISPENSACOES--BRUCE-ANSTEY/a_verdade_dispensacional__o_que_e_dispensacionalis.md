@@ -1,5 +1,0 @@
-# A Verdade Dispensacional — O que é Dispensacionalismo? {#a-verdade-dispensacional-o-que-dispensacionalismo}
-
-A palavra “dispensação” (“oikonomia” em grego) significa “administração de uma casa”, “gestão de uma família” ou “regras da casa”. No sentido em que é usada nas Escrituras trata-se do modo de Deus tratar com os homens na administração de Seus desígnios em Sua casa. Portanto, a palavra dispensação significa uma maneira específica que Deus utiliza para ordenar ou governar Sua casa na qual o Seu povo se relaciona com Ele. Esta definição pode variar às vezes por diversas razões. Por exemplo, no Antigo Testamento, quando Israel estava sob a Lei, Deus ordenou Sua casa de uma maneira diferente da que ele hoje ordena a Sua casa no Dia da Graça. Portanto, tem ocorrido uma mudança de dispensações — uma mudança na gestão da casa de Deus.
-
-O ensino bíblico que observa e reconhece uma diferença entre Israel, Igreja e os santos do reino milenial — cada um com sua vocação, bênçãos e destinos específicos — é o que chamamos de Dispensacionalismo.

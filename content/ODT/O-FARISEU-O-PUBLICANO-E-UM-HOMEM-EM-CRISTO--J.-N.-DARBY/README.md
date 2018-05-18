@@ -1,7 +1,0 @@
-# O-FARISEU-O-PUBLICANO-E-UM-HOMEM-EM-CRISTO-J.-N.-DARBY {#o-fariseu-o-publicano-e-um-homem-em-cristo-j-n-darby}
-
-O FARISEU, O PUBLICANO E UM HOMEM EM CRISTO
-
-J. N. DARBY
-
-2017-07-21T17:00:00+09:00

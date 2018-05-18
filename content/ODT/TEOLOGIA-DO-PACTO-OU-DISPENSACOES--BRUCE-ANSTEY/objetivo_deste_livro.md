@@ -1,5 +1,0 @@
-# Objetivo deste livro {#objetivo-deste-livro}
-
-Nosso objetivo neste livro, portanto, é estabelecer os princípios básicos da verdade dispensacional, a fim de que o crente possa ficar bem fundamentado nesta importante linha de verdade e, assim, ter um melhor entendimento do propósito final de Deus, que é o de glorificar a Cristo no futuro (o Milênio) em duas esferas — nos céus e na terra — por meio da Igreja e de Israel restaurado, juntamente com as nações gentias.
-
-Na última parte do livro examinaremos os dogmas básicos da Teologia Reformada do Pacto e explicaremos por que esta doutrina é um erro. Iremos também apontar o impacto negativo que ela tem na vida e serviço cristãos. Nossa oração a Deus é que o leitor possa ser adequadamente informado a respeito deste sistema de ensino errôneo e seja convencido a afastar-se dele.

@@ -1,3 +1,0 @@
-# DE QUEM É A OBRA? {#de-quem-a-obra}
-
-“ Eu plantei; Apolo regou; mas Deus deu o crescimento. Pelo que, nem o que planta é alguma coisa, nem o que rega, mas Deus, que dá o crescimento” ( [1 Coríntios 3:6,7](http://bibliaonline.com.br/acf/1co/3/6,7)). A obra que eu devo fazer, a missão que devo cumprir, não é minha pois sou apenas um servo. Deus escolhe o obreiro, Deus dá a graça necessária para executar a obra, e Deus dá o crescimento. Portanto onde quer que eu plante ou regue, a obra é do Senhor. Talvez eu não veja fruto deste trabalho, mas isto pertence ao Senhor, não a mim.

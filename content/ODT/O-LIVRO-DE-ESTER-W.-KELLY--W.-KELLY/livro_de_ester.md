@@ -1,1 +1,0 @@
-# LIVRO DE ESTER {#livro-de-ester}
