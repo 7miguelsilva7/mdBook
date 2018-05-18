@@ -18,6 +18,7 @@ cat -n pastas.txt > pastasIndice.txt
 cat -n arquivos.txt > arquivosIndice.txt
 join arquivosIndice.txt pastasIndice.txt > juntos.txt
 
+#sed -i 's/*. //g' juntos.txt
 
 #Move cada arquivos para sua pasta
 
