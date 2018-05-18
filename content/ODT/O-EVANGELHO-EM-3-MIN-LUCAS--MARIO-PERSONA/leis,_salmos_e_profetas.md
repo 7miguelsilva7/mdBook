@@ -1,0 +1,15 @@
+# **Leis, Salmos e Profetas** {#leis-salmos-e-profetas}
+
+1 Reis a Salmos
+
+Deve ter sido maravilhoso para os dois discípulos a caminho de Emaús ouvirem Jesus falar do Antigo Testamento. &quot;E começando por Moisés e todos os profetas, explicou-lhes o que constava a respeito dele em todas as Escrituras&quot;. Mais tarde ele diria aos discípulos: “‘Foi isso que eu lhes falei enquanto ainda estava com vocês: Era necessário que se cumprisse tudo o que a meu respeito estava escrito na Lei de Moisés, nos Profetas e nos sl’. Então lhes abriu o entendimento, para que pudessem compreender as Escrituras” ([Lucas 24:27](http://bibliaonline.com.br/acf/lc/24/27); 44-45).
+
+Embora ele tenha citado apenas a Lei, os Profetas e os sl, é possível vê-lo também nos livros de Reis e 2cr, porém com uma nitidez cada vez menor à medida que Deus esgotava as tentativas de despertar fidelidade em seu povo. Guardadas as devidas proporções, algumas figuras de Cristo são os reis Asa, Josafá, Ezequias e Josias. Então vem o cativeiro e chegamos ao livro de et, o único que não menciona o nome de Deus, e nele conhecemos Mordecai, um tipo do verdadeiro Libertador dos judeus. Em Esdras e Neemias vemos figuras de Jesus como o Restaurador do povo e da adoração ao Deus verdadeiro.
+
+A chave para entendermos o livro de Jó continua sendo Cristo, porém ali demonstrado como aquele que é o único cuja justiça pode prevalecer aos olhos de Deus. Era esta a lição que jó, orgulhoso de sua justiça própria, precisava aprender. Para isto Deus usou Eliú, uma figura de Cristo, nosso Grande Sumo Sacerdote. Ao mesmo tempo em que intercedia por jó, “Eliú... indignou-se muito contra jó, porque este se justificava a si mesmo diante de Deus” ([Jó 32:2](http://bibliaonline.com.br/acf/jó/32/2)).
+
+O livro de Salmos é como um diário pessoal de Jesus, no qual ele anotou os seus sentimentos em sua identificação com o seu povo. No Salmo 16 encontramos “Jesus, autor e consumador da nossa fé” ([Hb 12:2](http://bibliaonline.com.br/acf/hb/12/2)) e em muitos outros ele pode ser visto sofrendo o abandono que sofrerá o remanescente judeu fiel — os “pequeninos irmãos” de Mateus 25 — na “grande tribulação”. O Salmo 22 mostra sua senda de sofrimento, desamparado por Deus e massacrado pelos homens. No Salmo 40 ele aparece cumprindo a vontade de Deus pelo sacrifício de si mesmo, e mais detalhes surgem no Salmo 69\. O Salmo 102 revela seus sentimentos de pequenez, “como o pardal solitário no telhado” ([Sl 102](http://bibliaonline.com.br/acf/sl/10/2):7).
+
+Porém nos Salmos 8 e 91 nós o vemos como o Segundo Homem, em seu domínio sobre todas as coisas, e no Salmo 18 o Rei aparece triunfante, e no Salmo 24 o Rei da glória toma posse daquilo que é seu por direito. No Salmo 45 ele é o Conquistador, cuja espada não poupa os ímpios em sua vingança a favor do sofrido remanescente fiel, que é amparado na jornada rumo ao reino milenial. Este tem suas glórias descritas no Salmo 100\. Falta tempo para mostrar Jesus em todos os sl, portanto leia todos eles, começando com o Salmo 1, que mostra a perfeição da sua Pessoa, verdadeiro Deus e genuíno Homem.
+
+tic-tac-tic-tac...

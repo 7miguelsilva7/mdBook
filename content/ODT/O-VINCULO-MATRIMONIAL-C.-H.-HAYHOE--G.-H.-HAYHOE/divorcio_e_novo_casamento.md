@@ -1,0 +1,9 @@
+# DIVÓRCIO E NOVO CASAMENTO {#div-rcio-e-novo-casamento}
+
+Sem dúvida alguma as passagens seguintes aplicam-se tanto ao homem como à mulher; tanto a ele quanto a ela. Isto é confirmado por [Marcos 10:2-12](http://bibliaonline.com.br/acf/mc/10/2-12).
+
+[Mateus 5:31-32](http://bibliaonline.com.br/acf/mt/5/31-32):
+
+Sob a lei, ao homem era permitido dar à sua esposa uma &quot;carta de divórcio&quot; se ele assim o desejasse, e, deste modo, repudiá-la. O Senhor Jesus disse nesta passagem das Escrituras que, se agora um homem repudia sua esposa por qualquer outra razão que não seja de fornicação, ele &quot;faz que ela cometa adultério&quot;. Isto é, ele é moralmente responsável perante Deus se, após a ter repudiado (exceto por causa de fornicação), ela cometer adultério. No original grego, em que foi escrito o Novo Testamento, a palavra traduzida como &quot;repudiar&quot; é a mesma palavra grega usada para divórcio.
+
+Isto é muito solene, e nos mostra que não se trata de como um homem repudia sua esposa (uma vez que &quot;repudiar&quot; e &quot;divorciar&quot; são uma mesma palavra grega), se ele a repudiar por qualquer outra razão que não seja por fornicação, será ele a causa se ela viver posteriormente cair em pecado. Neste caso ela é responsável por cometer adultério, mas o Senhor Jesus disse que ele também é culpado por ser o causador. Isto nos faz compreender a seriedade de uma separação legal permanente que, se conseguida como uma forma moderada de repúdio, poderia tornar alguém moralmente responsável diante de Deus pelo pecado de adultério (Leia [1 Coríntios 7:5](http://bibliaonline.com.br/acf/1co/7/5)). O Senhor Jesus disse também que se alguém viesse a se casar com a mulher culpada, ele cometeria adultério por tal casamento.

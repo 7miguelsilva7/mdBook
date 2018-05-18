@@ -1,0 +1,5 @@
+# Eduque-os para que falem sempre a verdade, toda a verdade e nada além da verdade. {#eduque-os-para-que-falem-sempre-a-verdade-toda-a-verdade-e-nada-al-m-da-verdade}
+
+Deus é apresentado como um Deus de verdade. Menos do que a verdade é uma mentira; aquela fuga, aquela desculpa, ou aquele exagero são meio-caminho para a falsidade, e devem ser evitados. Encoraje-os a serem francos em toda e qualquer circunstância, e a falarem a verdade custe o que custar.
+
+Eu insisto nisto para que também possamos ficar mais tranquilos e sermos auxiliados em tudo o que tivermos que tratar com eles. Descobriremos ser isto uma poderosa ajuda, pois poderemos sempre confiar no que disserem. Isto tem um efeito ainda mais amplo, pois ajuda a prevenir aquele hábito que infelizmente prevalece entre as crianças, de fazer as coisas às escondidas.

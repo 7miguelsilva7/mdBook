@@ -1,0 +1,7 @@
+# MEFIBOSETE - A BONDADE DE DEUS {#mefibosete-a-bondade-de-deus}
+
+Certa manhã bem cedo, há muitos anos, estava lendo o [capítulo 9 de 2 Samuel](http://bibliaonline.com.br/acf/2sm/9). Depois de lê-lo uma vez, pensei, &quot;Que capítulo estranho, acerca de um jovem aleijado de ambos os pés&quot;. Li-o novamente, e ainda não podia ver nada nele.
+
+Depois de lê-lo pela terceira vez, meus olhos pararam nestas palavras: &quot;Decerto usarei contigo de beneficência por amor de Jônatas, teu pai&quot; ([2 Samuel 9:7](http://bibliaonline.com.br/acf/2sm/9/7)). Um pensamento brilhou de repente em minha mente: &quot;Ah! esta é uma figura da bondade de Deus, por meio de Jesus Cristo&quot;. Que figura estava então perante mim - como uma bela paisagem ao romper da manhã. À medida que os anos passaram, a beleza dessa imagem tem aumentado cada vez mais em minha mente. Por muitas vezes fui guiado a pregar a Cristo a partir desta figura, e raramente sem que almas fossem convertidas a Deus. Isto me encoraja a discorrer, em fé, sobre esta interessante porção da Palavra de Deus juntamente com meus leitores, confiando que Deus irá usá-la para bênção de muitas almas.
+
+Nesta figura da bondade de Deus, há dois personagens - Mefibosete, no caráter de filho da graça; e Ziba, como o homem de justiça-própria. A condição de Mefibosete ilustra de forma notável o estado em que se encontra o pecador quando é colocado diante de Deus.

@@ -1,0 +1,17 @@
+# O mandamento do Sábado foi dado no Éden? {#o-mandamento-do-s-bado-foi-dado-no-den}
+
+Existem vários equívocos no texto que você me enviou. Primeiro, Deus não instituiu o mandamento do sábado no Éden, mas apenas disse que Deus descansou no sétimo dia da Criação. [Gênesis 2:2-3](http://bibliaonline.com.br/acf/gn/2/2-3) diz: “E, havendo Deus terminado no dia sétimo a sua obra, que fizera, descansou nesse dia de toda a sua obra que tinha feito. E abençoou Deus o dia sétimo e o santificou; porque nele descansou de toda a obra que, como Criador, fizera”.
+
+De lá para cá Deus Pai nunca mais descansou, e nem o Senhor Jesus. Muito menos o Espírito Santo, que hoje está no mundo convencendo o mundo do pecado, da justiça e do juízo. Não me parece razoável que o Espírito Santo deixe de fazer isso aos sábados.
+
+Em [Jo 5:16-18](http://bibliaonline.com.br/acf/jo/5/16-18) diz: “E os judeus perseguiam Jesus, porque fazia estas coisas no sábado. Mas ele lhes disse: meu Pai trabalha até agora, e eu trabalho também. Por isso, pois, os judeus ainda mais procuravam matá-lo, porque não somente violava o sábado, mas também dizia que Deus era seu próprio Pai, fazendo-se igual a Deus”.
+
+O autor do texto que enviou diz: “Todos aqueles que, por preceito ou exemplo, depreciem as obrigações para com essas sagradas instituições são inimigos de Deus e do ser humano”. Você irá concordar que o que ele diz é o mesmo que diziam os fariseus no tempo de Jesus.
+
+Os Adventistas do Sétimo Dia, de onde veio o texto que você enviou, não entendem a distinção daquilo que foi dado a Israel e do que hoje é Igreja. Também não creem na salvação por graça, pois colocam no homem o poder de se salvar cumprindo mandamentos. A guarda do sétimo dia como mandamento foi dada muito tempo depois ao povo de Israel, e mesmo assim após terem sido libertos do Egito. Na doutrina dos apóstolos dada à igreja (as epístolas) não existe qualquer menção ao sábado como mandamento para o cristão. Portanto o sábado faz parte da Lei Mosaica que inclui mais de 300 mandamentos e ordenanças, coisas que jamais foram dadas como meio de salvação, mas sim para provarem o homem e considerá-lo culpado e necessitado de um Salvador.
+
+Além disso, cometem vários equívocos como dizer que Satanás foi coautor da expiação dos pecados, por atribuir a ele a figura do bode emissário de [Levítico 16:10](http://bibliaonline.com.br/acf/lv/16/10) (que é, na verdade, uma figura de Cristo levando nossos pecados): “Mas o bode sobre que cair a sorte para bode emissário será apresentado vivo perante o Senhor, para fazer expiação por meio dele e enviá-lo ao deserto como bode emissário”. Como se não bastasse adotam a mesma crença das Testemunhas de Jeová que é a do sono da alma e da aniquilação total de Satanás e dos ímpios no final.
+
+Não é de se espantar que essa religião tenha tantos erros, pois sua principal mentora é uma mulher e os que aprendem dela acabam sendo cúmplices na transgressão do que ordena a Palavra de Deus em [1 Timóteo 2:12-14](http://bibliaonline.com.br/acf/1tm/2/12-14): “E não permito que a mulher ensine, nem exerça autoridade de homem; esteja, porém, em silêncio. Porque, primeiro, foi formado Adão, depois, Eva. E Adão não foi iludido, mas a mulher, sendo enganada, caiu em transgressão”. Apenas este fato (de o Adventismo ter sido ensinado por uma mulher) já deveria ser suficiente para alertar os que insistem em seguir essa doutrina.
+
+*****

@@ -1,0 +1,11 @@
+# O que significa Reino dos Céus? {#o-que-significa-reino-dos-c-us}
+
+Para entender o termo “Reino dos Céus”, é preciso entender que se trata de um aspecto de algo mais amplo. O Reino de Deus é um termo genérico e inclui todos os outros aspectos do Reino, a saber, Reino dos Céus, Reino do Filho do Homem e Reino do Pai.
+
+Reino de Deus — nos fala da manifestação de Cristo para os seus ([Mt 12:28](http://bibliaonline.com.br/acf/mt/12/28)). Quando questionado sobre quando viria o Reino de Deus, Cristo respondeu: “o Reino de Deus está entre vós” ([Lc 17:21](http://bibliaonline.com.br/acf/lc/17/21)). Por ele ter vindo para estar entre os seus, o Reino de Deus era vindo ([Mt 12:28](http://bibliaonline.com.br/acf/mt/12/28)).
+
+Reino dos Céus — é a presente forma do Reino. O Rei foi rejeitado, crucificado e, então, recebido nos céus. O Reino dos Céus inclui todos os que professam o cristianismo (mesmo falsamente). Todos, tanto os verdadeiros como os falsos convivem lado a lado no Reino dos Céus ([Mt 13](http://bibliaonline.com.br/acf/mt/13)).
+
+Reino do Filho do Homem e Reino do Pai — À medida que termina o tempo do Reino dos Céus, o Reino torna-se tanto o Reino do Pai (nos céus) como o Reino do Filho do Homem (na terra). O Reino do Filho do Homem virá em poder e glória ([Mt 25:31](http://bibliaonline.com.br/acf/mt/25/31) e [24:30](http://bibliaonline.com.br/acf/mt/24/30)), e Cristo reinará na terra por 1000 anos. O Reino do Pai (nos céus) diz respeito àqueles que verdadeiramente creram durante a época do Reino dos Céus e foram recolhidos ao celeiro no céu como a boa semente ([Mt 13:30](http://bibliaonline.com.br/acf/mt/13/30)), devendo brilhar como o sol no Reino do Pai ([Mt 13:43](http://bibliaonline.com.br/acf/mt/13/43)). O Reino do Filho (sobre a terra) acontece simultaneamente com o Reino do Pai (nos céus). Quando o Reino do Filho do Homem terminar, o Filho do Homem entregará o Reino a seu Pai ([1 Co 15:24](http://bibliaonline.com.br/acf/1co/15/24)), fazendo com que o Reino seja o Reino do Pai para toda a eternidade.
+
+*****

@@ -1,0 +1,5 @@
+# Não é Necessariamente um Caminho Fácil {#n-o-necessariamente-um-caminho-f-cil}
+
+&quot;Se alguém quer vir após Mim, negue-se a si mesmo, e tome cada dia a sua cruz, e siga-Me&quot; ([Lucas 9:23](http://bibliaonline.com.br/acf/lc/9/23)).
+
+Jamais poderíamos ajudar a carregar a cruz do Senhor. Aquela obra foi totalmente dEle próprio. Mas Ele nos diz que todos temos nossas próprias cruzes para carregar. Faz parte do seguir ao Senhor. Em [Mateus 11:29](http://bibliaonline.com.br/acf/mt/11/29) Ele nos diz que temos um jugo para carregar, mas que o jugo é suave e o fardo é leve. Como pode ser assim? Cruzes e fardos são, por natureza, coisas desconfortáveis e pesadas de se carregar, e um fardo é por definição um peso. O Senhor promete que, apesar dos fardos da vida, nunca podemos perder nossa confiança nEle, nossa satisfação com Sua obra para nós na cruz ou a esperança da Sua vinda por nós. Deveria eu escolher uma vida de conforto? Não se isto significar seguir algo ou alguém que não seja Cristo.

@@ -1,0 +1,7 @@
+# SOBERANIA-E-RESPONSABILIDADE-F-B-HOLE-F.-B.-HOLE {#soberania-e-responsabilidade-f-b-hole-f-b-hole}
+
+SOBERANIA E RESPONSABILIDADE
+
+F. B. Hole
+
+2017-07-21T17:00:00+09:00

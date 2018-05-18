@@ -1,0 +1,15 @@
+# O que significa o cão e a porca? {#o-que-significa-o-c-o-e-a-porca}
+
+Cães e porcos eram animais impuros segundo a Lei dada aos judeus, portanto aqui representam pessoas em seu estado natural que não foram regeneradas, isto é, nunca nasceram de novo e nem creram verdadeiramente no Senhor Jesus. Por isso elas voltam para as mesmas impurezas que continham antes de terem ouvido falar da verdade. Em sua carta Pedro faz alusão a [Provérbios 26:11](http://bibliaonline.com.br/acf/pv/26/11) que diz “Como o cão torna ao seu vômito, assim o tolo repete a sua estultícia”.
+
+([2 Pe 2:20-22](http://bibliaonline.com.br/acf/2pe/2/20-22)) “Porquanto se, depois de terem escapado das corrupções do mundo, pelo conhecimento do Senhor e Salvador Jesus Cristo, forem outra vez envolvidos nelas e vencidos, tornou-se-lhes o último estado pior do que o primeiro. Porque melhor lhes fora não conhecerem o caminho da justiça, do que, conhecendo-o, desviarem-se do santo mandamento que lhes fora dado; Deste modo sobreveio-lhes o que por um verdadeiro provérbio se diz: O cão voltou ao seu próprio vômito, e a porca lavada ao espojadouro de lama”.
+
+O cão que volta ao vômito e a porca que volta à lama de onde saiu nos falam da apostasia, que é o abandono da verdade por aqueles que apenas a professam sem nunca a terem incorporado realmente. Nem o cão, nem a porca foram transformados em ovelhas, pois continuaram com a mesma velha natureza sem terem recebido uma nova. Seu final será inevitavelmente voltar às origens. É por isso que muitas vezes ouvimos falar de pessoas que “se converteram” e depois se tornaram ateias ou passaram a combater a fé cristã. Elas nunca haviam se convertido de verdade, apenas se comportaram como cristãs durante algum tempo.
+
+A passagem mostra que pessoas que têm contato com a verdade podem ser separadas exteriormente da corrupção que há no mundo pelo conhecimento de Cristo (conhecimento intelectual apenas). Porém mostra também que pessoas assim, que nunca se converteram, ficam piores do que antes quando não tinham qualquer contato com a verdade e nem a professavam. Com o conhecimento vem também a responsabilidade e as penalidades são maiores, como explicou o Senhor:
+
+([Lc 12:47-48](http://bibliaonline.com.br/acf/lc/12/47-48)) “E o servo que soube a vontade do seu senhor, e não se aprontou, nem fez conforme a sua vontade, será castigado com muitos açoites; Mas o que a não soube, e fez coisas dignas de açoites, com poucos açoites será castigado. E, a qualquer que muito for dado, muito se lhe pedirá, e ao que muito se lhe confiou, muito mais se lhe pedirá”.
+
+Isto vale para indivíduos e também para nações. Por isso os povos ocidentais cristianizados serão mais responsáveis no juízo do que os povos que nunca ouviram o evangelho. Sabemos pelas profecias bíblicas que as terras do Ocidente, onde a cristandade floresceu e cairá em apostasia, ficarão vazias e devastadas durante os mil anos do reinado de Cristo sobre a terra, enquanto as terras do Oriente Médio e Ásia, tradicionalmente fechadas ao evangelho, florescerão no milênio juntamente com Israel.
+
+*****

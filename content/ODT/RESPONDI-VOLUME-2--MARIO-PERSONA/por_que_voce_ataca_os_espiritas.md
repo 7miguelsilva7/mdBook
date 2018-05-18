@@ -1,0 +1,21 @@
+# Por que você ataca os espíritas? {#por-que-voc-ataca-os-esp-ritas}
+
+Se eu deixei claro que nossa luta não é contra pessoas, mas contra as hostes espirituais, você deve entender que minhas críticas não são contra os espíritas ou o Allan Kardec, mas contra suas ideias. E nem seria correto eu julgar a pessoa de Allan Kardec, mesmo porque ele poderia até ter se convertido a Cristo na hora da morte e com isso eu acabaria encontrando o cara no céu.
+
+Não temos que lutar contra a carne e o sangue, mas, sim, contra os principados, contra as potestades, contra os príncipes das trevas deste século, contra as hostes espirituais da maldade, nos lugares celestiais”. ([Ef 6:12](http://bibliaonline.com.br/acf/ef/6/12)).
+
+A doutrina espírita tem sua origem no mundo espiritual e é comunicada através de uma suposta consulta aos mortos. Porém a Bíblia deixa claro que existem anjos caídos com milhares de anos de experiência em interpretar o homem, seus desejos e necessidades, e responder com aquilo que o ser humano quer. O problema é que Satanás promete, mas não entrega.
+
+Veja o caso dos evangelhos, tão aclamados pelos espíritas. “Evangelho” significa “Boas Novas”: “E o anjo lhes disse: Não temais, porque eis aqui vos trago novas de grande alegria, que será para todo o povo: Pois, na cidade de Davi, vos nasceu hoje o Salvador, que é Cristo, o Senhor” ([Lc 2:10-11](http://bibliaonline.com.br/acf/lc/2/10-11)). Portanto a boa notícia ou boas novas é que temos um Salvador para nos salvar de nossos pecados e do juízo.
+
+O “Evangelho Segundo o Espiritismo” não tem nada de “Boas Novas”. Ele lança sobre o pecador todo o fardo que Cristo nos convidou a lançar sobre ele, e pressupõe que o homem consiga fazer a expiação de seus próprios pecados e ser seu próprio salvador. Será que isso são boas novas? E como seriam, se não dá uma saída para o pecador? “Ah, você é pecador? Então vai precisar reencarnar incontáveis vezes, sem jamais ter certeza de que está na primeira ou na última fase do jogo!”
+
+Mas, evidentemente, não é de hoje que o ser humano em seu estado natural gosta de acreditar que pode fazer alguma coisa e adora quando alguém vem dizer isso a ele. Com alguns reis de Israel não era diferente; escolhiam somente profetas de pensamento positivo, motivacionais, etc. “Vês aqui que as palavras dos profetas a uma voz predizem coisas boas para o rei; seja, pois, a tua palavra como a palavra de um deles, e fala bem” ([1 Rs 22:13](http://bibliaonline.com.br/acf/1rs/22/13)).
+
+Já era assim no passado e ficou pior agora: “MAS o Espírito expressamente diz que nos últimos tempos apostatarão alguns da fé, dando ouvidos a espíritos enganadores, e a doutrinas de demônios... Porque virá tempo em que não suportarão a sã doutrina; mas, tendo comichão nos ouvidos, amontoarão para si doutores conforme as suas próprias concupiscências; E desviarão os ouvidos da verdade, voltando às fábulas.” ([1Tm 4:1](http://bibliaonline.com.br/acf/1tm/4/1); [2 Timóteo 4:4](http://bibliaonline.com.br/acf/2tm/4/4)).
+
+E isso não ocorre apenas nas religiões declaradamente anti-bíblicas, mas até no chamado meio católico e evangélico. Erramos quando seguimos homens como se fossem alguma coisa. “Porque haverá homens amantes de si mesmos... Tendo aparência de piedade, mas negando a eficácia dela. Destes afasta-te... levam cativas mulheres néscias carregadas de pecados, levadas de várias concupiscências... Que aprendem sempre, e nunca podem chegar ao conhecimento da verdade... E, como Janes e Jambres resistiram a Moisés, assim também estes resistem à verdade, sendo homens corruptos de entendimento e réprobos quanto à fé”. ([2Tm 3:2-8](http://bibliaonline.com.br/acf/2tm/3/2-8)).
+
+Fique sempre alerta para homens que arrebanham cegando o juízo de seus seguidores, prometem realização de concupiscências (podem ser lícitas, como saúde, dinheiro, casamento...) e imitam as obras e milagres de Deus, como fizeram os magos de Faraó, Janes e Jambres. Geralmente têm aparência de piedade e mantêm os templos cheios.
+
+*****

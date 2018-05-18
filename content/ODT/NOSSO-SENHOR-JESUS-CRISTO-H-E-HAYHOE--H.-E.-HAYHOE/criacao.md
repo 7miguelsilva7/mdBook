@@ -1,0 +1,3 @@
+# CRIAÇÃO {#cria-o}
+
+Foi propósito de Deus Pai que a criação fosse a esfera onde pudesse expor todos os Seus conselhos ([Efésios 1:9,10](http://bibliaonline.com.br/acf/ef/1/9,10)). O Filho é Aquele por meio de Quem tudo é criado e mantido ([João 1:1-4](http://bibliaonline.com.br/acf/jo/1/1-4); [Col. 1:16](http://bibliaonline.com.br/acf/cl/1/16); [Hebreus 1:1-3](http://bibliaonline.com.br/acf/hb/1/1-3)). O Espírito Santo é o poder na criação ([Jó 26:13](http://bibliaonline.com.br/acf/jó/26/13); [Salmos 104:30](http://bibliaonline.com.br/acf/sl/104/30)).

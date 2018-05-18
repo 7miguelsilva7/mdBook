@@ -1,0 +1,17 @@
+# Summary
+
+* [JONATAS-FALTOU-UMA-COISA-CHARLES-STANLEY-CHARLES-STANLEY](README.md)
+* [JÔNATAS - FALTOU UMA COISA](jonatas_-_faltou_uma_coisa.md)
+* [O PODEROSO ADVERSÁRIO](o_poderoso_adversario.md)
+* [A UM PASSO DA ETERNIDADE](a_um_passo_da_eternidade.md)
+* [AMAR E DESPOJAR-SE](amar_e_despojar-se.md)
+* [DEIXANDO TUDO POR CRISTO](deixando_tudo_por_cristo.md)
+* [AS MARCAS DE UM CRISTÃO](as_marcas_de_um_cristao.md)
+* [CONFESSANDO A CRISTO](confessando_a_cristo.md)
+* [O ÓDIO DO MUNDO](o_odio_do_mundo.md)
+* [FALAMOS BEM DE JESUS?](falamos_bem_de_jesus.md)
+* [QUANDO VEM A PERSEGUIÇÃO](quando_vem_a_perseguicao.md)
+* [FAZER A VONTADE DO SENHOR](fazer_a_vontade_do_senhor.md)
+* [SEGUIR O REJEITADO](seguir_o_rejeitado.md)
+* [SÓ FALTOU UMA COISA](so_faltou_uma_coisa.md)
+* [REUNIDOS A JESUS](reunidos_a_jesus.md)

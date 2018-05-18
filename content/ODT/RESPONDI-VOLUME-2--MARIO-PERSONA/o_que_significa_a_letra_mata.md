@@ -1,0 +1,19 @@
+# O que significa “a letra mata”? {#o-que-significa-a-letra-mata}
+
+A frase é tirada de uma passagem de [2 Coríntios 3](../bible2link) e é muito usada por pessoas que argumentam que não devemos seguir o que está escrito na Bíblia. Aponte para alguém um versículo com o qual essa pessoa não concorda e ela logo rebaterá dizendo que “a letra mata”, ou seja, não podemos tomar a Bíblia literalmente.
+
+É evidente que devemos sempre olhar o contexto quando algo está escrito na Bíblia. É preciso saber o que vem antes, o que vem depois, quando aquilo foi escrito, por quem foi escrito, para quem foi escrito, etc. Isolar qualquer porção da Bíblia é sempre perigoso. Há por exemplo o versículo que diz que “Não há Deus”, mas antes vem “Diz o ímpio em seu coração: Não há Deus”. ([Sl 14:1](http://bibliaonline.com.br/acf/sl/14/1)).
+
+Quando utilizado isoladamente, “a letra mata” tem o mesmo efeito e parece querer dizer que devemos fugir de uma interpretação literal da Bíblia. Mas o que diz antes e depois?
+
+E é por Cristo que temos tal confiança em Deus; não que sejamos capazes, por nós, de pensar alguma coisa, como de nós mesmos; mas a nossa capacidade vem de Deus, o qual também nos capacitou para sermos ministros dum novo pacto, não da letra, mas do espírito; porque a letra mata, mas o espírito vivifica. Ora, se o ministério da morte, gravado com letras em pedras, veio em glória, de maneira que os filhos de Israel não podiam fixar os olhos no rosto de Moisés, por causa da glória do seu rosto, a qual se estava desvanecendo, como não será de maior glória o ministério do espírito?” ([2 Co 3:6-8](http://bibliaonline.com.br/acf/2co/3/6-8)).
+
+É evidente que a “letra” à qual o apóstolo está se referindo são os dez mandamentos ou a lei como um todo, que foi dada a Israel com o propósito de provar o homem e revelar ser ele incapaz de seguir a lei. A Lei, portanto, é o sinal de contramão e nós aquele enorme caminhão entalado na rua estreita. Assim como faz o sinal, ela nos mostra que estamos na contramão e que nada podemos fazer de nós mesmos para sair disso, a não ser por uma obra de Deus. É aí que entra a graça, é aí que entra Cristo morrendo no lugar do pecador.
+
+Portanto, quando o apóstolo diz que “a letra mata”, ele está dizendo que a lei tem o papel de condenar apenas, não pode dar vida. A letra da lei é a lente de aumento que revela o quanto sou mau e pecador. Um trecho de Romanos esclarece melhor isso:
+
+Pois, quando estávamos na carne, as paixões dos pecados, suscitadas pela lei, operavam em nossos membros para darem fruto para a morte. Mas agora fomos libertos da lei, havendo morrido para aquilo em que estávamos retidos, para servirmos em novidade de espírito, e não na velhice da letra. Que diremos pois? É a lei pecado? De modo nenhum. Contudo, eu não conheci o pecado senão pela lei; porque eu não conheceria a concupiscência, se a lei não dissesse: Não cobiçarás. Mas o pecado, tomando ocasião, pelo mandamento operou em mim toda espécie de concupiscência; porquanto onde não há lei está morto o pecado. E outrora eu vivia sem a lei; mas assim que veio o mandamento, reviveu o pecado, e eu morri; e o mandamento que era para vida, esse achei que me era para morte. Porque o pecado, tomando ocasião, pelo mandamento me enganou, e por ele me matou. De modo que a lei é santa, e o mandamento santo, justo e bom. Logo o bom tornou-se morte para mim? De modo nenhum; mas o pecado, para que se mostrasse pecado, operou em mim a morte por meio do bem; a fim de que pelo mandamento o pecado se manifestasse excessivamente maligno”. ([Rm 7:5-13](http://bibliaonline.com.br/acf/rm/7/5-13)).
+
+Portanto, da próxima vez que você mostrar um versículo para alguém e essa pessoa argumentar que não devemos seguir o que está escrito porque “a letra mata”, é bem provável que essa pessoa é mais uma que gosta de selecionar da Bíblia apenas o que lhe apraz, e rejeitar tudo o que não lhe convém.
+
+*****

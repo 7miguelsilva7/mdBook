@@ -1,0 +1,5 @@
+### &quot;Quer dizer que voces nao acreditam que devemos ter um pastor?&quot; {#quer-dizer-que-voces-nao-acreditam-que-devemos-ter-um-pastor}
+
+Com base naquilo que acabamos de dizer, alguns inferem que não acreditamos na existência de pastores na igreja, mas a verdade é que acreditamos sim, pois a Bíblia fala de pastores ([Ef 4:11](http://bibliaonline.com.br/acf/ef/4/11)). Um pastor é alguém que recebeu o dom de pastorear o rebanho de Deus. Trata-se de um dos muitos dons que Cristo deu à igreja.
+
+Nossa objeção é quanto ao que as igrejas denominacionais chamam de &quot;Pastor&quot;. Transformaram o dom em algo que não é encontrado nas Escrituras. Extraíram o termo das Escrituras e o aplicaram à posição de um clérigo, algo que não é encontrado na Bíblia. O que mais causa confusão é que, em sistemas assim, uma pessoa pode ocupar tal posição e nem mesmo ter o dom de &quot;Pastor&quot;! Talvez ele tenha o dom de evangelista ou mestre etc., e mesmo assim acabará levando o título de &quot;Pastor&quot;! Que triste confusão foi introduzida na casa de Deus.

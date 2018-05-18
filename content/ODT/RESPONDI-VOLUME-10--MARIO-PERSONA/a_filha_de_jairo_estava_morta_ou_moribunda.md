@@ -1,0 +1,17 @@
+# A filha de Jairo estava morta ou moribunda? {#a-filha-de-jairo-estava-morta-ou-moribunda}
+
+Você ficou em dúvida sobre a inerrância das Escrituras quando percebeu que em um evangelho Jairo fala que sua filha está morta e em outros dois que ela estava moribunda. Afinal, quando ele procurou a ajuda de Jesus ela estava moribunda ou já tinha morrido? As duas respostas são corretas porque ela pode ter morrido enquanto ele falava com o Senhor e cada evangelista registrou um aspecto de sua conversa, ficando apenas para Marcos e Lucas incluírem a parte em que os mensageiros chegam vindos da casa de Jairo.
+
+&quot;Falava ele ainda quando um dos dirigentes da sinagoga chegou, ajoelhou-se diante dele e disse: &#039;Minha filha acaba de morrer. Vem e impõe a tua mão sobre ela, e ela viverá&#039;” ([Mt 9:18, 35](http://bibliaonline.com.br/acf/mt/9/18,35)).
+
+&quot;Então chegou ali um dos dirigentes da sinagoga, chamado Jairo. Vendo Jesus, prostrou-se aos seus pés e lhe implorou insistentemente: &#039;Minha filhinha está morrendo! Vem, por favor, e impõe as mãos sobre ela, para que seja curada e viva&#039;. (...) estando ele ainda falando, chegaram alguns do principal da sinagoga, a quem disseram: A tua filha está morta; para que enfadas mais o Mestre?&quot; ([Mc 5:22-23, 35](http://bibliaonline.com.br/acf/mc/5/22-23,35)).
+
+&quot;Então um homem chamado Jairo, dirigente da sinagoga, veio e prostrou-se aos pés de Jesus, implorando-lhe que fosse à sua casa porque sua única filha, de cerca de doze anos, estava à morte. (...) estando ele ainda falando, chegou um dos do príncipe da sinagoga, dizendo: &#039;A tua filha já está morta, não incomodes o Mestre&#039;. ([Lc 8:41-42, 49](http://bibliaonline.com.br/acf/lc/8/41-42,49)).
+
+Já que em Marcos diz que Jairo implorava &quot;insistentemente&quot; é possível imaginar um processo repetitivo e contínuo de pedidos pela cura de sua filha moribunda. Então chegam os mensageiros e dão a mensagem da morte e seria natural que Jairo mudasse seu pedido de &quot;está morrendo&quot; para &quot;está morta&quot;. Talvez Marcos e Lucas tenham registrado esse pedido contínuo (&quot;está morrendo&quot;) enquanto Mateus tenha registrado apenas o pedido final de Jairo: &quot;está morta&quot;.
+
+Você encontra outras situações assim em que os textos se complementam, como no caso da morte de Judas que, em [Mateus 27:5](http://bibliaonline.com.br/acf/mt/27/5) diz que &quot;ele atirando para o templo as moedas de prata, retirou-se e foi-se enforcar&quot; e em [Atos 1:18](http://bibliaonline.com.br/acf/atos/1/18) que &quot;precipitando-se, rebentou pelo meio, e todas as suas entranhas se derramaram&quot;. Deixando de lado a possibilidade de ele ter ido se enforcar e mudado de ideia no caminho e decidido saltar de um lugar alto, um detetive teria juntado os dois relatos e deduzido que Judas foi se enforcar de um lugar alto e a corda (ou o galho) pode ter se rompido e ele caiu de grande altura, derramando suas entranhas como acontece em quedas assim.
+
+Se alguém disser que o meio-irmão de Saddam Hussein morreu enforcado e decapitado você poderia estranhar, mas a verdade é que ele era muito gordo e sua cabeça foi arrancada pelo peso do corpo durante o enforcamento. Assim ele foi enforcado e decapitado.
+
+*****

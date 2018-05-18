@@ -1,0 +1,21 @@
+# Mesas denominacionais são de demônios? {#mesas-denominacionais-s-o-de-dem-nios}
+
+Ninguém pode dizer que um cristão que participe da ceia em uma denominação esteja participando da mesa de demônios. A mesa de demônios em [1 Coríntios 10](http://bibliaonline.com.br/acf/1co/10) é a mesa dos pagãos, o altar em que os pagãos sacrificavam seus animais para os ídolos, atrás dos quais haviam demônios. Não tem nada a ver com cristãos. Vamos ao texto:
+
+([1 Co 10:14-21](http://bibliaonline.com.br/acf/1co/10/14-21)) “Portanto, meus amados, fugi da idolatria. Falo como a entendidos; julgai vós mesmos o que digo. Porventura o cálice de bênção, que abençoamos, não é a comunhão do sangue de Cristo? O pão que partimos não é porventura a comunhão do corpo de Cristo? Porque nós, sendo muitos, somos um só pão e um só corpo, porque todos participamos do mesmo pão. Vede a Israel segundo a carne; os que comem os sacrifícios não são porventura participantes do altar? Mas que digo? Que o ídolo é alguma coisa? Ou que o sacrificado ao ídolo é alguma coisa? Antes digo que as coisas que os gentios sacrificam, as sacrificam aos demônios, e não a Deus. E não quero que sejais participantes com os demônios. Não podeis beber o cálice do Senhor e o cálice dos demônios; não podeis ser participantes da mesa do Senhor e da mesa dos demônios”.
+
+O assunto aí é a idolatria da qual os Coríntios haviam saído depois de terem se convertido. A idolatria de que fala ali é a pagã, e não qualquer prática encontrada hoje na cristandade, como é o caso das imagens das religiões católicas. Não se pode atribuir a isso o mesmo que o apóstolo fala aqui sobre participantes da mesa de demônios. Os católicos não celebram sua missa na mesa de demônios, e os ídolos católicos não se compararam aos ídolos pagãos, pois são representações humanas e não de seres do mundo espiritual. Os católicos que adoram estátuas o fazem por ignorância, porque isto não faz parte do cerne da doutrina católica, mas sim dos penduricalhos que lhe foram acrescentadas. Nos dias de hoje uma mesa de demônios seria um altar do candomblé ou da macumba, onde eles conscientemente oferecem vítimas aos demônios para aplacar a ira deles.
+
+Se ler [1 Coríntios 10:14-21](http://bibliaonline.com.br/acf/1co/10/14-21) verá que ali há pelo menos três mesas: a mesa (altar) dos judeus, a mesa dos demônios e a mesa do Senhor. Mas e a mesa denominacional, é o que? Uma mesa formada por homens segundo os preceitos da religião que criaram e à qual geralmente são aceitos os que se tornaram membros daquela denominação (em alguns casos é uma mesa aberta a qualquer um, o que também é um erro; eu não recebo qualquer um para comer em minha mesa de jantar, por que faria isso com a mesa do Senhor). Mas, reforçando, uma mesa denominacional não é uma mesa de demônios.
+
+Israel tinha uma “mesa” ou altar, que nada tem a ver com o cristianismo. Mas os judeus transformaram também aquele altar que Deus lhes tinha dado em “sua mesa”, ou de homens.
+
+([Sl 69:22](http://bibliaonline.com.br/acf/sl/69/22)) “Torne-se-lhes a sua mesa diante deles em laço, e a prosperidade em armadilha”.
+
+([Rm 11:8](http://bibliaonline.com.br/acf/rm/11/8)) “Como está escrito: Deus lhes deu espírito de profundo sono, olhos para não verem, e ouvidos para não ouvirem, até ao dia de hoje”.
+
+([Rm 11:9](http://bibliaonline.com.br/acf/rm/11/9)) “E Davi diz: torne-se-lhes a sua mesa em laço, e em armadilha, e em tropeço, por sua retribuição”.
+
+([Hb 13:9-16](http://bibliaonline.com.br/acf/hb/13/9-16)) “Não vos deixeis levar em redor por doutrinas várias e estranhas... Temos um altar, de que não têm direito de comer os que servem ao tabernáculo [Os sacerdotes judeus]. Porque os corpos dos animais, cujo sangue é, pelo pecado, trazido pelo sumo sacerdote para o santuário, são queimados fora do arraial. E por isso também Jesus, para santificar o povo pelo seu próprio sangue, padeceu fora da porta [da cidade ou organização judaica]. Saiamos, pois, a ele fora do arraial, levando o seu vitupério. Porque não temos aqui cidade permanente, mas buscamos a futura. Portanto, ofereçamos sempre por ele a Deus sacrifício de louvor, isto é, o fruto dos lábios que confessam o seu nome. E não vos esqueçais da beneficência e comunicação, porque com tais sacrifícios Deus se agrada”.
+
+*****

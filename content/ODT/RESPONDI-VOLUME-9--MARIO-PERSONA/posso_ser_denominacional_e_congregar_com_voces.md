@@ -1,0 +1,15 @@
+# Posso ser denominacional e congregar com vocês? {#posso-ser-denominacional-e-congregar-com-voc-s}
+
+Sua pergunta completa foi: “Pode-se estar numa das igrejas citadas e visitar a reunião de vocês, participando ativamente?” A resposta é “Sim” e “Não”, porque você fez duas perguntas em uma só. Uma pessoa que congregue em uma denominação pode visitar quantas vezes quiser as reuniões, mas não poderá participar delas. Quando digo participar refiro-me a estar à mesa do Senhor em comunhão para partir o pão e o vinho com os irmãos, ou ministrar a Palavra.
+
+Se um dos fundamentos sobre o qual nos reunimos é que há um só corpo e que não deve haver divisões nesse corpo, seria uma incoerência a pessoa querer partir o pão onde consideramos “igreja” a todos os salvos por Cristo, e ao mesmo tempo continuar em comunhão com alguma seita ou heresia (no sentido bíblico a palavra significa “divisão” ou “escolha”), independente das doutrinas que tal seita professe, pois o simples fato de ser uma facção já é um erro.
+
+Alguém assim, segundo entendo, está contaminado com mal eclesiástico por tentar professar, com um lado da boca, que há um só corpo, mas na prática continuar testemunhando que há muitos corpos, por fazer parte de um que não inclui todos os salvos por Cristo ou que identifique os seus simpatizantes por uma denominação que não inclua a todos os cristãos.
+
+Existe ainda um outro impedimento à comunhão, e isto seriam as doutrinas que esta pessoa confessa. Se ela, por exemplo, achar que Jesus não é Deus, ou que o Espírito Santo não é uma Pessoa da Trindade, ou que a salvação é por obras, por isso ela precisa se esforçar até o fim para ser salva, etc., então essa pessoa estaria contaminada com má doutrina e precisaria deixar essas coisas para estar à mesa do Senhor. Ela eventualmente acabaria ministrando essas ideias na reunião (porque nos reunimos entendendo que o Espírito pode usar quem ele quer) e contaminaria outros com sua má doutrina. “Um pouco de fermento leveda toda a massa”.
+
+O terceiro impedimento para tal pessoa estar em comunhão à mesa do Senhor seria pecado moral, como encontramos em [1 Coríntios 5](http://bibliaonline.com.br/acf/1co/5). Assim, cada um que chega é primeiro examinado pela assembleia quanto às suas associações religiosas, doutrina que professa e seu andar público. A assembleia não julga as pessoas, mas aquilo que é visível, como seu testemunho, sua doutrina e seu andar.
+
+“Assim, nós nos reunimos em um terreno amplo o suficiente para incluir cada membro de seu corpo, sem excluir nenhum. Se aqueles que chegam são conhecidos por estarem em conexão ou associação com algo que não dê importância à verdade e glória do Senhor, esta sua posição o excluiria da comunhão à mesa do Senhor”. F. G. Patterson em “Endeavouring to Keep the Unity of the Spirit”
+
+*****

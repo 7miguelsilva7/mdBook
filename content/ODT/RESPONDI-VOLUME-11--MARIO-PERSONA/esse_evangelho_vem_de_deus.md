@@ -1,0 +1,13 @@
+# Esse evangelho vem de Deus? {#esse-evangelho-vem-de-deus}
+
+Como saber se o evangelho que você tem escutado vem de Deus? Perguntando quem fica com a glória no final. O evangelho puro e verdadeiro dá 100% de glória a Deus e 0% de glória ao homem. Aí você tem religiões católicas e protestantes que costumam variar nessa porcentagem, algo como 100% x 0%, 90% x 10%, 80% x 20%, até as religiões pentecostais com algo em torno de 50% x 50% (metade graça divina, metade perseverança humana), e as neopentecostais, cuja porcentagem depende se você vai pagar em dinheiro ou no cartão. Finalmente existem as falsas religiões cristãs e as religiões pagãs, cuja salvação depende totalmente do homem e Deus aparece apenas como o ponto eletrônico que diz ao ator o que ele deve fazer.
+
+Alguém me perguntou se estaria “OK” fazer parte da religião mórmon e minha resposta é a mesma que dei a uma passageira que viajou uma vez ao meu lado num ônibus. Falei a ela do evangelho da GRAÇA de Deus, da salvação que vem 100% de Deus pela fé na Pessoa e obra de Cristo, graças à sua morte na cruz por nossos pecados e ressurreição para nossa justificação; da SEGURANÇA desta salvação que igualmente não depende de nós e nos dá a CERTEZA de que aquele que crê nunca será tirado das mãos do Pai; de ter TODOS os pecados perdoados; de como o cristão foi feito AGRADÁVEL aos olhos de Deus em Cristo, etc.
+
+Ela então respondeu que se eu fosse mórmon teria muitas vantagens, como os trocentos templos espalhados pelo mundo, as escolas, hospitais e obras sociais dessa organização, a possibilidade de meus filhos viajarem ao exterior (sabe aqueles “elders” ou anciãos que nunca tem mais de 20 anos de idade?), dos eventos esportivos, dos maravilhosos corais, do maior banco de dados genealógicos do mundo, das melhores taxas de saúde física e mental dentre as religiões (não estou brincando, eles mantêm estatísticas!), dos grupos escoteiros, etc., etc., etc. Talvez você não saiba, mas uma das estratégias do “evangelismo” mórmon é apresentar benefícios como fazem os vendedores de seguro-saúde.
+
+Então perguntei a ela: “Se este ônibus bater agora e nós morrermos, para onde você vai?”. Ela respondeu que não sabia, não tinha certeza, que tinha muito que evoluir, etc. Então eu disse que não trocaria minha CERTEZA de vida eterna por nenhum item de sua apólice de benefícios, pois minha certeza era absoluta de partir imediatamente da carcaça do ônibus batido e de meu corpo despedaçado para estar com Cristo, meu Salvador.
+
+“Na verdade, na verdade vos digo que quem OUVE a minha palavra, e CRÊ naquele que me enviou, TEM a vida eterna, e NÃO ENTRARÁ em condenação, mas PASSOU da morte para a vida” ([João 5:24](http://bibliaonline.com.br/acf/jo/5/24)).
+
+*****

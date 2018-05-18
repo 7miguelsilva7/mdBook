@@ -1,0 +1,11 @@
+# Romanos 6:17: {#romanos-6-17}
+
+[Romanos 6:17](http://bibliaonline.com.br/acf/rm/6/17)
+
+É importante vermos que nossa obediência deve ser &quot;de todo o coração&quot; ([Colossenses 3:23](http://bibliaonline.com.br/acf/cl/3/23)). Deus deseja obediência por amor a Ele. Um caso pode estar tecnicamente claro de acordo com as Escrituras, mas podem existir circunstâncias, tais como atitudes que afugentaram o cônjuge, violências, ou tentativas de se forçar o outro, que poderiam despedaçar um lar, de forma que um cristão poderia ser obrigado a fazer com que seu cônjuge o abandonasse, ou mesmo obtivesse o divórcio. Exige-se um discernimento sacerdotal em cada caso, como era o sacerdote em Israel quando tinha que discernir se a lepra estava ativa quando as aparências eram incertas ([Levítico 13:4-8](http://bibliaonline.com.br/acf/lv/13/4-8)), de forma que a santidade da casa de Deus seja mantida em cada detalhe. &quot;Mui fiéis são os Teus testemunhos: a santidade convém à Tua casa, Senhor, para sempre&quot; ([Salmos 93:5](http://bibliaonline.com.br/acf/sl/93/5)).
+
+Não se trata de sermos superiores ao mal em nós mesmos, mas porque Aquele que Se encontra no meio é &quot;o que é santo, o que é verdadeiro&quot; ([Apocalipse 3:7](http://bibliaonline.com.br/acf/ap/3/7)). Em todas as instâncias em que tais casos necessitassem ser trazidos para a assembléia, deveríamos tomar nosso lugar como fazendo parte do fracasso e comer da oferta pelo pecado no lugar santo ([Levítico 6:26](http://bibliaonline.com.br/acf/lv/6/26); [10:17](http://bibliaonline.com.br/acf/lv/10/17)). Nunca deveríamos nos esquecer de que o Senhor aborrece o repúdio ([Malaquias 2:14-16](http://bibliaonline.com.br/acf/ml/2/14-16)) e que o divórcio foi permitido por causa da dureza de nossos corações. O amor no matrimônio pode vencer - e vence - muitas dificuldades.
+
+Que o Senhor possa nos guardar, nestes últimos dias, no caminho da obediência, sabendo que &quot;um pouco de fermento faz levedar toda a massa&quot; ([1 Coríntios 5:6](http://bibliaonline.com.br/acf/1co/5/6)), e que qualquer mal não julgado corrompe a assembléia que permite que ele seja mantido sem julgamento. O inimigo procura destruir o lar cristão e a assembléia de Deus, e precisamos da Palavra de Deus para nos dirigir, do amor de Cristo para nos constranger, e do poder de Deus para nos guardar.
+
+G. H. Hayhoe

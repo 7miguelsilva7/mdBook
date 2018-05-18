@@ -1,0 +1,5 @@
+# Um cristão não pode praticar esportes? {#um-crist-o-n-o-pode-praticar-esportes}
+
+Recebi sua carta e quero tranquilizá-lo quanto aos esportes. O exercício físico, segundo a Palavra de Deus, para pouco é proveitoso ([1Tm 4:8](http://bibliaonline.com.br/acf/1tm/4/8)), ou seja, para o físico, para o bem estar do corpo humano. Mas isto não o invalida e nem o condena. É bom que se pratique algum esporte, pois é benéfico à saúde de nosso corpo, que é o templo do Espírito. Usar do exercício físico, como determinadas posturas, movimentos, etc. (como a yoga, por exemplo) como um meio de elevação espiritual é algo que Deus não aprova. Ou, no caso de algum esporte, quando este começa a interferir na vida de comunhão com Deus, obviamente precisa ser controlado. Aliás, não é só o esporte, mas tudo em nossa vida deve ser controlado para não interferir em nossa comunhão.
+
+*****

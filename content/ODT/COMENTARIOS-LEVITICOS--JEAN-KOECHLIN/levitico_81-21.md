@@ -1,0 +1,9 @@
+# Levítico 8:1-21 {#lev-tico-8-1-21}
+
+([8:1-21](http://bibliaonline.com.br/acf/lv/8/1-21))
+
+Nos primeiros sete capítulos estudamos as ofertas e agora chegamos ao sacerdócio. Se o pecador precisa de um sacrifício, o crente também precisa de um sacerdote para exercer o serviço que lhe foi confiado. Um sacerdote era alguém que se colocava entre Deus e Seu povo. Nós também precisamos de alguém que se coloque entre um Deus santo e nós, pecadores. E temos Alguém assim em Cristo; [Tiago 2:5](http://bibliaonline.com.br/acf/tg/2/5). Ele é nosso Sumo Sacerdote no céu diante de Deus agora, [Hebreus 4:14](http://bibliaonline.com.br/acf/hb/4/14).
+
+Cristo é nosso sacrifício e nosso sacerdote. É Ele quem ofereceu a si mesmo, como a vítima perfeita, para nos colocar em um relacionamento com Deus, e agora É Ele também Aquele que executa as funções do sumo sacerdote para nos manter nesse relacionamento. Era necessário que Ele se tornasse a oferta antes de se tornar o Sacerdote.
+
+Em [Êxodo 29](http://bibliaonline.com.br/acf/ex/29) vimos as instruções dadas por Deus a Moisés para a consagração de Arão e seus filhos. Chegou o momento desta cerimônia acontecer. Toda a congregação de Israel se ajunta na entrada da tenda para contemplar Aarão vestido com as vestes de glória e beleza. Em relação a nossa fé, a visão que a epístola aos Hebreus nos apresenta é muito maior, por isso, ela é chamada de &quot;a carta dos céus abertos&quot;. Ela nos convida a &quot;considerar a Jesus Cristo, apóstolo e sumo sacerdote&quot;, vestido de todos os atributos gloriosos do Seu sacerdócio ([Hb 3: 1](http://bibliaonline.com.br/acf/hb/3/1)).

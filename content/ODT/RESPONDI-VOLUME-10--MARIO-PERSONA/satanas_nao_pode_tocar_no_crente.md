@@ -1,0 +1,19 @@
+# Satanás não pode tocar no crente? {#satan-s-n-o-pode-tocar-no-crente}
+
+Você viu uma frase motivacional, dessas que circulam nas redes sociais, que dizia: &quot;&#039;Filho, você não sabe quantas vezes o inimigo quis te destruir, mas tu és meu, e o que é meu ele não toca&#039; - assinado Deus&quot;. A ideia de sermos imunes aos ataques de Satanás não é bíblica, e o primeiro exemplo que me vem à mente é o de Jó um homem temente a Deus que, com autorização divina, foi afligido por Satanás.
+
+O autor da frase que você leu provavelmente tenha se baseado em [1 João 5:18](http://bibliaonline.com.br/acf/1jo/5/18), que diz: &quot;Sabemos que todo aquele que é nascido de Deus não peca; mas o que de Deus é gerado conserva-se a si mesmo, e o maligno não lhe toca”. Mas a passagem fala daquilo que é gerado por Deus, ou seja, da nova natureza que agora possui aquele que foi salvo. Esta realmente não pode ser de modo algum tocada ou influenciada pelo maligno pois é uma natureza que vem de Deus e nada tem a ver com a velha natureza que continua habitando em nós.
+
+Somente aqueles que creram em Jesus Cristo, em sua divindade e obra segundo as Escrituras, possuem essa nova natureza e, também, são incapazes de pecar, têm suas orações ouvidas quando em conformidade com a vontade de Deus, vencem o mundo, etc., como o próprio apóstolo João diz:
+
+&quot;Todo aquele que crê que Jesus é o Cristo, é nascido de Deus; e todo aquele que ama ao que o gerou também ama ao que dele é nascido... Porque todo o que é nascido de Deus vence o mundo; e esta é a vitória que vence o mundo, a nossa fé... Quem tem o Filho tem a vida; quem não tem o Filho de Deus não tem a vida... E esta é a confiança que temos nele, que, se pedirmos alguma coisa, segundo a sua vontade, ele nos ouve... Sabemos que todo aquele que é nascido de Deus não peca; mas o que de Deus é gerado conserva-se a si mesmo, e o maligno não lhe toca&quot; ([1 Jo 5:1-21](http://bibliaonline.com.br/acf/1jo/5/1-21)).
+
+Mas, no sentido de ainda estarmos vivendo neste corpo não ressuscitado e no mundo, é possível sim sermos afligidos pelo diabo, mas para isso ele precisará passar pelo céu e obter uma autorização de Deus, como foi no caso de Jó (veja Jó [capítulos 1](http://bibliaonline.com.br/acf/jó/1) [e 2](http://bibliaonline.com.br/acf/jó/2)). O diabo peneirou a Pedro, por quem Cristo intercedeu, criou perseguições e dores aos apóstolos e certamente ainda hoje aflige os cristãos em todo o mundo. Todavia, mesmo em meio à mais feroz perseguição, dor física e sofrimento mental a nova natureza que temos em nós permanece intacta e não pode ser tocada pelo maligno.
+
+Deus permitiu que Paulo recebesse algum tipo de aflição física para não se gloriar, portanto Satanás pode sim tocar o corpo do crente: &quot;E, para que não me exaltasse pela excelência das revelações, foi-me dado um espinho na carne, a saber, um mensageiro de Satanás para me esbofetear, a fim de não me exaltar” ([2 Co 12:7](http://bibliaonline.com.br/acf/2co/12/7)).
+
+Paulo determinou que o transgressor de [1 Coríntios 5](http://bibliaonline.com.br/acf/1co/5) fosse &quot;entregue a Satanás para destruição da carne&quot;, o que significava que ele seria morto por Satanás embora seu espírito estaria salvo. &quot;...seja entregue a Satanás para destruição da carne, para que o espírito seja salvo no dia do Senhor Jesus&quot; ([1 Co 5:5](http://bibliaonline.com.br/acf/1co/5/5)).
+
+Portanto é preciso cuidado com frases motivacionais que parecem ter fundamento cristão, mas não têm. O objetivo delas é desacreditar a Palavra de Deus, pois quando achamos que elas são verdadeiras acabamos um dia nos decepcionando por não ter dado certo e acharemos que é a Palavra de Deus que está errada.
+
+*****

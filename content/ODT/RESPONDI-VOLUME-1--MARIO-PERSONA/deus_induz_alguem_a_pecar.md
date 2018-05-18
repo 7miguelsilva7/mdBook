@@ -1,0 +1,13 @@
+# Deus induz alguém a pecar? {#deus-induz-algu-m-a-pecar}
+
+Você nos perguntou se Deus induz alguém ao pecado. A resposta encontra-se em[Tiago 1:13](http://bibliaonline.com.br/acf/tg/1/13): &quot;Ninguém, sendo tentado, diga: De Deus sou tentado; porque Deus não pode ser tentado pelo mal, e a ninguém tenta. Mas cada um é tentado, quando atraído e engodado pela sua própria concupiscência. Depois, havendo a concupiscência concebido, dá à luz o pecado; e o pecado, sendo consumado, gera a morte&quot;.
+
+Portanto, Deus não nos induz a pecar. Porém há ocasiões em que ele permite que sejamos tentado para que nossa fé se fortaleça, mas ele providencia para que tenhamos força suficiente para não cairmos. &quot;Não veio sobre vós tentação, senão humana; mas fiel é Deus, que vos não deixará tentar acima do que podeis, antes com a tentação dará também o escape, para que a possais suportar&quot; ([1 Co 10:13](http://bibliaonline.com.br/acf/1co/10/13)). Por isso ninguém poderá dizer que caiu em pecado por não ter tido forças para suportar uma tentação.
+
+A Palavra nos diz que o Senhor &quot;como nós, em tudo foi tentado, mas sem pecado&quot; ([Hb 4:15](http://bibliaonline.com.br/acf/hb/4/15)). Isto significa que o Senhor esteve exposto a todo tipo de tentação às quais estamos expostos também. A grande diferença está no fato de que, sendo ele Deus feito homem, e não participante da linhagem de Adão, não tinha a mesma natureza que herdamos de Adão. O Senhor era tentado, porém sem pecado, ou seja, não havia uma resposta no seu interior que atendesse aos apelos da tentação. Não era possível ele pecar, pois sua natureza, mesmo quando esteve aqui como homem, era uma natureza divina.
+
+Hoje temos a natureza divina, após crermos em Cristo, porém ainda conservamos a velha natureza. Quando somos tentados, temos dentro de nós uma velha natureza pecaminosa que, se permitirmos, irá responder aos apelos da tentação e dará à luz o pecado. Isto nunca acontecia com o Senhor. Ele recebia o ataque da tentação vinda de fora, mas dentro de Si não havia nada que o inclinasse a atender aos apelos da tentação.
+
+Com isto alguém poderia pensar que ficamos, assim, livres de qualquer responsabilidade quando somos tentados. Alguém poderia dizer que não consegue refrear os seus desejos pecaminosos e que o Senhor conseguia porque era diferente de nós. Evidentemente, estamos ainda em um corpo sujeito ao pecado, mas Deus nos dotou de tudo o que precisávamos para que não pecássemos mais. Depende de quem deixarmos que vá atender a porta quando toca a campainha da tentação; ou o velho homem, ou o novo homem.
+
+*****

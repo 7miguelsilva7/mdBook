@@ -1,0 +1,77 @@
+# Os irmãos precisam saber que pequei? {#os-irm-os-precisam-saber-que-pequei}
+
+Sua inquietação, por ter adulterado e confessado apenas ao seu cônjuge mas a nenhum dos irmãos com os quais você mantém comunhão, deixa claro que o assunto não está resolvido nem mesmo em sua consciência, e muito menos para Deus. ”Enquanto eu me calei, envelheceram os meus ossos pelo meu bramido em todo o dia... Confessei-te o meu pecado, e a minha maldade não encobri... e tu perdoaste a maldade do meu pecado”. ([Sl 32](http://bibliaonline.com.br/acf/sl/32)).
+
+Aquele que está em pecado não deve achar que pode decidir sozinho como agir. Ele está em comunhão com outros irmãos que ignoram que estão tendo um relacionamento com alguém em pecado. Além de pecar por sua queda moral, ele passa a pecar por envolver outros com sua contaminação, permitindo que eles inocentemente continuem a tratá-lo como alguém que está andando em obediência ao Senhor. Isso é trair a confiança dos irmãos.
+
+No Antigo Testamento quando alguém tinha lepra (figura do pecado) essa pessoa era excluída da congregação e era obrigada a morar fora do acampamento. Os sacerdotes iam periodicamente examiná-la para ver o estado da lepra. Quando o corpo todo estivesse tomado pela lepra, da cabeça aos pés, então os sacerdotes a consideravam limpa e ela podia voltar a conviver com os israelitas.
+
+Isso parece estranho, mas existe uma aplicação para nós. É só quando fica evidente a todos que pecamos, que estamos convictos da cabeça aos pés de nosso erro, que Deus pode nos considerar limpos.
+
+Se você está preocupado com o que os outros vão pensar, preocupe-se primeiro com o que Deus está pensando. Se você não sabe como lidar com isso em relação aos seus filhos, então estará criando hipócritas religiosos, com uma grande probabilidade de se tornarem sepulcros caiados, limpos por fora, mas sujos por dentro, como eram os fariseus.
+
+Filhos criados assim acabam aprendendo com os pais que precisam apenas parecer perfeitos diante dos irmãos. Eles aprenderão a também varrer seus próprios pecados para debaixo do tapete para evitar o vexame público e a rejeição. Hoje em grande parte das denominações, principalmente nas mais rigorosas, isso é o que acontece. É preciso explicar a seus filhos que você errou, que está arrependido e que agora deve sofrer as consequências de seu pecado, inclusive a reprovação dos irmãos, enquanto espera na misericórdia e graça de Deus.
+
+Se outros irmãos ficam sabendo do pecado e não se manifestam, também pecam pela omissão, ficando na mesma situação do que pecou por serem coniventes. As coisas de Deus devem ser tratadas com seriedade. Veja que até na lei brasileira, um médico que não comunica às autoridades de saúde que um paciente seu está com uma doença infectocontagiosa pode pegar de 6 meses a 2 anos de prisão. Se você trabalha numa empresa e sabe que um funcionário está roubando ou colocando em risco a empresa e seus funcionários, sua omissão certamente custará seu emprego. Serão mandados embora você e ele.
+
+Onde congrego, quando alguém cai em pecado essa pessoa é colocada fora da comunhão à mesa do Senhor tão logo o pecado vem à tona (por ela mesma ou por meio de outros). O assunto não é tratado em público, mas em uma reunião reservada apenas com os irmãos mais responsáveis e a decisão da ação a ser tomada é depois comunicada publicamente aos irmãos, mas sem detalhes. Por exemplo, “O irmão fulano está sendo colocado fora da comunhão à mesa do senhor por pecado moral”. Isto é tudo o que os outros precisam saber para evitar terem comunhão com ele até que seja restaurado, o que é devidamente anunciado quando acontece.
+
+Aquele que pecou não participa da ceia, não ora e nem ministra a Palavra, mas pode assistir as reuniões e sentado no fundo. Quando termina vai para casa e não se relaciona com os irmãos. Enquanto isso alguns irmãos responsáveis continuarão visitando essa pessoa para saber de seu estado, até que fique muito evidente que ela está totalmente convicta de seu mal (é o que significa a lepra da cabeça aos pés). Só então ela é restaurada à comunhão.
+
+Algumas denominações (a sua, por exemplo) não entendem que “pecado para a morte” não se trata de perda de salvação, mas é pecado para a morte física, como aconteceu com Ananias e Safira. E também não entendem que existe um processo de restauração para aquele que pecou. Com isso denominações assim se tornam verdadeiras fábricas de hipócritas, porque todo mundo acaba querendo parecer o que não é.
+
+Os fariseus eram assim, tão rigorosos na Lei que até quando pegaram a mulher “em flagrante adultério” não apresentaram o homem (flagrante de adultério só ocorre se duas pessoas estiverem envolvidas), talvez por ser alguém “honrado” entre eles. Conheci um homem que se dizia cristão e ocupava o cargo de “presbítero” em sua denominação, mesmo tendo duas mulheres, uma oficial e uma amante, e filhos com as duas, passando um tempo em cada casa. Sua vida dupla era notória na cidade, mas o “pastor” nunca ousou mover uma palha contra ele por ser rico e dar polpudas ofertas e dízimos para sua “igreja”. Em algumas denominações, católicas ou protestantes, quando isso acontece com um líder (padre ou pastor) o costume é transferir o padre ou pastor para outra cidade onde ninguém a conheça e ocultar seu pecado.
+
+Podemos aprender como uma assembleia deve agir lendo o que aconteceu com o homem de [1 Coríntios 5](http://bibliaonline.com.br/acf/1co/5) que estava vivendo em pecado moral. Quando o pecado vem à tona fica muito claro que a assembleia em Corinto devia tomar providências e excluir tal pessoa da comunhão (ninguém pode ser excluído da Igreja, que é o corpo de Cristo, mas apenas da comunhão):
+
+([1 Co 5:1](http://bibliaonline.com.br/acf/1co/5/1)) “Geralmente se ouve que há entre vós fornicação, e fornicação tal, que nem ainda entre os gentios se nomeia, como é haver quem abuse da mulher de seu pai”.
+
+A providência necessária era tirar tal pessoa do meio deles, excluí-la da comunhão com os santos (daí vem a palavra “excomunhão” ou “excomungado”):
+
+([1 Co 5:2](http://bibliaonline.com.br/acf/1co/5/2)) “Estais ensoberbecidos, e nem ao menos vos entristecestes por não ter sido dentre vós tirado quem cometeu tal ação”.
+
+Aqui vemos um poder e autoridade que apenas os apóstolos tinham, de entregar uma pessoa a Satanás para a destruição da carne, isto é, a morte física. Pedro fez algo assim com Ananias e Safira em [Atos 5](http://bibliaonline.com.br/acf/atos/5). Hoje não existem apóstolos, e ninguém tem tal poder, mas Deus pode ainda agir e tirar a vida de um crente que insiste em pecar. Deixou de ser um auxílio para Deus e passou a ser um estorvo para o testemunho, portanto Deus o leva.
+
+([1 João 5:16-17](http://bibliaonline.com.br/acf/1jo/5/16-17)) “Há pecado para morte, e por esse não digo que ore. Toda a iniquidade é pecado, e há pecado que não é para morte”.
+
+([1 Rs 13:26](http://bibliaonline.com.br/acf/1rs/13/26)) “E, ouvindo-o o profeta que o fizera voltar do caminho, disse: É o homem de Deus, que foi rebelde à ordem do Senhor; por isso o Senhor o entregou ao leão, que o despedaçou e matou, segundo a palavra que o Senhor lhe dissera”.
+
+Embora morra aqui, a pessoa está salva, mas “como que pelo fogo”, conforme ensina [1 Coríntios 3:15](http://bibliaonline.com.br/acf/1co/3/15): “Se a obra de alguém se queimar, sofrerá detrimento; mas o tal será salvo, todavia como pelo fogo”. Na passagem abaixo o apóstolo faz menção da destruição da carne “para que o espírito seja salvo”:
+
+([1 Co 5:3-5](http://bibliaonline.com.br/acf/1co/5/3-5)) “Eu, na verdade, ainda que ausente no corpo, mas presente no espírito, já determinei, como se estivesse presente, que o que tal ato praticou, Em nome de nosso Senhor Jesus Cristo, juntos vós e o meu espírito, pelo poder de nosso Senhor Jesus Cristo, Seja entregue a Satanás para destruição da carne, para que o espírito seja salvo no dia do Senhor Jesus”.
+
+A permanência de alguém contaminado pelo pecado na congregação acaba contaminando os outros (Na Bíblia o fermento é sempre figura do pecado):
+
+([1 Co 5:6-8](http://bibliaonline.com.br/acf/1co/5/6-8)) Não é boa a vossa jactância. Não sabeis que um pouco de fermento faz levedar toda a massa? Alimpai-vos, pois, do fermento velho, para que sejais uma nova massa, assim como estais sem fermento. Porque Cristo, nossa páscoa, foi sacrificado por nós. Por isso façamos a festa, não com o fermento velho, nem com o fermento da maldade e da malícia, mas com os ázimos da sinceridade e da verdade.
+
+A separação daquele que pecou não se restringe às reuniões da assembleia, mas também no dia a dia. Sua situação é diferente da dos incrédulos, com os quais temos necessariamente de manter contato diário na família, na escola ou no trabalho. Trata-se de alguém que, “dizendo-se irmão”, está pecando. Se eu andar com ele serei visto como cúmplice de seus pecados e acabarei me contaminando. O apóstolo exorta os santos a nem mesmo comerem com tal pessoa:
+
+([1 Co 5:9-11](http://bibliaonline.com.br/acf/1co/5/9-11)) “Já por carta vos tenho escrito, que não vos associeis com os que se prostituem; Isto não quer dizer absolutamente com os devassos deste mundo, ou com os avarentos, ou com os roubadores, ou com os idólatras; porque então vos seria necessário sair do mundo. Mas agora vos escrevi que não vos associeis com aquele que, dizendo-se irmão, for devasso, ou avarento, ou idólatra, ou maldizente, ou beberrão, ou roubador; com o tal nem ainda comais”.
+
+A assembleia que quer estar congregada nos moldes bíblicos tem o dever de julgar o pecado, pois quando deixa de fazê-lo não pode mais querer contar com a presença do Senhor em seu meio. O Senhor não é condescendente com o pecado, portanto não irá se colocar no meio de dois ou três que fazem vista grossa para o pecado, ainda que achem que estão reunidos em nome de Jesus:
+
+([1 Co 5:12-13](http://bibliaonline.com.br/acf/1co/5/12-13)) “Porque, que tenho eu em julgar também os que estão de fora? Não julgais vós os que estão dentro? Mas Deus julga os que estão de fora. Tirai, pois, dentre vós a esse iníquo”.
+
+Mas veja que na segunda carta de Paulo aos Coríntios a essa pessoa foi restaurada à comunhão, depois que todos os passos de disciplina foram cumpridos:
+
+([2 Co 2:4-11](http://bibliaonline.com.br/acf/2co/2/4-11)) “Porque em muita tribulação e angústia do coração vos escrevi, com muitas lágrimas, não para que vos entristecêsseis, mas para que conhecêsseis o amor que abundantemente vos tenho. Porque, se alguém me contristou, não me contristou a mim senão em parte, para vos não sobrecarregar a vós todos. Basta-lhe ao tal esta repreensão feita por muitos. De maneira que pelo contrário deveis antes perdoar-lhe e consolá-lo, para que o tal não seja de modo algum devorado de demasiada tristeza. Por isso vos rogo que confirmeis para com ele o vosso amor. E para isso vos escrevi também, para por esta prova saber se sois obedientes em tudo. E a quem perdoardes alguma coisa, também eu; porque, o que eu também perdoei, se é que tenho perdoado, por amor de vós o fiz na presença de Cristo; para que não sejamos vencidos por Satanás; Porque não ignoramos os seus ardis”.
+
+Veja a ordem das coisas: o pecado trouxe angústia, sofrimento e lágrimas, o que pecou foi repreendido por muitos (como você será repreendido por muitos se não confessar seu pecado aos irmãos?), depois de arrependido foi perdoado pelos irmãos para não ser consumido pela tristeza, e pode contar com o amor de todos para com eles. A assembleia tem o poder administrativo de perdoar (é isto o que significa o “ligar” e “desligar” que o Senhor ensinou em [Mateus 18:17-20](http://bibliaonline.com.br/acf/mt/18/17-20)). O “ligar” e “desligar” aí é da comunhão, nunca do corpo de Cristo ou da salvação eterna. Se homens pudessem “desligar” alguém do corpo de Cristo e da salvação, então teriam poder de salvar pessoas, bastando com isso “ligá-las” a uma religião.
+
+([Mt 18:17-20](http://bibliaonline.com.br/acf/mt/18/17-20)) “E, se não as escutar [as testemunhas do pecado que repreenderam o pecador], dize-o à igreja; e, se também não escutar a igreja, considera-o como um gentio e publicano. Em verdade vos digo que tudo o que ligardes na terra será ligado no céu, e tudo o que desligardes na terra será desligado no céu. Também vos digo que, se dois de vós concordarem na terra acerca de qualquer coisa que pedirem, isso lhes será feito por meu Pai, que está nos céus. Porque, onde estiverem dois ou três reunidos em meu nome, aí estou eu no meio deles”.
+
+O problema então passou a ser a denominação onde estava (talvez parecida com a sua) que considera que não existe restauração para alguém que pecou. Essa gente nunca deve ter lido os Salmos de Davi em que ele fala de seu adultério, e não percebe que o pecado deve ser tratado com rigor, mas isso visando a restauração da pessoa que pecou, e não com o objetivo de massacrá-la.
+
+Depois de publicada a resposta um leitor enviou uma dúvida complementar, perguntando a razão de aquele que pecou não poder confessar publicamente para toda a assembleia o que cometeu. Minha resposta segue abaixo:
+
+Aprendemos das epístolas que Deus estabeleceu presbíteros (anciãos ou bispos) para cuidar dos assuntos locais da assembleia. Nos tempos dos apóstolos eles eram NOMEADOS por autoridade apostólica, direta ou delegada (como no caso de [Tito 1:5](http://bibliaonline.com.br/acf/tt/1/5)), hoje eles não são nomeados ou eleitos, pois não temos apóstolos. Mas eles são reconhecidos na pessoa de irmãos que notamos ter um interesse e cuidado maior com a vida prática da assembleia.
+
+Quando alguém cai em pecado, não é adequado que se levante e faça uma confissão pública, pois isso só iria contaminar ainda mais a assembleia. Há irmãs e irmãos (e crianças) mais sensíveis que nem sempre têm estrutura para lidar com certas situações, e podem ficar escandalizados caso alguém fale em detalhes os Atos que cometeu.
+
+Mas é perfeitamente normal que alguém em pecado confesse aos irmãos que percebe serem os que têm o cuidado da assembleia, e estes poderão discutir o assunto detalhadamente em privado, pedindo a direção do senhor quanto ao tipo de disciplina a ser aplicada. Uma vez encontrada a melhor maneira, esta é então anunciada à assembleia, porém em linhas gerais, algo como “O irmão fulano está sendo colocado fora de comunhão por pecado moral [ou pecado doutrinário]”.
+
+Se alguém que não participe das reuniões de irmãos que costumam ser promovidas para resolver estas questões quiser mais detalhes, poderá procurar os irmãos que tomaram a decisão. É importante entender que não existe uma “junta de homens” que tomam a decisão, mas apenas um cuidado de não envolver a assembleia como um todo na questão se isso não trouxer qualquer proveito.
+
+O mesmo é feito quando alguém pede seu lugar à comunhão. Esse pedido é anunciado à assembleia e então os irmãos responsáveis (e se alguém mais quiser fazê-lo) conversarão com a pessoa para saber como está a vida dela, se não está em pecado, se não tem ideias contrárias à doutrina, etc. Uma vez que exista paz, é anunciado que os irmãos não encontraram nada em contrário ao recebimento daquela pessoa à comunhão e na ceia do Senhor da semana seguinte ela pode ter seu lugar. Nesse ínterim se alguém souber de algo que desabone a pessoa poderá trazer em particular para os irmãos.
+
+*****

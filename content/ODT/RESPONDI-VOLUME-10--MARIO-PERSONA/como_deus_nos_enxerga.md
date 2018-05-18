@@ -1,0 +1,15 @@
+# Como Deus nos enxerga? {#como-deus-nos-enxerga}
+
+Pessoas com algum tipo de queimadura precisam ter suas escaras arrancadas para que a pele nova apareça. A pele nova já está lá, escondida, mas evitamos mexer nas escaras da velha pele porque dói. Assim somos nós também depois que cremos em Cristo: temos agora uma nova natureza que é perfeita como a nova pele sob as escaras, e é assim que Deus nos vê e é assim que nos deixará entrar na sua presença. Mas as feias escaras do velho homem ocultam esse novo homem e ao menos que sejam arrancadas continuaremos andando aqui como esses zumbis horríveis que somos no velho homem.
+
+O primeiro passo para andarmos em novidade de vida é saber que estamos livres desse cadáver ambulante pela morte de Cristo. Daí em diante é um processo minuto a minuto de nos desvencilharmos dele considerando-o como ele verdadeiramente é visto por Deus: morto. &quot;Desventurado homem que sou! Quem me livrará do corpo desta morte? Graças a Deus por Jesus Cristo, nosso Senhor” ([Rm 7:24-25](http://bibliaonline.com.br/acf/rm/7/24-25)). Só assim o que é novo, que já temos em Cristo e já nos pertence, pode vir à tona. Mas esse desvencilhar-se do velho homem para nos revestirmos do novo também só é possível em Cristo e não no poder do velho homem ou da Lei.
+
+Deus nos vê em Cristo e é esta nossa segurança. &quot;Portanto, agora nenhuma condenação há para os que estão em Cristo Jesus” ([Rm 8:1](http://bibliaonline.com.br/acf/rm/8/1)). &quot;Porque já estais mortos, e a vossa vida está escondida com Cristo em Deus” ([Cl 3:3](http://bibliaonline.com.br/acf/cl/3/3)).
+
+Gostei desta historinha que li e que indica que na presença de Deus você só entra se estiver muito bem acompanhado:
+
+&quot;Um poderoso rei senta-se em seu trono para julgar o povo. Auxiliado pelos guardas, seus súditos aguardam em longas filas por uma audiência com o rei. De repente as portas do salão se abrem de supetão com grande ruído e todos olham para a entrada com a respiração em suspense. Surgem ali dois garotinhos, um está limpo e outro chora por estar coberto de lama. Resoluto, o garoto limpo agarra o outro e o arrasta pelo tapete vermelho em direção ao trono. Os guardas desembainham suas espadas esperando por um sinal do rei para se livrarem daqueles intrusos. Mas o rei levanta sua mão e seu rosto se abre em um sorriso. O primeiro garoto para diante do rei e puxa o sujo para mais perto de si, dizendo, &#039;Papai, este é meu amigo. Ele está machucado e com medo. Eu disse a ele que você poderia ajudá-lo&#039;. O rei abre seus braços e abraça os dois garotos, sem se importar com a lama que suja suas vestes reais. Então olha para os olhos assustados do garoto enlameado e diz: &#039;Qualquer amigo de meu filho é bem-vindo. Vou ajudar você” (traduzido e adaptado de &quot;GotQuestions.org&quot;).
+
+&quot;Mas agora em Cristo Jesus, vós, que antes estáveis longe, já pelo sangue de Cristo chegastes perto”. ([Ef 2:13](http://bibliaonline.com.br/acf/ef/2/13)).
+
+*****

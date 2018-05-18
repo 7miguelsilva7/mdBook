@@ -1,0 +1,13 @@
+# Epilepsia é possessão demoníaca? {#epilepsia-possess-o-demon-aca}
+
+Quanto à sua pergunta, a epilepsia é uma doença e não possessão demoníaca. Existe a possessão, conforme encontramos na Bíblia, que é algo espiritual e não físico. Um espírito maligno se apodera do corpo de alguém (nunca de um crente) e faz o que quer. Segundo a Bíblia, uma pessoa que diz incorporar o espírito de um morto pode ser na verdade uma forma de histerismo sem qualquer conotação espiritual, como pode ser também uma possessão demoníaca. Neste caso o suposto espírito é, na verdade, um anjo caído ou demônio que incorpora no médium, que acredita estar sendo incorporado pelo espírito de um morto.
+
+Mas a epilepsia é uma enfermidade que hoje em dia já pode ser tratada com remédios. Imagine nosso cérebro como se fosse algum eletrodoméstico. Se algum fio se solta, então interrompe o funcionamento, pois deixa de passar eletricidade por ali. Nosso cérebro também funciona mais ou menos assim. Os neurônios se comunicam com fraquíssimos impulsos elétricos, como se fossem fios deixando passar eletricidade por eles. São estes impulsos elétricos que são revelados quando alguém faz um exame com aqueles aparelhos que desenham linhas representando o funcionamento do cérebro.
+
+Existem condições químicas ideais para que os neurônios do cérebro permitam a passagem dessas minúsculas correntes elétricas que vão manter o conjunto todo funcionando. Quando há alguma alteração física dos neurônios, ou nesse meio químico, os neurônios deixam de se comunicar de maneira eficaz, chegando até a interromper a passagem da corrente. Aí acontece o ataque epiléptico. O cérebro começa a mandar sinais atrapalhados para o corpo, como se fosse um rádio sofrendo interferência, e a pessoa perde o controle de si. Quando as condições se estabilizam, a pessoa volta a si e recupera o controle.
+
+Mas isso nada tem a ver com demônios. É um processo puramente físico. Tanto é que basta fazer um tratamento e tomar diariamente os medicamentos adequados para manter a ligação dos neurônios, e a pessoa pode levar uma vida normal. Alguns chegam até a ser curados com um tratamento correto. Pessoas que sofreram derrame cerebral ou que bateram a cabeça em algum acidente, também costumam ter convulsões pelas mesmas razões.
+
+A ignorância leva as pessoas a atribuir ao mundo espiritual muitas coisas que são puramente físicas. O catolicismo, na Idade Média, levou muitos a serem queimados em fogueiras por coisas assim. E hoje muitos sofrem nas mãos de pregadores ignorantes.
+
+*****

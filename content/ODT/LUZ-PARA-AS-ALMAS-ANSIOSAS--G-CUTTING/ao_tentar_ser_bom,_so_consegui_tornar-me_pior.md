@@ -1,0 +1,21 @@
+# Ao tentar ser bom, só consegui tornar-me pior. {#ao-tentar-ser-bom-s-consegui-tornar-me-pior}
+
+Não encontramos talvez um erro mais comum do que supor que salvação significa um aperfeiçoamento gradual do indivíduo, uma melhora, até que ele se encontre finalmente em condições para estar na presença de Deus, pronto para o céu.
+
+Mas a Bíblia torna claro que a salvação vem somente pela fé na obra de Cristo, consumada na cruz de uma vez por todas.
+
+Sabemos que o apóstolo Pedro ficou &quot;cheio do Espírito Santo&quot; quando testemunhou corajosamente diante das autoridades e anciãos de Israel, &quot;E em nenhum outro há salvação, porque também debaixo do céu nenhum outro nome há, dado entre os homens, pelo qual devamos ser salvos&quot; ([At 4.12](http://bibliaonline.com.br/acf/atos/4/12)).
+
+Torna-se necessário entender claramente que o Espírito Santo jamais é apresentado como nosso Salvador, como se Ele tivesse morrido pelos nossos pecados. Através do Espírito Eterno é que Cristo ofereceu-se, sem mácula, a Deus ([Hb 9.14](http://bibliaonline.com.br/acf/hb/9/14)). Mediante a obra do Espírito em nossas almas nos tornamos sensíveis à nossa necessidade de Cristo e de Seu sacrifício. O Espírito é que efetivamente aponta a obra de Cristo a toda alma despertada. No entanto, o trabalho do Espírito em nós não é a base da paz. &quot;_Sendo pois justificados pela fé, temos paz com Deus, por nosso Senhor Jesus Cristo_&quot; ([Rm 5.1](http://bibliaonline.com.br/acf/rm/5/1)), pois foi Ele que &quot;por nossos pecados foi entregue, e ressuscitou para nossa justificação&quot; ([Rm 4.25](http://bibliaonline.com.br/acf/rm/4/25)). Vamos examinar a idéia simples de &quot;sede&quot; usada repetidamente nas Escrituras para descrever a necessidade de um pobre pecador: &quot;Se alguém tem sede&quot;, disse o Senhor bendito, &quot;venha a mim, e beba&quot; ([Jo 7.37](http://bibliaonline.com.br/acf/jo/7/37)). Até uma criança, se lhe perguntássemos isso, poderia dizer _que a sede é o resultado de algo produzido no interior de nosso corpo_; _o que mata essa sede é algo provido exteriormente_ e quando esta provisão externa é aplicada à necessidade interna, a sede é extinta.
+
+Quando o testemunho da palavra de Deus, quanto à morte de Cristo, é recebido pela fé por parte de um pecador com a consciência atormentada, o resultado é paz. Eu merecia a morte e a condenação, ele lhe dirá, mas Cristo bebeu a taça do juízo e morreu em meu lugar; meus pecados eram inúmeros, mas Deus, que os conhecia, colocou os mesmos sobre o Seu Filho amado, como meu substituto, e o juízo completo sobre eles recaiu sobre a Sua bendita cabeça. Toda a minha perversidade foi exposta; nada ficou oculto; nada escapou ao julgamento. &quot;Ele foi ferido pelas nossas transgressões&quot;, &quot;Foi entregue pelas nossas ofensas&quot;, Deus ressuscitou-o dentre os mortos e a paz da alma é obtida através da fé nEle e no Deus que o ressuscitou.
+
+Não se trata de um &quot;aperfeiçoamento cada vez maior&quot; da nossa parte. Se Deus não pudesse salvar-nos até que fôssemos suficientemente bons para merecê-lo, não haveria esperança para nós. Em lugar de estabelecer um determinado padrão de mérito a ser atingido pelo homem, Ele nos ensina dois fatos bem dolorosos sobre a nossa natureza:
+
+1.  Nossa condição de pecadores.
+
+2.  Nossa incapacidade de salvar-nos a nós mesmos.
+
+Devemos aprender que não somos apenas culpados e ímpios, mas também que não temos poder para nos tornar aquilo que desejaríamos ser.
+
+Só depois de repetidos esforços de reforma, após inúmeras decisões não levadas a termo, é que o versículo 6 do capítulo 5 de Romanos foi aplicado à alma sequiosa do escritor, &quot;Porque Cristo, estando nós ainda fracos, morreu a seu tempo pelos ímpios&quot;; assim como a água satisfaz a necessidade de um viajante sedento perdido no deserto, esse versículo satisfez a sua necessidade. O seu passado dera provas abundantes de que era &quot;ímpio&quot;, enquanto todos os seus esforços infrutíferos para ser o que um cristão deveria ser provaram apenas que era &quot;fraco&quot;. Mas agora, &quot;Minha sede foi saciada, minha alma reviveu, E vivo hoje nEle&quot;.

@@ -1,0 +1,3 @@
+# Apocalipse {#apocalipse}
+
+Você pode dividir o livro de Apocalipse bem no meio. Há vinte e dois capítulos. Tome os onze primeiros e você descobrirá que estão em ordem cronológica; isto é, o Espírito de Deus coloca os eventos um após o outro à medida que vai tratando com a Terra. Do décimo segundo capítulo até o final Ele apresenta as coisas por tópicos, não cronologicamente. Em alguns casos, o tópico é uma pessoa ou nação, em outros, é um assunto, tal como a vinda do Senhor e quais as consequências daquela vinda para a Terra, ou uma descrição de como Jerusalém e Israel parecerão no futuro.

@@ -1,0 +1,7 @@
+#### 2) &quot;Separar-se nao e&#039; demonstrar amor!&quot; {#2-separar-se-nao-e-demonstrar-amor}
+
+Alguns cristãos acham que separar-se de outros crentes que têm &quot;diferentes opiniões&quot; é uma medida extrema demais e que isso não seria uma demonstração de amor.
+
+Todavia a Bíblia diz que a maior prova de amor que podemos demonstrar pelos filhos de Deus é por meio de nossa obediência pessoal a Deus. **&quot;Nisto conhecemos que amamos os filhos de Deus, quando amamos a Deus e guardamos os seus mandamentos&quot;** ([1 João 5:2-3](http://bibliaonline.com.br/acf/1jo/5/2-3)). A pergunta que fazemos é: &quot;O que é mais importante, a obediência a Deus, que é uma demonstração de nosso amor por Ele, ou continuar numa posição contrária à Bíblia por querermos mostrar que amamos as pessoas que estão ali?&quot; Desobedecer as Escrituras não é amor.
+
+Uma coisa é fazer parte de uma organização chamada &quot;igreja&quot; por ignorar a ordem de Deus dada nas Escrituras, e outra bem diferente é permanecer ali quando sabemos o que é correto ([Tiago 4:17](http://bibliaonline.com.br/acf/tg/4/17)). Jamais deveríamos colocar o povo de Deus antes de Deus -- é Deus quem deve vir primeiro. O Senhor Jesus disse: **&quot;Se me amais, guardai os meus mandamentos... aquele que tem os meus mandamentos e os guarda esse é o que me ama&quot;** ([João 14:15, 21](http://bibliaonline.com.br/acf/jo/14/15,21)).

@@ -1,0 +1,11 @@
+# O que você acha dos testemunhos? {#o-que-voc-acha-dos-testemunhos}
+
+Todo testemunho que leva as pessoas a olharem para Cristo é válido, como vemos nos testemunhos de conversão dos primeiros cristãos. Todavia hoje em dia está muito em voga um tipo de testemunho que não traz nenhuma glória para Deus e que só serve para expor as obras da carne e glorificar o homem. Refiro-me a alguns pregadores e programas de rádio e TV que comercializam os testemunhos. Quanto mais horríveis forem as experiências passadas, maior audiência conseguirão.
+
+Falar de nossos pecados nunca irá servir para glorificar a Deus, pois ele próprio lançou nossos pecados no esquecimento. Por que razão haveríamos de trazê-los à memória vez após outra? Certa vez li um livro, publicado por uma editora evangélica, que contava a vida de uma ex-prostituta. Noventa por cento do livro descrevia como ela se prostituía e uns dez por cento foram reservados para falar de sua conversão. Você deve imaginar que não saí muito edificado daquela leitura. Na realidade, os crentes que sabem que não devem ler coisas obscenas ou assistir filmes de violência e terror estão tendo sua carne alimentada dentro das próprias denominações, com relatos de imoralidades, violência e experiências diabólicas cometidas no passado.
+
+Escrevo tudo isso porque sei como é fácil nos deixarmos levar pelo interesse que as pessoas têm na devassidão, empolgando-nos a descrever os detalhes de pecados cometidos. Devemos antes falar de Cristo e de sua obra para salvar qualquer pecador, desde o pior dos malfeitores, até o mais refinado religioso. Todos pecaram e destituídos estão da glória de Deus.
+
+Lembro-me que logo após minha conversão, fui falar com um primo meu, contando-lhe minha experiência e esperando que aquilo fosse servir para motivá-lo a aceitar o Senhor. Não adiantou nada. Depois de dar a ele um testemunho completo do que eu era e do que fazia, e que havia me convertido, ele me respondeu: &quot;Isso tudo é muito bom para você, mas eu não preciso disso. Minha vida sempre foi tranquila e nunca passei pelo que você passou.&quot; A porta foi fechada e nada pude fazer para levá-lo a entender que Cristo salva pecadores. A impressão que meu testemunho havia deixado era a de que pecadores são aqueles que praticam coisas muito ruins, ou que não têm uma religião.
+
+*****

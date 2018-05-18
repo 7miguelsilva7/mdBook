@@ -1,0 +1,49 @@
+# Como evitar ser tentado? {#como-evitar-ser-tentado}
+
+(A pergunta veio acompanhada de links para vídeos de uma cantora no ‘YouTube’ e a indagação se assistir aquilo poderia ser errado)
+
+Não conhecia a cantora, mas a música é famosa. A apresentação é belíssima e, obviamente, utiliza bem os recursos da TV. Maquiagem, iluminação e lentes transformam pessoas comuns em verdadeiros deslumbres, portanto não acredite em tudo o que vê no cinema ou na TV. Havia um seriado “A gata e o rato” com o Bruce Willis que usava diferentes lentes. Quando a câmera dava um close no Bruce Willis, era lente comum. Quando dava um close na artista (não sei o nome) era lente esfumaçada nas bordas, para deixá-la deslumbrante.
+
+Eu não vejo nada de errado em uma canção ou apresentação assim, pois é uma canção romântica e algo perfeitamente natural cantar o amor. Afinal, há um livro na Bíblia que é, ele todo, uma canção de amor: Cantares. Se ele não estivesse na Bíblia, muitos cristãos o repudiariam pela ousadia com que trata o tema, inclusive o aspecto sexual do relacionamento marido-esposa. Obviamente ali não se trata de sexo ilícito, mas da relação do Senhor com Sua amada (no caso é Israel), representado pela mulher.
+
+Você perguntou: “Considerando a opção sexual do compositor da canção do vídeo, contrária à Palavra de Deus, não seria errado assistir por esta razão?”.
+
+Não conheço o compositor. De qualquer modo, eu não me preocuparia muito em ir a fundo à biografia de alguém para saber detalhes, quando não é isso que está sendo exposto em sua canção. Existe uma corrente dentro das igrejas evangélicas que adora se ocupar do mal. São pastores que ganham a vida pregando contra o He Man, os desenhos da Disney, as músicas da Xuxa e coisas do tipo. Aí eles vêm dizer que você deve pegar uma lente e examinar a embalagem de um desenho da Disney para ver que o detalhe se assemelha a um órgão sexual, ou deve tocar a música da Xuxa ao contrário para descobrir mensagens demoníacas.
+
+Ora, se vivermos neste mundo de lente em punho, vamos descobrir aquilo que a Bíblia já ensina, que o mundo jaz no maligno, e que tudo o que há no mundo não procede de Deus, mas do mundo (entenda “mundo” não como o planeta, mas como o sistema humano de coisas, a civilização).
+
+Devemos ser símplices como a pomba, que não anda de lupa na mão, e astutos como a serpente, que sabe muito bem identificar algo como perigoso. É assim que deve ser. Se você enxergar que isso é uma ameaça para sua fé, fuja. Mas, volto a dizer, não fique por aí preocupado em divulgar o mal, pois é isso que muitos cristãos hoje estão fazendo, até mesmo entrevistando pessoas possessas para conhecer o que o diabo tem a dizer.
+
+Isso me lembra a piada da mulher que chamou a polícia para avisar que o homem do apartamento vizinho estava se exibindo nu na janela. A polícia chegou, olhou pela janela e não viu nada. Aí a mulher disse ao policial: “Mas experimenta subir na geladeira que você vai ver”.
+
+Uma vez um rapaz escreveu indagando como eu podia usar o software Greymatter (usava em dois outros de meus blogs) em razão da opção sexual de seu autor. Respondi que se eu fosse investigar a vida íntima de todos os que trabalharam no Windows, iria descobrir várias pessoas que não andam conforme o que ensina a Bíblia que, obviamente, condena o homossexualismo. Mas, o que fazer? Deixar de usar o Windows? O computador? O automóvel? Parar de comer a pizza do restaurante da esquina? Recusar-me a ser tratado pelos profissionais de saúde se ficar internado?
+
+Evidentemente devo procurar evitar qualquer associação com o mal, mas se eu sair por aí ocupado com o mal e investigando cada coisa que utilizo em meu dia-a-dia, vou morrer de fome, de frio, de sede ou de alguma doença, pois certamente algum plantador de feijão, entregador de água, dono de confecção ou médico não deve estar com sua vida moral em dia. Resumindo: a ocupação do cristão deve ser com as coisas do alto, e a exortação também vale para quem fica ocupado com o mal, que causa sensação, sob o pretexto de estar avisando as pessoas de seus malefícios. É o que fazem os pastores que fazem disso sua bandeira nos programas de rádio e TV. Isso certamente não é estar ocupado com Cristo.
+
+Quanto à sua outra pergunta, a respeito de evitar as tentações, o fato de ser tentado pelo que vê ou acontece ao seu redor só mostra que você não está morto. Mas aí entra a questão. Embora nosso corpo não esteja morto aos olhos de todos, ele deveria estar ocupando essa posição, já que está morto aos olhos de Deus. O cristão ainda tem sua carne viva e ativa, mas deve mortificá-la (considerá-la morta), pois é este o lugar onde ela foi colocada ao recebermos a nova vida. Porém, se eu viver lidando com a carne, ainda que seja na tentativa de mantê-la quieta, isso continuará sendo ocupação com a carne. Era o que faziam os monges que se flagelavam. Ora, enquanto estavam batendo na carne, estavam ocupados com ela, para bem ou para mal.
+
+([Gl 5:16-18](http://bibliaonline.com.br/acf/gl/5/16-18)) “Digo, porém: Andai em Espírito, e não cumprireis a concupiscência da carne. Porque a carne cobiça contra o Espírito, e o Espírito contra a carne; e estes opõem-se um ao outro, para que não façais o que quereis. Mas, se sois guiados pelo Espírito, não estais debaixo da lei”.
+
+Veja o que diz aí. Não é combatendo a carne que andamos no Espírito, mas é andando no Espírito que este (o Espírito) combate a carne. Outra coisa que diz é que somos guiados pelo Espírito e não pela lei. As duas coisas não podem coexistir. Se eu me deixo levar pela lei (não faça isto, não faça aquilo), então não estou sendo guiado pelo Espírito. Se eu me ocupo com o Espírito, é ele quem irá cuidar do resto.
+
+Você se lembra de quando era criança e ganhava um presente há muito desejado? O que acontecia então? Seus pais precisavam obrigá-lo a almoçar e jantar, porque você até se esquecia das necessidades básicas. Ficava tão encantado com o presente que só queria brincar, e só ia fazer xixi quando a coisa ficava apertada demais. É assim que funciona: quando estamos entretidos e encantados com alguma coisa, deixamos naturalmente de fazer as outras, sejam elas boas ou ruins. É a atração pelas coisas que pertencem a Cristo que nos faz deixar as coisas que não agradam a ele. Os judeus tentaram fazer isso pela lei e não conseguiram. Mas nós temos o Espírito.
+
+Obviamente, em última instância, nós não perdemos o controle de decidir o que queremos fazer, e quando pecamos é porque queremos pecar. Mas, como diz o ditado, “você não pode evitar que os pássaros voem sobre sua cabeça, mas pode evitar que façam ninho em seus cabelos”. Se eu perceber que algo, seja música, vídeo, imagem, ambiente, amizade ou o que for, está me fazendo desviar para aquilo que é pecaminoso, então devo evitar essas coisas ou situações.
+
+José fugiu da mulher de Potifar correndo para escapar de uma circunstância que ele sabia não ter poder para lidar contra ela. Davi, no dia em que os reis iam à guerra, ficou em casa, acordou tarde, viu Bateseba tomando banho pela janela (não diz se precisou subir na geladeira para isso), mandou buscá-la e deu no que deu. Se ele tivesse feito o que os reis faziam naquela época, não estaria em casa, não acordaria tarde, não olharia pela janela...
+
+E aconteceu que, tendo decorrido um ano, no tempo em que os reis saem à guerra, enviou Davi a Joabe, e com ele os seus servos, e a todo o Israel; e eles destruíram os filhos de Amom, e cercaram a Rabá; porém Davi ficou em Jerusalém. E aconteceu que numa tarde Davi se levantou do seu leito, e andava passeando no terraço da casa real, e viu do terraço a uma mulher que se estava lavando; e era esta mulher mui formosa à vista. E mandou Davi indagar quem era aquela mulher; e disseram: Porventura não é esta Bate-Seba, filha de Eliã, mulher de Urias, o heteu? Então enviou Davi mensageiros, e mandou trazê-la; e ela veio, e ele se deitou com ela (pois já estava purificada da sua imundícia); então voltou ela para sua casa.”. ([2 Sm 11:1-4](http://bibliaonline.com.br/acf/2sm/11/1-4)).
+
+Você perguntou: “Você acha melhor evitar vídeos com apresentações como as da cantora que mencionei?”.
+
+Não existe uma lei para isso. Tudo depende de seu exercício com o Senhor. Tem gente que enxerga coisas com a mente que podem não estar tão patentes ou serem explícitas. Uma pessoa com problemas de alcoolismo não pode ver uma garrafa. Sei de um rapaz que foi trancado no quarto pela mãe para não beber e esvaziou todos os vidros de perfume. Coisas lícitas podem ser instrumento de pecado para uns, mas não para outros. Vai do seu discernimento, experiência, etc. O dono de uma confecção de roupas íntimas está enjoado de ver e pegar em calcinhas o dia todo, mas a simples visão de uma por outra pessoa pode fazer sua mente dar piruetas.
+
+E, se a tua mão te escandalizar, corta-a; melhor é para ti entrares na vida aleijado do que, tendo duas mãos, ires para o inferno, para o fogo que nunca se apaga” ([Mc 9:43](http://bibliaonline.com.br/acf/mc/9/43)).
+
+Obviamente o objetivo aí não é cortar a mão (algumas pessoas já fizeram literalmente isso, com a mão e outros membros do corpo!), mas trata-se de uma analogia, ou seja, qualquer coisa que possa me servir de tropeço é melhor eu tirá-la de perto. Se eu for um alcoólatra, pode ser preciso evitar perfumes.
+
+Mas às vezes somos obrigados a abrir mão de certas coisas não por nós mesmos, mas pelo dano que elas podem causar aos que nos cercam. Isso porque podemos ser fortes ou indiferentes a elas, mas outros não. E isso pode incluir coisas tão inócuas quanto comer e beber.
+
+Não destruas por causa da comida a obra de Deus. É verdade que tudo é limpo, mas mal vai para o homem que come com escândalo. Bom é não comer carne, nem beber vinho, nem fazer outras coisas em que teu irmão tropece, ou se escandalize, ou se enfraqueça.” ([Rm 14:20-21](http://bibliaonline.com.br/acf/rm/14/20-21)).
+
+*****

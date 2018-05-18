@@ -1,0 +1,3 @@
+# Qual a definição mais simples duma igreja, ou assembléia local? {#qual-a-defini-o-mais-simples-duma-igreja-ou-assembl-ia-local}
+
+“Onde estiverem dois ou três reunidos em meu Nome( ou reunidos ao meu Nome )”, disse o Senhor Jesus, “aí estou Eu no meio deles” ([Mt 18:20](http://bibliaonline.com.br/acf/mt/18/20)). Esta última condição, a presença do Senhor, é que constitui a essência da verdadeira assembléia cristã.

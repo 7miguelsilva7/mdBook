@@ -1,0 +1,3 @@
+# Isaías {#isa-as}
+
+Vamos dar uma olhada em [Isaías 1:1](http://bibliaonline.com.br/acf/is/1/1): &quot;Visão de Isaías, filho de Amós, a qual ele viu a respeito de Judá e Jerusalém&quot;. Temos uma chave bem aqui. Deus diz que vai contar a eles quais são os Seus propósitos concernentes a Judá e Jerusalém. &quot;Nos dias de Uzias, Jotão, Acaz, e Ezequias, reis de Judá. Ouvi, ó céus, e presta ouvidos, tu ó terra, porque fala o Senhor: Criei filhos, e exalcei-os; mas eles prevaricaram contra mim.&quot; Deus nos diz que tomou a Jerusalém, Judá e Seu povo e os alimentou e cuidou deles e zelou por eles, e ainda assim eles se rebelaram contra Ele. Então Ele trata daquele caso como de um povo rebelde.

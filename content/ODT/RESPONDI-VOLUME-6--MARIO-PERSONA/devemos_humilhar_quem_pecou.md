@@ -1,0 +1,51 @@
+# Devemos humilhar quem pecou? {#devemos-humilhar-quem-pecou}
+
+Aquilo que você ouviu os irmãos explicarem em uma das gravações das conferências é a forma bíblica de se exortar alguém. Sempre é bom lembrar-se de uma passagem do Antigo Testamento que é repetida três vezes: “Não cozerás o cabrito no leite de sua mãe”. ([Ex 23:19](http://bibliaonline.com.br/acf/ex/23/19); [Êxodo 34:26](http://bibliaonline.com.br/acf/ex/34/26); [Deuteronômio 14:21](http://bibliaonline.com.br/acf/dt/14/21)).
+
+O leite é aquilo que Deus criou para alimentar e dar vida ao filhote, portanto jamais deve ser usado para matá-lo. Do mesmo modo, a Palavra de Deus não deve ser usada para humilhar pessoas ou como arma contra elas. Muita gente usa a Palavra como sua própria espada, sem perceber que em [Efésios 6:17](http://bibliaonline.com.br/acf/ef/6/17) ela é chamada de “espada do Espírito”, e não nossa.
+
+Algumas pessoas gostam de sair por aí brandindo a espada da Palavra como se fosse a sua própria espada, e não do Espírito, com a intenção de ferir os outros. Isso dá a essas pessoas um estranho prazer, pois quando os feridos se voltam contra elas por usarem mal a Palavra de Deus, elas alegam que estão sendo perseguidas por causa da sua fé, quando na verdade é por causa da sua falta de amor que estão sofrendo rejeição.
+
+Além disso, somente o Espírito é capaz de usar essa Palavra “viva e eficaz, e mais penetrante do que espada alguma de dois gumes, e penetra até à divisão da alma e do espírito, e das juntas e medulas, e é apta para discernir os pensamentos e intenções do coração”. ([Hb 4:12](http://bibliaonline.com.br/acf/hb/4/12)) Não cabe ao homem achar que tem poder para fazer isso.
+
+Portanto, nunca devemos aplicar a Palavra de Deus “contra” os homens (a pessoa), mas sim contra os seus sofismas, ideias, conselhos ou altivez, e também contra os anjos caídos e os demônios ou espíritos malignos (principados e potestades).
+
+([2 Co 10:3-5](http://bibliaonline.com.br/acf/2co/10/3-5)) “Porque, andando na carne, não militamos segundo a carne. Porque as armas da nossa milícia não são carnais, mas sim poderosas em Deus para destruição das fortalezas; Destruindo os conselhos, e toda a altivez que se levanta contra o conhecimento de Deus, e levando cativo todo o entendimento à obediência de Cristo”.
+
+([Ef 6:12](http://bibliaonline.com.br/acf/ef/6/12)) “Não temos que lutar contra a carne e o sangue, mas, sim, contra os principados, contra as potestades, contra os príncipes das trevas deste século, contra as hostes espirituais da maldade, nos lugares celestiais”.
+
+Quanto aos incrédulos, não vejo muito proveito em exortá-los por andarem errado, porque antes de qualquer coisa eles precisam crer em Jesus para serem salvos. O incrédulo mais correto deste mundo ainda assim irá para o lago de fogo se não crer em Jesus. Portanto, se encontrar alguém praticando o mal, procure ter a certeza de encaminhá-lo à salvação que há em Cristo. Jesus convida o pecador a ir a ele como está. É a nova vida que o pecador recebe de Deus que lhe dará o querer e o poder para deixar suas práticas erradas.
+
+Você encontra hoje muita pregação contra as drogas, contra o crime, contra o fumo, contra a bebida, contra isso e aquilo, mas nem sempre tem algo a ver com o evangelho. Pode ser muito bom querer que as pessoas abandonem seus vícios, mas uma vida limpa e correta não irá salvá-las do fogo eterno. O evangelho que Paulo pregava e que nós devemos pregar continua sendo: “Cristo morreu por nossos pecados, segundo as Escrituras, E que foi sepultado, e que ressuscitou ao terceiro dia, segundo as Escrituras” ([1 Co 15:1-4](http://bibliaonline.com.br/acf/1co/15/1-4)).
+
+Sobre os seus familiares, creio ser suficiente eles saberem sua posição, portanto o melhor daqui para frente é orar por eles, a menos que eles perguntem algo. Quando insistimos em querer convencer alguém, podemos causar o efeito contrário, endurecendo cada vez mais seu coração.
+
+([Pv_29/1](http://bibliaonline.com.br/acf/pv/29/1)) “O Homem que muitas vezes repreendido endurece a cerviz, de repente será destruído sem que haja remédio”.
+
+Falando daqueles que creem e estão em comunhão, quando algum irmão cai em pecado grave, dois ou mais irmãos devem conversar com ele para admoestá-lo sobre o seu erro. Dependendo da gravidade do pecado ele pode sofrer restrições, como ficar sem ministrar (caso esteja pregando coisas duvidosas), sem visitar irmãos (caso esteja influenciando pessoas ao erro), etc., até a assembleia chegar à forma mais extrema da disciplina, que é colocá-lo fora da comunhão à mesa do Senhor.
+
+Os detalhes de seu pecado e da ação que deve ser tomada são discutidos numa reunião privada entre os irmãos responsáveis (geralmente os mais velhos e mais atuantes no cuidado da assembleia) e depois apenas a decisão final é levada publicamente à assembleia. Onde congrego fazemos uma reunião assim uma vez por mês para tratar de assuntos gerais, como as necessidades dos santos, a obra do evangelho e também eventualmente de algum caso de pecado. Mas o assunto é tratado a portas fechadas para não contaminar desnecessariamente a mente dos mais fracos na fé e também para evitar constrangimentos desnecessários para a pessoa que pecou. Nunca devemos nos esquecer de que a disciplina de Deus é a disciplina exercida em amor.
+
+([Hb 12:6](http://bibliaonline.com.br/acf/hb/12/6)) “Porque o Senhor corrige o que ama, E açoita a qualquer que recebe por filho”.
+
+Por exemplo, se o irmão caiu em adultério ou fornicação, depois de discutida a questão na reunião de irmãos, será anunciado à assembleia apenas que ele foi colocado fora de comunhão por pecado moral. Os detalhes terão sido discutidos antes na reunião de irmãos para chegar a uma decisão. O objetivo é aplicar a disciplina sem constranger. Pais que disciplinam seus filhos devem fazê-lo em amor, e isso inclui evitar discipliná-los em público, mas levá-los a um lugar reservado. O amor visa a restauração do culpado, não a sua destruição completa, mas o orgulho religioso faz questão de exibir o pecado de alguém porque isso faz com que os que não pecaram se sintam mais justos. Foi o caso dos homens que levaram a mulher adúltera a Jesus e depois saíram de fininho quando o Senhor revelou o que havia em seus corações.
+
+Quando você lê [1 Coríntios 5](http://bibliaonline.com.br/acf/1co/5), encontra um caso de pecado grave que o apóstolo Paulo diz que precisa ser tratado com urgência para não contaminar toda a assembleia. Mas em [2 Coríntios 2](http://bibliaonline.com.br/acf/2co/2) tudo indica que tal pessoa tenha se arrependido e agora deveria ser restaurada à comunhão à mesa do Senhor. Veja que aqui aparece a palavra “amor”, pois a disciplina não é um fim em si mesmo, mas apenas um meio visando o arrependimento do que pecou e sua restauração à comunhão.
+
+([2 Co 2:7-8](http://bibliaonline.com.br/acf/2co/2/7-8)) “De maneira que pelo contrário deveis antes perdoar-lhe e consolá-lo, para que o tal não seja de modo algum devorado de demasiada tristeza. Por isso vos rogo que confirmeis para com ele o vosso amor”.
+
+É claro que você nem sempre encontra esse tipo de disciplina bíblica nas denominações e sistemas criados pelos homens. O que se vê é líderes serem transferidos para uma cidade onde ninguém sabe de suas faltas ou ter seu pecado encoberto e abafado, enquanto pessoas sem uma posição de destaque acabam sendo massacradas publicamente com a desculpa de que “devem servir de exemplo” para os outros. Enquanto isso, o amor passa longe e o orgulho impera.
+
+Mas como saber quando um irmão está realmente arrependido do que praticou para poder ser restaurado à comunhão? Obviamente é preciso tempo e um exame continuado por parte de dois ou três irmãos que o visitem em caráter sacerdotal, examinando o transgressor para ver se a “lepra” cobriu todo o corpo. Este é um princípio encontrado no Antigo Testamento para aqueles que tinham lepra, a qual é uma figura do pecado por tornar o doente insensível (a lepra tira a sensibilidade da pele), e fazer com que sinta os efeitos da “doença” em sua própria carne, ferindo-se e até perdendo parte dos membros.
+
+Nos tempos do Antigo Testamento o leproso devia ser separado da congregação de Israel quando surgisse uma mancha de lepra em sua pele. Os sacerdotes passariam a visitá-lo com frequência para acompanhar o desenvolvimento da doença e ele era considerado curado quando a lepra cobrisse todo o corpo. Parece estranho pensar que quando não existisse um centímetro de pele são é que os sacerdotes o consideravam limpo para ser readmitido ao convívio da congregação.
+
+Não devemos nos esquecer de que Deus deixou essas coisas escritas para o nosso ensino, portanto o que aprendemos disso ao fazermos o paralelo da lepra com o pecado, do qual a doença era uma figura, é que uma pessoa só pode ser considerada “limpa” quando admitir que está 100% errada e der provas disso em sua vida prática.
+
+([Lv 13:12-13](http://bibliaonline.com.br/acf/lv/13/12-13)) “E, se a lepra se espalhar de todo na pele, e a lepra cobrir toda a pele do que tem praga, desde a sua cabeça até aos seus pés, quanto podem ver os olhos do sacerdote, então o sacerdote examinará, e eis que, se a lepra tem coberto toda a sua carne, então declarará o que tem a praga por limpo; todo se tornou branco; limpo está”.
+
+Com respeito ao mundo religioso e aos irmãos em Cristo que permanecem nos sistemas e denominações que os homens criaram, quando entendemos que devemos sair disso tudo para congregar somente ao nome do Senhor, não é nossa função ir por aí visitando “igrejas” para falar de seus erros. Ainda que seja importante tratar do assunto, em conversas, livros, artigos e e-mails, não é algo que deva ser feito dentro dos sistemas ou que tenha o objetivo de tentar consertar as denominações, que não têm conserto por estarem sobre um fundamento errado. Também não cabe a nós frequentarmos suas reuniões para criticar os que estão ali ou seu modo de agir. O modo bíblico é apartar-se e não voltar mais lá, deixando que Deus toque no coração daqueles que ainda não se apartaram.
+
+([Jr 5:19](http://bibliaonline.com.br/acf/jr/5/19)) “Portanto assim diz o Senhor: Se tu voltares, então te trarei, e estarás diante de mim; e se apartares o precioso do vil, serás como a minha boca; tornem-se eles para ti, mas não voltes tu para eles”.
+
+*****

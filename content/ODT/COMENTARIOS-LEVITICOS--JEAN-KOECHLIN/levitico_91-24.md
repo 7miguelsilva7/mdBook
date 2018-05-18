@@ -1,0 +1,7 @@
+# Levítico 9:1-24 {#lev-tico-9-1-24}
+
+([9:1-24](http://bibliaonline.com.br/acf/lv/9/1-24))
+
+A Epístola aos Hebreus mostra o Sumo Sacerdote adequado para nós, &quot;santo, inocente, imaculado, separado dos pecadores...” ([Hb 7:26](http://bibliaonline.com.br/acf/hb/7/26)). Que contraste com Aarão, o sacerdote “tomado dentre os homens&quot; mencionado na mesma epístola, que tinha a necessidade de oferecer sacrifícios pelo pecado não só do povo, mas também &quot;por si mesmo&quot; ([Hb 5:1-3](http://bibliaonline.com.br/acf/hb/5/1-3)). Isso é o que vemos ele fazendo aqui. Antes de poder se ocupar com os pecados do povo, Aarão é obrigado a resolver diante de Deus a questão dos seus próprios pecados. É um princípio geral cuja importância o Senhor nos lembra no &quot;sermão da montanha&quot;. Para ser capaz de tirar o argueiro que está no olho do seu irmão, é necessário primeiro tirar a trave no próprio olho ([Mt 7:3-5](http://bibliaonline.com.br/acf/mt/7/3-5)).
+
+O final do capítulo nos mostra que, feita a propiciação e resolvida a questão do pecado, a bênção pode vir para o povo através do autor da propiciação, a glória de Deus pode ser manifesta e a alegria pode ser expressa livremente. Tais são também as bem-aventuradas consequências da cruz de Cristo para o povo de Deus hoje. Que Deus nos ensine a apreciá-las e a responder da mesma maneira!

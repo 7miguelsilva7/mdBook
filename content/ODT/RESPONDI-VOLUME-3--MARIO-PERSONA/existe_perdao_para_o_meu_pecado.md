@@ -1,0 +1,29 @@
+# Existe perdão para o meu pecado? {#existe-perd-o-para-o-meu-pecado}
+
+Sua aflição parece ser fruto daquilo que acreditam as pessoas com as quais você se congregava, ou seja, que o seu pecado é grave demais para voltar a desfrutar da comunhão com Deus.
+
+A única condição para sermos salvos é reconhecer que somos pecadores, pois “Fiel é a palavra e digna de toda aceitação: que Cristo Jesus veio ao mundo para salvar os pecadores...” E, se continuarmos o versículo, por pior que você se considere, saiba que Paulo era pior “... dos quais eu sou o principal.” Ele entregou à morte muitos dos primeiros cristãos, ou consentia com apedrejamentos como o de Estêvão.
+
+Você certamente já leu esta passagem:
+
+([Jo 8:1-11](http://bibliaonline.com.br/acf/jo/8/1-11)) “Jesus, entretanto, foi para o monte das Oliveiras. De madrugada voltou novamente para o templo, e todo o povo ia ter com ele; e, assentado, os ensinava. Os escribas e fariseus trouxeram à sua presença uma mulher surpreendida em adultério e, fazendo-a ficar de pé no meio de todos, disseram a Jesus: Mestre, esta mulher foi apanhada em flagrante adultério. E na lei nos mandou Moisés que tais mulheres sejam apedrejadas; tu, pois, que dizes? Isto diziam eles tentando-o, para terem de que o acusar. Mas Jesus, inclinando-se, escrevia na terra com o dedo. Como insistissem na pergunta, Jesus se levantou e lhes disse: Aquele que dentre vós estiver sem pecado seja o primeiro que lhe atire pedra. E, tornando a inclinar-se, continuou a escrever no chão. Mas, ouvindo eles esta resposta e acusados pela própria consciência, foram-se retirando um por um, a começar pelos mais velhos até aos últimos, ficando só Jesus e a mulher no meio onde estava. Erguendo-se Jesus e não vendo a ninguém mais além da mulher, perguntou-lhe: Mulher, onde estão aqueles teus acusadores? Ninguém te condenou? Respondeu ela: Ninguém, Senhor! Então, lhe disse Jesus: Nem eu tampouco te condeno; vai e não peques mais”.
+
+O curioso é que os fariseus afirmam que aquela mulher havia sido surpreendida em adultério, o que significa que havia também um homem com ela. Cadê o homem? Seria ele um fariseu também que estava sendo poupado por seus amigos? Provavelmente. O fato é que a Lei de Moisés mandava apedrejar os dois que fossem pegos em flagrante adultério, mas apenas a mulher é levada a Jesus.
+
+No final, todos eles se afastam porque suas consciências também eram culpadas. Apenas uma pessoa permanece na presença de Jesus, o único que podia atirar a primeira pedra por ser sem pecado. Mas ele não faz isso. Ao contrário, Jesus não condena a mulher. É quando nos colocamos diante do Senhor, confessando e reconhecendo nosso pecado, que podemos ouvir suas palavras de perdão. O companheiro dela ou os outros fariseus não tiveram o mesmo privilégio que a mulher teve. Apesar de terem sido acusados pela consciência de que não estavam livres de pecado, afastaram-se daquele que era o único capaz de perdoá-los e limpar suas consciências.
+
+Se aquela mulher saísse dali e alguém lhe perguntasse: “Então, como fica essa situação de adúltera?”, o que ela poderia dizer? “Não sei não, Jesus disse que não me condena, mas não tenho lá essa certeza...” Ou será que ela podia dizer alegre: “Fui perdoada!”.
+
+Todos os nossos pecados foram julgados em Jesus lá na cruz e nenhum ficou para trás ou para ser resolvido depois. O sangue dele nos purifica de todos os nossos pecados. Obviamente isso não é uma permissão para pecarmos (o Senhor diz à mulher “vai e não peques mais”), mas se pecarmos, temos um advogado diante do Pai intercedendo por nós. O perdão é garantido graças à obra na cruz, e não a nós mesmos ou até à intensidade de nosso arrependimento, mesmo porque o verdadeiro arrependimento é o Espírito Santo que opera em nosso coração.
+
+Não sei quando você se converteu a Jesus, se foi antes ou depois do que contou, mas de qualquer modo é bom entender que quando nos convertemos a Jesus todas as nossas iniquidades são perdoadas e recebemos o Espírito Santo que vem habitar em nós. Se pecarmos depois de convertidos, não perdemos a salvação ou o Espírito Santo, mas perdemos a comunhão com o Pai, como um filho que é colocado de castigo trancado no quarto. Mas, se a casa pegar fogo, adivinhe qual filho o Pai irá correndo salvar?
+
+Portanto, de uma forma ou outra, você pode se considerar liberta pelo sangue de Jesus. Não é por obras que somos salvos, e não é por obras de fidelidade que nos mantemos salvos, e também não é por obras que aplacamos nossa consciência, muito embora tentemos fazer isso. Por isso, a primeira reação nossa quando pecamos é querer fazer alguma coisa para compensar. Nada do que fazemos pode cobrir o pecado e a ocupação com as coisas de Deus também não aplaca a consciência.
+
+A solução? Uma confissão sincera e a confiança de que “... o sangue de Jesus Cristo, seu Filho, nos purifica de todo o pecado. Se dissermos que não temos pecado, enganamo-nos a nós mesmos, e não há verdade em nós. Se confessarmos os nossos pecados, ele é fiel e justo para nos perdoar os pecados, e nos purificar de toda a injustiça. Se dissermos que não pecamos, fazemo-lo mentiroso, e a sua palavra não está em nós.” ([1 João 1:8-10](http://bibliaonline.com.br/acf/1jo/1/8-10)).
+
+O [Salmo 103](http://bibliaonline.com.br/acf/sl/103) pode trazer grande consolo a esse respeito:
+
+([Sl 103:8-14](http://bibliaonline.com.br/acf/sl/103/8-14)) “O Senhor é misericordioso e compassivo; longânimo e assaz benigno. Não repreende perpetuamente, nem conserva para sempre a sua ira. Não nos trata segundo os nossos pecados, nem nos retribui consoante as nossas iniquidades. Pois quanto o céu se alteia acima da terra, assim é grande a sua misericórdia para com os que o temem. Quanto dista o Oriente do Ocidente, assim afasta de nós as nossas transgressões. Como um pai se compadece de seus filhos, assim o Senhor se compadece dos que o temem. Pois ele conhece a nossa estrutura e sabe que somos pó”.
+
+*****

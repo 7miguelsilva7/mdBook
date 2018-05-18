@@ -1,0 +1,13 @@
+# Eduque-os com contínua oração por bênção em tudo o que você está fazendo. {#eduque-os-com-cont-nua-ora-o-por-b-n-o-em-tudo-o-que-voc-est-fazendo}
+
+Olhe para seus filhos como fazia Jacó para com os dele; ele diz a Esaú, “os filhos que Deus graciosamente tem dado a teu servo” ([Gn 33:5](http://bibliaonline.com.br/acf/gn/33/5)). Olhe para eles como José olhou para os seus, quando disse a seu pai, “Eles são meus filhos, que Deus me tem dado aqui” ([Gn 48:9](http://bibliaonline.com.br/acf/gn/48/9)). Considere-os, com o salmista, como “herança do Senhor” ([Sl 127:3](http://bibliaonline.com.br/acf/sl/127/3)).
+
+Repare como Manué fala ao anjo acerca de Sansão: “Qual será o modo de viver e serviço do menino?” ([Jz 13:12](http://bibliaonline.com.br/acf/jz/13/12)) (N.T.: ou, numa tradução livre da versão inglesa, “Como devemos ordenar a criança, e como devemos proceder para com ela?”). Observe com que ternura Jó cuidava da alma de seus filhos, o qual “oferecia holocaustos segundo o número de todos eles”, pois ele dizia, “porventura pecaram meus filhos, e blasfemaram de Deus no seu coração. Assim o fazia Jó continuamente” ([Jó 1:5](http://bibliaonline.com.br/acf/jó/1/5)).
+
+Pais, se vocês amam seus filhos, vão em frente e façam o mesmo. Nunca será demais trazer à memória o nome de seus filhos diante do propiciatório. Vocês podem mandar seus filhos para as melhores escolas, dar a eles Bíblias e encher suas cabeças com conhecimento; mas se durante todo esse tempo não houver uma educação constante no lar, quero dizer-lhes claramente, temo que no final as coisas sejam difíceis para os seus filhos, no que se refere às suas almas.
+
+Os cálices mais amargos que o homem já bebeu foram aqueles preparados pelos filhos. Filhos têm sido os causadores das mais tristes lágrimas que o homem já derramou. Adão podia falar a respeito disso; Davi também podia fazer o mesmo. Não há tristezas neste mundo como aquelas que filhos trouxeram a seus pais.
+
+Oh! Tenha cuidado para que sua própria negligência não lhe traga miséria na sua velhice. “Derrama o teu coração como águas diante da face do Senhor: levanta a eles as tuas mãos, pela vida de teus filhinhos” ([Lm 2:19](http://bibliaonline.com.br/acf/lm/2/19)).
+
+Nota do Editor: O texto aqui publicado é “The duties of parents”, de autoria de J. C. Ryle, e foi editado, contemporizado e adaptado por H. E. Hayhoe. O original inglês pode ser encontrado na web. John Charles Ryle nasceu em 1816 e faleceu em 1900 na Inglaterra.

@@ -1,0 +1,9 @@
+# Qual a diferença entre tribulação e grande tribulação? {#qual-a-diferen-a-entre-tribula-o-e-grande-tribula-o}
+
+Nos vídeos “O Evangelho em 3 Minutos” chamei de tribulação o período todo dos sete anos, porque os primeiros três anos e meio também serão difíceis para os que se converterem, e para eles cabe também a admoestação do Senhor “No mundo tereis tribulação”. A primeira metade dos sete anos é chamada de “princípio das dores” ([Mt 24:8](http://bibliaonline.com.br/acf/mt/24/8)).
+
+A Bíblia chama de “grande tribulação” a segunda metade desses sete anos (será que podemos chamar de “pequena tribulação” a primeira metade?). [Mateus 24:21](http://bibliaonline.com.br/acf/mt/24/21) fala principalmente dos judeus e da situação na Judeia: “porque nesse tempo haverá GRANDE TRIBULAÇÃO, como desde o princípio do mundo até agora não tem havido e nem haverá jamais”. Simultaneamente as coisas estão acontecendo também no resto do mundo, e [Apocalipse 7:14](http://bibliaonline.com.br/acf/ap/7/14) fala dos gentios desse período: “Respondi-lhe: meu Senhor, tu o sabes. Ele, então, me disse: São estes os que vêm da GRANDE TRIBULAÇÃO, lavaram suas vestiduras e as alvejaram no sangue do Cordeiro”.
+
+Os títulos que uso para as mensagens são apenas para facilitar a divisão dos assuntos, mas nem todos fazem obrigatoriamente parte da nomenclatura usada na Bíblia. Até mesmo nas traduções que temos da Bíblia, os subtítulos em negrito que dividem as diferentes seções foram adicionados depois, portanto não são inspirados e estão sujeitos a erros (já encontrei alguns). Meus títulos também podem estar sujeitos a erros.
+
+*****

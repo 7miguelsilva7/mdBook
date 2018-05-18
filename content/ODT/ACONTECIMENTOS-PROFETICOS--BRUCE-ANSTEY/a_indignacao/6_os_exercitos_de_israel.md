@@ -1,0 +1,3 @@
+### 6\. Os EXÉRCITOS DE ISRAEL {#6-os-ex-rcitos-de-israel}
+
+– ([Jr 51:19-23](http://bibliaonline.com.br/acf/jr/51/19-23); [Salmos 108:10-13](http://bibliaonline.com.br/acf/sl/108/10-13); [Miquéias 4:13](http://bibliaonline.com.br/acf/mq/4/13); [Zacarias 12:6](http://bibliaonline.com.br/acf/zc/12/6); [14:14](http://bibliaonline.com.br/acf/zc/14/14)). Esse exército será composto por homens redimidos de todas as doze tribos de Israel.

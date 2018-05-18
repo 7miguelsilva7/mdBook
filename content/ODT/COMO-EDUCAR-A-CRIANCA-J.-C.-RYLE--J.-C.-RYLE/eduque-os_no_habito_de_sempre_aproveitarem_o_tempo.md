@@ -1,0 +1,5 @@
+# Eduque-os no hábito de sempre aproveitarem o tempo. {#eduque-os-no-h-bito-de-sempre-aproveitarem-o-tempo}
+
+A ociosidade é a melhor amiga do diabo. É, com certeza, a maneira mais eficaz de dar a ele uma oportunidade de causar algum dano. Uma mente desocupada é como uma porta aberta, e se Satanás não entrar nela pessoalmente, é certo que lançará dentro dela alguma coisa para gerar maus pensamentos. Devemos ter nossas mãos cheias e nossas mentes ocupadas com alguma coisa, do contrário nossa imaginação cedo fermentará e acalentará o mal. “Eis que esta foi a maldade de Sodoma, tua irmã; soberba, fartura de pão, e abundância de ociosidade teve ela” ([Ez 16:49](http://bibliaonline.com.br/acf/ez/16/49)).
+
+Eu verdadeiramente creio que a ociosidade leva ao pecado, mais do que talvez qualquer outro hábito que se possa mencionar. Gosto de ver as crianças ativas e laboriosas, e se entregando de coração a tudo o que empreendem fazer.

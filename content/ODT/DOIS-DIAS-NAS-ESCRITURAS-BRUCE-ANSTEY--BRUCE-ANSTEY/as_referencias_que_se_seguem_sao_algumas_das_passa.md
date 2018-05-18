@@ -1,0 +1,1 @@
+# As referências que se seguem são algumas das passagens onde aparecem os &quot;dois dias&quot; nas Escrituras. {#as-refer-ncias-que-se-seguem-s-o-algumas-das-passagens-onde-aparecem-os-dois-dias-nas-escrituras}

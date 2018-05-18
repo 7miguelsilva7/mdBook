@@ -1,0 +1,9 @@
+# O que significa “ir para o céu”? {#o-que-significa-ir-para-o-c-u}
+
+Evidentemente não encontro uma afirmação do tipo “ir para o céu”, mas encontro, a respeito dos que estão salvos, daqueles que creem em Cristo, que: “a nossa cidade está nos céus, donde também esperamos o Salvador, o Senhor Jesus Cristo. Que transformará o nosso corpo abatido, para ser conforme o seu corpo glorioso, segundo o seu eficaz poder de sujeitar também a si todas as coisas” ([Fp 3:20-21](http://bibliaonline.com.br/acf/fp/3/20-21)), e encontro também que os que creem serão “arrebatados... a encontrar o Senhor nos ares, e assim estaremos sempre com o Senhor” ([1Ts 4:17](http://bibliaonline.com.br/acf/1ts/4/17)).
+
+Encontro também que o crente já está, posicionalmente falando, assentado nos lugares celestiais em Cristo Jesus ([Ef 2:6](http://bibliaonline.com.br/acf/ef/2/6)), sendo “concidadãos dos Santos” (habitantes da mesma cidade) ([Ef 2:19](http://bibliaonline.com.br/acf/ef/2/19)). Cristo foi preparar um lugar para os seus, para que estejam onde ele estiver ([Jo 14:1-3](http://bibliaonline.com.br/acf/jo/14/1-3)), e ele está no céu. ([Jo 17:24](http://bibliaonline.com.br/acf/jo/17/24)).
+
+Na Bíblia é bem evidente que a esperança do cristão é celestial, nunca terrenal como acontecia com os santos do Antigo Testamento. No Antigo Testamento, quando o povo escolhido por Deus era Israel, todas as promessas são terrenas: abundância de colheitas, paz terrena, etc. No Novo Testamento, as promessas são celestiais. Aqui importa que o crente em Cristo sofra tribulações ([Jo 16:33](http://bibliaonline.com.br/acf/jo/16/33)), mas sua herança está nos lugares celestiais ([Ef 1:3](http://bibliaonline.com.br/acf/ef/1/3)).
+
+*****

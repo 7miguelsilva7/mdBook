@@ -1,0 +1,3 @@
+### Terminologia convencional versus terminologia bíblica {#terminologia-convencional-versus-terminologia-b-blica}
+
+Boa parte da confusão existente no testemunho cristão vem da terminologia que os teólogos criaram para simples verdades da Bíblia. F. B. Hole disse certa vez que a teologia moderna pegou muitos termos das Escrituras e os esvaziou de seu sentido bíblico, dando depois a esses termos significados inventados pelos homens para fundamentarem seus próprios sistemas teológicos. Quando comparamos essas ideias com a Palavra de Deus, vemos que elas estão distantes da verdade.

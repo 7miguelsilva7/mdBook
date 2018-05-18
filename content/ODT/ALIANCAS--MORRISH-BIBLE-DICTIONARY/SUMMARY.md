@@ -1,0 +1,4 @@
+# Summary
+
+* [ALIANCAS-MORRISH-BIBLE-DICTIONARY](README.md)
+* [ALIANÇAS](aliancas.md)

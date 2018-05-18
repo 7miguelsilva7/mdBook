@@ -1,0 +1,9 @@
+# Deus responde a TODAS as orações? {#deus-responde-a-todas-as-ora-es}
+
+Sim, porém para algumas a resposta é &quot;não&quot;. A oração é o canal de comunicação que temos com Deus. E está sempre aberto à nossa espera. Mas o segredo todo da oração está em nossa comunhão com Deus e no reconhecimento de nossa incapacidade.
+
+Se você ler João[14:13](http://bibliaonline.com.br/acf/jo/14/13) poderá lhe parecer que um cristão pode pedir o carro do ano que Deus lhe dará. Não é bem assim. É necessário ler todo o[capítulo 14](http://bibliaonline.com.br/acf/jo/14) e também o[15](http://bibliaonline.com.br/acf/jo/15) para vermos como é a eficácia da oração. A oração eficaz vai depender sempre de uma comunhão eficaz. Leia João[15:15](http://bibliaonline.com.br/acf/jo/15/15). O Senhor fala que nos faz conhecer o que recebeu de seu Pai. De certa maneira, Ele nos faz conhecer a sua vontade (ver também[1 Coríntios 2:16](http://bibliaonline.com.br/acf/1co/2/16)).
+
+Mas como podemos conhecer sua vontade se não estivermos perto dele quando ele quiser mostrá-la para nós? Uma pessoa que deseje conhecer a vontade de outra deve andar o mais próximo possível para poder escutar tudo o que a outra disser e não perder nenhuma palavra, gesto ou expressão. Se estivermos no Senhor (comunhão) e sua Palavra estiver em nós (familiaridade com sua Palavra ao ponto dela impregnar nossos pensamentos) ([ver João 15:7](http://bibliaonline.com.br/acf/jo/15/7)), então saberemos exatamente qual é a vontade de nosso Senhor e iremos orar e pedir aquilo que ele também deseja. Então TUDO o que pedirmos nos será feito, simplesmente porque sempre iremos pedir aquilo que ele deseja nos dar.
+
+*****

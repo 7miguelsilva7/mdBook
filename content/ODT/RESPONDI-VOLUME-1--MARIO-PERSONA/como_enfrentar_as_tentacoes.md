@@ -1,0 +1,15 @@
+# Como enfrentar as tentações? {#como-enfrentar-as-tenta-es}
+
+Enquanto estivermos neste mundo estaremos sujeitos à carne, a qual sempre foi má e nunca poderá ser melhorada. Quando uma pessoa crê no Senhor Jesus Cristo, ela não melhora sua carne, e nem a Bíblia diz que devamos fazer isto. A pessoa recebe uma nova natureza, nascida de Deus, e deve, isto sim, mortificar a carne, ou seja, considerá-la morta ([Rm 8:13](http://bibliaonline.com.br/acf/rm/8/13),[Colossenses 3:5](http://bibliaonline.com.br/acf/cl/3/5)).
+
+Não devemos lutar contra a carne, pois isto é um trabalho do Espírito ([Gl 5:17](http://bibliaonline.com.br/acf/gl/5/17)). Devemos sim andar no Espírito ([Gl 5:16](http://bibliaonline.com.br/acf/gl/5/16)). Muitos caem quando tentam lutar contra sua própria carne, mas isto é um erro. Enquanto estivermos lutando contra a carne com suas concupiscências, estaremos ocupados com ela, e fatalmente acabaremos caindo. Quando não ligamos para nossa carne, ou seja, quando consideramos os seus apelos como vindos de um homem morto (nossa velha natureza) e nos mantemos cheios da Palavra de Deus, cheios de pensamentos de louvor e gratidão a Deus, acabamos por esquecer a carne com seus feitos.
+
+Seremos tentados sempre enquanto estivermos aqui, mas Deus nos dá forças para vencermos as tentações. E se caímos, é porque quisemos cair; o poder para não cairmos está sempre ao nosso alcance ([1 Co 10:13](http://bibliaonline.com.br/acf/1co/10/13)), e ao invés de nos entristecermos ao sermos tentados, devemos nos lembrar de que é mais uma ocasião que Deus permite para sermos bem-aventurados ([Tg 1:12](http://bibliaonline.com.br/acf/tg/1/12)). Todo pecado começa em nossa própria mente ([Tg 1:13-15](http://bibliaonline.com.br/acf/tg/1/13-15)), portanto devemos manter nossa mente sempre cheia da Palavra de Deus. Muitos ficam tanto tempo lutando contra o mal, que nunca se ocupam com outra coisa além do mal.
+
+Imagine dois crentes passando por um corredor onde estão coladas nas paredes dezenas de fotografias pornográficas. Um deles atravessa aquele corredor lendo a sua Bíblia, ocupado com as maravilhas de Deus. O outro, para a cada foto para fazer uma crítica e denunciar o horror e o pecado que aquelas fotos podem ocasionar. Evidentemente, aquele que lia sua Bíblia, passou mais depressa pelo corredor e estava tão ocupado com Cristo que nem reparou nas fotos.
+
+O outro, tão ocupado em criticar o pecado e tentar combatê-lo, demorou-se em passar por ali e, mesmo sendo a sua intenção de denunciar o mal e combatê-lo, não se ocupou nem um minuto sequer com as coisas de Deus. Esteve o tempo todo ocupado com o pecado.
+
+Mantenha sua mente ocupada com as coisas de Deus e aproveite todas as tentações como se fosse um lembrete para louvar a Deus pelo seu grande amor. Se todas as vezes que for tentado, começar a cantar hinos de louvor, ou a fazer orações de ações de graças a Deus, Satanás tentará arranjar outro meio de fazê-lo tropeçar, pois estará vendo que os seus ataques só estão fazendo com que você se lembre de que está na hora de louvar o Senhor.
+
+*****

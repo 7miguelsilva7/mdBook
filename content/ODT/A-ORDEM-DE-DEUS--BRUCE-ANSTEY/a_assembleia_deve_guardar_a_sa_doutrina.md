@@ -1,0 +1,7 @@
+### A assembleia deve guardar a sã doutrina {#a-assembleia-deve-guardar-a-s-doutrina}
+
+Finalmente, no décimo quinto capítulo da primeira epístola aos coríntios, Paulo enfatiza que a sã doutrina deve ser mantida na assembleia. Os coríntios estavam se desviando da doutrina da ressurreição e Paulo os corrigiu em seus equívocos. Este é um princípio importante para nós. Devemos também guardar a sã doutrina na assembleia.
+
+Portanto, temos aqui a ordem de Deus para o ministério na igreja. Repare, porém, que não encontramos qualquer menção de que existissem um ou dois homens os &quot;Pastores&quot;, como se costuma chamá-los) designados para ministrar para os demais. Se Deus quisesse que o ministério na igreja fosse assim Ele teria mencionado isto nestes capítulos que tratam do assunto. Mas não há uma palavra sequer a respeito de um &quot;Pastor&quot; à frente.
+
+Além disso, se o ministério na igreja fosse reservado a algumas poucas pessoas (isto é, a clérigos), então estes capítulos sobre o ministério teriam sido escritos especificamente _para eles_. Seria algo parecido com o sistema mosaico, quando o Senhor deu instruções específicas aos sacerdotes da linhagem de Aarão, um grupo especial de pessoas separadas do resto do povo para desempenharem os serviços no tabernáculo. Mas não existe coisa alguma a este respeito nestes capítulos. As instruções são _para toda a igreja_.

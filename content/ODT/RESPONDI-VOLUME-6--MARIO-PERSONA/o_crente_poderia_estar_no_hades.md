@@ -1,0 +1,17 @@
+# O crente poderia estar no hades? {#o-crente-poderia-estar-no-hades}
+
+Depois de ler em algum lugar eu dizer que o crente que morre vai direto para a presença de Deus, sem passar pelo hades, você leu o texto “Iremos nos conhecer no céu?” de J. R. Gill em meu blog “Manjar Celestial” e ficou em dúvida. Ali o autor, ao comentar sobre a vida após a morte, diz que “é correto dizer que nossos amados encontram-se no hades”.
+
+Fui verificar o texto, que devo ter traduzido do inglês há mais de vinte anos, e também fiquei intrigado. A princípio o que ele dizia ali estava errado, mas sempre pode acontecer de um autor escrever algo achando que o leitor irá compreender o sentido do que escreve. Mesmo assim parecia estar faltando algo. Tentei encontrar o original, e só consegui através de um irmão nos Estados Unidos que o enviou para mim. No texto original inglês eu vi que omiti uma palavra no texto, o que aumentou a dificuldade para entender. No texto o autor escreveu:
+
+“O ‘hades’ é uma expressão neotestamentária e trata-se de uma palavra grega; ‘sheol’ é a expressão do Velho Testamento e é uma palavra hebraica. Ambas significam a mesma coisa: o mundo invisível, ou lugar ou condição dos espíritos que partiram. É correto dizer que nossos amados encontram-se no ‘hades’“. “Iremos nos conhecer no céu?” — J. R. Gill.
+
+A palavra que faltava era “condição”, pois o autor está dizendo que “hades”, assim como “sheol”, significa tanto o lugar como a condição dos espíritos que partiram. Para deixar o texto mais claro acrescentei uma nota explicando que o que ele disse a respeito do crente seria no sentido da condição, não do lugar. Vou aproveitar para traduzir outro texto aqui, de autoria de A. J. Pollock, que poderá ajudar a esclarecer o assunto:
+
+“Para se ter uma ideia correta do que seja o Hades, é preciso enxergar o termo com sua relação com a morte. O Hades não é um lugar, mas uma condição, enquanto a morte não é um lugar, mas uma condição. Hades é a condição da alma sem o corpo; morte é a condição do corpo sem a alma. A condição da alma do incrédulo é de sofrimento e miséria; a condição da alma do crente é de conforto e felicidade. A expressão “está posto um grande abismo entre nós e vós” ([Lc 16:26](http://bibliaonline.com.br/acf/lc/16/26)) é simbólica e revela a verdade da separação eterna que existe entre o crente e o incrédulo, este último sem a esperança de uma segunda chance.
+
+Se você aplicar ao termo hades o teste de ser uma condição e não um lugar, verá que é este o pensamento bíblico. Um exemplo claro disso é encontrado em [Apocalipse 20:14](http://bibliaonline.com.br/acf/ap/20/14): “E a morte e o inferno foram lançados no lago de fogo”. Isto significa que todos os corpos mortos, depois de ressuscitados, e as almas tendo sido reunidas de volta a esses corpos ressuscitados, essas pessoas, que em seu estado anterior representavam as condições da morte e do hades, serão lançadas no lago de fogo. Se o hades fosse um lugar, então teríamos a ideia errada de uma condição (morte) e de um lugar (hades) sendo lançados em um lugar (o lago de fogo). Mas se conservarmos em mente que o hades é uma condição e uma contrapartida da morte, tudo fica claro e simples...
+
+Condição é uma coisa, lugar é outra. A condição (do crente que morreu) é de uma alma desencarnada; seu lugar é com Cristo. Não confunda condição com lugar. Se tiver estes pensamentos claros em sua mente suas dificuldades em entender estas coisas ficarão resolvidas”. A. H. Pollock — 1864-1957.
+
+*****

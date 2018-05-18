@@ -1,0 +1,7 @@
+# QUE-DENOMINACAO-E-ESTA-AUTOR-DESCONHECIDO {#que-denominacao-e-esta-autor-desconhecido}
+
+QUE DENOMINAÇÃO É ESTA?
+
+DESCONHECIDO
+
+2017-07-21T17:00:00+09:00

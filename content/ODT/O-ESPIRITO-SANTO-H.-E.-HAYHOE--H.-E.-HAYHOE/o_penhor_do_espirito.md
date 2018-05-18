@@ -1,0 +1,3 @@
+# O PENHOR DO ESPÍRITO {#o-penhor-do-esp-rito}
+
+O penhor do Espírito significa que o Espírito que habita no crente é a garantia de que o crente, com absoluta certeza, irá estar na glória vindoura, incluído nos privilégios que o Espírito procura fazer que desfrutemos desde já. ([2 Coríntios 1:22](http://bibliaonline.com.br/acf/2co/1/22); [5:5](http://bibliaonline.com.br/acf/2co/5/5); [Efésios 1:14](http://bibliaonline.com.br/acf/ef/1/14).)

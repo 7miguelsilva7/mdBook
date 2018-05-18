@@ -1,0 +1,5 @@
+### &quot;Isso é coisa do velho Paulo!&quot; {#isso-coisa-do-velho-paulo}
+
+Outros consideram que o apóstolo Paulo escreveu essas coisas sobre o lugar da mulher por ser ignorante e insensível para com as mulheres. São pessoas que veem seus ensinos sobre o assunto como se não passasse de opiniões pessoais pelo fato de ele ser solteiro.
+
+Ficamos em dúvida se pessoas que pensam assim acreditam na inspiração das Escrituras. Devemos nos lembrar de que essas coisas são as Escrituras divinamente inspiradas. Elas não são meras opiniões de um solteiro, mas sim mandamentos do Senhor! No mesmo capítulo em que Paulo falou essas coisas relacionadas ao lugar da mulher, ele também disse: **&quot;Se alguém cuida ser profeta, ou espiritual, reconheça que as coisas que vos escrevo são** **_mandamentos do Senhor_****&quot;** ([1 Co 14:37](http://bibliaonline.com.br/acf/1co/14/37)).

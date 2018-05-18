@@ -1,0 +1,47 @@
+# Os amalequitas ainda existem? {#os-amalequitas-ainda-existem}
+
+Você dificilmente entenderá a Bíblia se não entender as dispensações, ou seja, as diferentes maneiras de Deus tratar com os homens. No passado Deus parecia agir mais diretamente no juízo e correção dos seres humanos arruinados por causa do pecado. Encontramos Deus destruindo toda a raça humana por meio de um dilúvio, não sem antes usar Noé como pregador para avisar as pessoas do que iria acontecer. Ninguém deu ouvido e Deus começou de novo a partir de Noé e sua família.
+
+([2 Pe2:5](http://bibliaonline.com.br/acf/2pe/2/5)) “E não perdoou ao mundo antigo, mas guardou a Noé, pregoeiro da justiça, com mais sete pessoas, ao trazer o dilúvio sobre o mundo dos ímpios;”.
+
+Um juízo coletivo também foi lançado sobre as cidades de Sodoma e Gomorra por sua impiedade e pecado.
+
+([2 Pe2:6-7](http://bibliaonline.com.br/acf/2pe/2/6-7)) “E condenou à destruição as cidades de Sodoma e Gomorra, reduzindo-as a cinza, e pondo-as para exemplo aos que vivessem impiamente; E livrou o justo Ló, enfadado da vida dissoluta dos homens abomináveis”.
+
+No livro do profeta Jonas nós o encontramos com a tarefa de avisar Nínive que a cidade e todos os seus habitantes seriam destruídos.
+
+([Jo 1:1-2](http://bibliaonline.com.br/acf/jo/1/1-2)) “E veio a palavra do Senhor a Jonas, filho de Amitai, dizendo: Levanta-te, vai à grande cidade de Nínive, e clama contra ela, porque a sua malícia subiu até à minha presença”.
+
+Felizmente os habitantes de Nínive se arrependeram e foram poupados por Deus, muito embora Jonas tenha ficado aborrecido com a misericórdia que Deus demonstrou para com aquele povo.
+
+Todo o Antigo Testamento é repleto de exemplos assim, com Deus lançando juízos por meio de instrumentos como água e fogo ou por meio de guerras e exércitos. Em alguns momentos vemos Israel, o povo escolhido de Deus, sendo usado por ele para julgar nações ímpias. Há casos interessantes, como o dos Amorreus, um povo que ainda não tinha atingido o ápice da iniquidade e para o qual Deus avisa que seu juízo ainda dependia disso:
+
+([Gn 15:16](http://bibliaonline.com.br/acf/gn/15/16)) “E a quarta geração tornará para cá; porque a medida da injustiça dos amorreus não está ainda cheia”.
+
+Se nesses momentos Deus ordenava que não poupassem nem mesmo mulheres e crianças era porque ele bem sabia em que se transformariam aquelas crianças no futuro, ou qual seria o papel das mulheres em servirem de tropeço ao povo de Deus. Lembre-se de que Hitler um dia foi um bebê e que não faltam exemplos de mulheres de povos pagãos que corromperam a fé dos israelitas. Mas não pense que esse tratamento dava aos israelitas a imunidade de serem também castigados por seus pecados. Encontramos em várias ocasiões Deus usando gentios, como Nabucodonosor, para julgar o povo de Deus. Portanto, em seu modo de tratar com os povos mergulhados em pecado na antiguidade, Deus lançava seus juízos de destruição. E inclua-se aí a ordem de Deus para que o seu povo destruísse os amalequitas, que é o povo a respeito do qual você perguntou.
+
+Hoje Deus não está lançando juízos sobre os povos do mesmo modo como fazia no Antigo Testamento por estarmos em um período de graça. ([Jo 1:17](http://bibliaonline.com.br/acf/jo/1/17)) “Porque a lei foi dada por Moisés; a graça e a verdade vieram por Jesus Cristo“. Até mesmo quando Cristo andou neste mundo ele foi misericordioso e não destruiu os ímpios, o que poderia muito bem fazer como o Juiz severo que vemos no livro de Apocalipse, quando vier para julgar as nações. ([2 Co 5:19](http://bibliaonline.com.br/acf/2co/5/19)) “Isto é, Deus estava em Cristo reconciliando consigo o mundo, não lhes imputando os seus pecados“.
+
+Tendo explicado estes pontos, vamos às suas perguntas: “Quem eram os amalequitas? Por que Deus ordenou que fossem totalmente eliminados? Todos foram eliminados? na história moderna há descendentes deste povo condenado por Deus que possam fazer mal à Igreja de Cristo ou ao povo escolhido?”.
+
+Acredito que uma pergunta melhor seria: “O que os amalequitas significam para nós?”. Saber a história deles como nação ou se existem descendentes hoje não tem muita importância a não ser para algum historiador, mas saber o que eles significam tem grande importância. Lembre-se de que “tudo o que dantes foi escrito, para nosso ensino foi escrito, para que pela paciência e consolação das Escrituras tenhamos esperança” e que “tudo isto lhes sobreveio como figuras, e estão escritas para aviso nosso, para quem já são chegados os fins dos séculos” ([Rm 15:4](http://bibliaonline.com.br/acf/rm/15/4); [1 Co 10:11](http://bibliaonline.com.br/acf/1co/10/11)).
+
+Os Amalequitas podem ser interpretados tanto como o povo de Amaleque, descendente de Esaú, como também com algum povo anterior que possa ter influenciado Esaú e seus descendentes, já que o nome Amaleque aparece alguns séculos antes de Esaú em [Gênesis 14:7](http://bibliaonline.com.br/acf/gn/14/7). Também poderia significar um título, como ocorre com Faraó ou César.
+
+De qualquer modo podemos interpretá-lo como nosso “inimigo hereditário”, como foi Esaú para Jacó. Para nós existe uma figura interessante deste inimigo como sendo a carne. É o primeiro inimigo a enfrentar Israel tão logo este é liberto do Egito e passa pelo mar (figura de nossa salvação) entrando no deserto (uma figura do mundo). Era só enquanto tinha suas mãos levantadas ao céu, figura de dependência de Deus e do seu poder, que Moisés podia prevalecer contra Amaleque. Quando baixava as mãos os israelitas perdiam a batalha.
+
+([Ex 17:8-14](http://bibliaonline.com.br/acf/ex/17/8-14)) “Então veio Amaleque, e pelejou contra Israel em Refidim. Por isso disse Moisés a Josué: Escolhe-nos homens, e sai, peleja contra Amaleque; amanhã eu estarei sobre o cume do outeiro, e a vara de Deus estará na minha mão. E fez Josué como Moisés lhe dissera, pelejando contra Amaleque; mas Moisés, Arão, e Hur subiram ao cume do outeiro E acontecia que, quando Moisés levantava a sua mão, Israel prevalecia; mas quando ele abaixava a sua mão, Amaleque prevalecia. Porém as mãos de Moisés eram pesadas, por isso tomaram uma pedra, e a puseram debaixo dele, para assentar-se sobre ela; e Arão e Hur sustentaram as suas mãos, um de um lado e o outro do outro; assim ficaram as suas mãos firmes até que o sol se pós. E assim Josué desfez a Amaleque e a seu povo, ao fio da espada. Então disse o Senhor a Moisés: Escreve isto para memória num livro, e relata-o aos ouvidos de Josué; que eu totalmente hei de riscar a memória de Amaleque de debaixo dos céus”.
+
+([Hb 12:12](http://bibliaonline.com.br/acf/hb/12/12)) “Portanto, tornai a levantar as mãos cansadas, e os joelhos desconjuntados,”.
+
+Balaão disse a respeito desse povo: “Amaleque é a primeira das nações; porém o seu fim será a destruição” ([Nm 24:20](http://bibliaonline.com.br/acf/nm/24/20)). Depois que os espias foram repreendidos por retornarem da terra prometida incrédulos de sua capacidade de tomá-la segundo Deus tinha ordenado, eles decidem fazer isso na energia da carne e acabam derrotados pelos amalequitas e cananitas. Saul recebeu a ordem de Deus de destruí-los completamente, mas não obedeceu e manteve o rei dos amalequitas vivo e também seus rebanhos. Foi preciso Samuel matar Agague ([1 Sm 14:48](http://bibliaonline.com.br/acf/1sm/14/48); [15:1-33](http://bibliaonline.com.br/acf/1sm/15/1-33)). Davi atacou os amalequitas em [1 Samuel 27:8](http://bibliaonline.com.br/acf/1sm/27/8) e [30:1-3](http://bibliaonline.com.br/acf/1sm/30/1-3). No [Salmos 83](http://bibliaonline.com.br/acf/sl/83) os amalequitas reaparecem reunidos contra Israel no futuro. Assim Amaleque foi o primeiro a atacar Israel, sempre foi inimigo de Israel, e voltará no final para atacar o povo de Deus.
+
+Que inimigo temos que seja tão feroz e constante em sua luta contra nós cristãos? A carne. Em Gálatas ela milita contra o Espírito e, à semelhança do que fez Moisés elevando suas mãos aos céus, não é nossa luta contra ela que garante a vitória, mesmo porque somos exortados que nossa luta não é contra a carne. É nossa dependência do céu que traz a vitória.
+
+([Ex 17:16](http://bibliaonline.com.br/acf/ex/17/16)) “E disse: Porquanto jurou o Senhor, haverá guerra do Senhor contra Amaleque de geração em geração”.
+
+Nossa libertação desse “Amaleque” virá com o arrebatamento, mas para Israel só haverá descanso mesmo quando o Senhor vier estabelecer o seu reino. Mesmo assim, será um reino de juízo a cada manhã, portanto ainda haverá pecado e morte como a paga pelo pecado, já que os que entrarem no reino terrenal (judeus e gentios convertidos durante a grande tribulação) entrarão ainda em sua condição natural, em um corpo de carne.
+
+É por isso que o Senhor advertiu, em [Mateus 24](http://bibliaonline.com.br/acf/mt/24) que “se aqueles dias não fossem abreviados, nenhuma carne se salvaria ; mas por causa dos escolhidos serão abreviados aqueles dias.” O reino de Cristo na terra será habitado por seres humanos convertidos exteriormente e vivendo em um mundo livre de tentações exteriores (Satanás está acorrentado). Mas tão logo o tentador for solto os inimigos de Cristo se manifestarão. Então mais uma vez haverá guerra, porém desta vez uma guerra direta contra o Senhor e seus exércitos.
+
+*****

@@ -1,0 +1,5 @@
+# A DIVINDADE {#a-divindade}
+
+Toda a atividade da Divindade é sempre na forma Trinitária. A primeira vez que o nome de Deus é mencionado na Bíblia, a palavra hebraica utilizada é Deus no plural. Na língua hebraica existe singular, dual e plural. A palavra hebraica na forma plural utilizada para Deus é Elohim. Esta é a palavra que aparece em [Gênesis 1:1](http://bibliaonline.com.br/acf/gn/1/1). A palavra hebraica para Deus na forma dual é Elohaim. Nunca é utilizada nas Escrituras. A palavra hebraica para Deus no singular é Eloah. A primeira vez que aparece é em [Deuteronômio 32:15-17](http://bibliaonline.com.br/acf/dt/32/15-17) onde Deus é apresentado em contraste com os ídolos.
+
+Nas Escrituras a ordem é sempre: Deus Pai em Seu propósito; o Filho, Aquele que executa os propósitos de Deus Pai, e o Espírito Santo, em cujo poder os propósitos são cumpridos. Esta verdade aparece por toda a Palavra de Deus.

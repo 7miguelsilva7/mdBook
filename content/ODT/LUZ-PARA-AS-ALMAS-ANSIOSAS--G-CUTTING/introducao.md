@@ -1,0 +1,9 @@
+# Introdução {#introdu-o}
+
+Se houve alguma coisa que pesou mais sobre o coração do autor ao escrever estas páginas, foi o pensamento de que a maioria dos que professam fé em Cristo praticam bem pouco essa fé. Em nossa preocupação com a idéia de levar paz às pessoas, existe um perigo especial que precisamos observar e orar para nos preservarmos dele e, ou seja, intrometer-nos (embora involuntariamente) entre Deus e os exercícios espirituais do indivíduo.
+
+Este risco nunca foi provavelmente maior do que numa época superficial como a nossa. É fácil possuir hoje uma certa loquacidade em assuntos religiosos sem que a alma tenha sido absolutamente despertada. Ou, caso haja alguma espiritualidade, o caráter da mesma é tão pouco profundo que mal se deixa perceber em sua vida e comportamento diários.
+
+Ao mesmo tempo, não pode haver dúvida de que através de impressões erradas quanto às próprias verdades fundamentais do evangelho, mediante hábitos de pensamento e expressão não-escriturísticos correntes em toda a Igreja professante, muitos corações se acham cheios de confusão e perplexidade realmente trágicos; embora os mesmos pudessem de outra forma estar saboreando a doçura da &quot;alegria e paz na fé&quot;. Isto não explica também a maneira pouco satisfatória do estilo de vida de inúmeras pessoas? Pois enquanto não tivermos um solo firme debaixo dos pés nosso andar será sempre vacilante.
+
+Esta foi a consideração que encorajou o autor em seu objetivo de ajudar as almas, colocando estas páginas à frente delas; e sua oração é no sentido de que possam servir de bênção a muitos, sem fazer ninguém tropeçar. Quanto consolo encontramos nas palavras: &quot;Pois fartou a alma sedenta, e encheu de bens a alma faminta&quot; ([SI 107.9](http://bibliaonline.com.br/acf/sl/107/9)).

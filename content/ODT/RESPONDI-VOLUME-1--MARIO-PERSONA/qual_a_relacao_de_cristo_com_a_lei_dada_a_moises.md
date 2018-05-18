@@ -1,0 +1,9 @@
+# Qual a relação de Cristo com a Lei dada a Moisés? {#qual-a-rela-o-de-cristo-com-a-lei-dada-a-mois-s}
+
+Quanto às suas dúvidas,[Mateus 5:17](http://bibliaonline.com.br/acf/mt/5/17) e Romanos[3:31](http://bibliaonline.com.br/acf/rm/3/31), o versículo diz exatamente o que está escrito, ou seja, que Cristo veio cumprir a lei, ou seja, ele se sujeitou à lei ([Gl 4:4](http://bibliaonline.com.br/acf/gl/4/4)), viveu em perfeita obediência à lei ([Jo 8:46](http://bibliaonline.com.br/acf/jo/8/46); Mateus[17:5](http://bibliaonline.com.br/acf/mt/17/5);[1 Pedro 2:21-23](http://bibliaonline.com.br/acf/1pe/2/21-23)); foi um ministro da lei aos judeus, limpando os erros que eles haviam introduzido ([Lc 10:25-37](http://bibliaonline.com.br/acf/lc/10/25-37)) e confirmando, ao mesmo tempo, as promessas feitas aos patriarcas ([Rm 15:8](http://bibliaonline.com.br/acf/rm/15/8)).
+
+Por meio de sua vida santa e de sua morte ele cumpriu todos os itens da lei ([Hb 9:11-26](http://bibliaonline.com.br/acf/hb/9/11-26)), e levou sobre Si mesmo a maldição da lei a fim de que todos os que cressem pudessem participar das bênçãos do pacto com Abraão ([Gl 3:13-14](http://bibliaonline.com.br/acf/gl/3/13-14)).
+
+Mediante sua obra, Cristo transportou a todos os que creem do lugar de servos da lei para a posição de filhos de Deus ([Gl 4:1-7](http://bibliaonline.com.br/acf/gl/4/1-7)). Ele serviu por seu sangue, de mediador de uma nova aliança de graça, na qual os crentes estão firmes ([Rm 5:2](http://bibliaonline.com.br/acf/rm/5/2); Hebreus[8:6-13](http://bibliaonline.com.br/acf/hb/8/6-13)). Portanto ele veio cumprir a lei (o que é impossível ao homem). Portanto, a lei não foi anulada, mas ela serve apenas para mostrar que o homem é pecador ([Rm 7:7](http://bibliaonline.com.br/acf/rm/7/7)) e ela não tem poder para salvá-lo.
+
+*****

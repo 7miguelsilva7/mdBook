@@ -1,0 +1,3 @@
+# O Nono Mandamento Mosaico {#o-nono-mandamento-mosaico}
+
+&quot;Não dirás falso testemunho contra o teu próximo&quot; ([Êxodo 20:16](http://bibliaonline.com.br/acf/ex/20/16)). O que equivale a isto encontra-se em [Efésios 4:25](http://bibliaonline.com.br/acf/ef/4/25): &quot;Pelo que deixai a mentira, e falai a verdade cada um com o seu próximo&quot;. Notemos também em [Romanos 13:9-10](http://bibliaonline.com.br/acf/rm/13/9-10): &quot;Não darás falso testemunho... O amor não faz mal ao próximo. De sorte que o cumprimento da lei é o amor&quot;. A demanda cristã neste assunto é igual à da lei, porém sobrepuja em muito as exigências da lei, e manifesta o amor ao próximo.

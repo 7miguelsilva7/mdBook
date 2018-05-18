@@ -1,0 +1,51 @@
+# O que você acha do Natal? {#o-que-voc-acha-do-natal}
+
+Bem, você já deve ter escutado muitas histórias e argumentos a favor e contra o Natal. Eu mesmo publiquei um texto de autor desconhecido colocando as bases bíblicas para o não reconhecimento do Natal como uma celebração cristã.
+
+Mas aqui vou contar uma história de Natal diferente, mas prepare-se porque é uma história diferente. Não é cheia de estrelinhas cantantes e pastorzinhos saltitantes como em presépio, nem tem fadas e duendes ajudando o Papai Noel, como em Shopping, mas é a verdadeira história do Natal.
+
+Era uma vez — há muito tempo, sem neve e nem dezembro — alguns homens sábios — ninguém sabe se eram três — que chegaram do Oriente a Israel para visitar a criança que tinha nascido para ser Rei de Israel. Como eles souberam do nascimento? Bem, foi Deus quem revelou isso e usou uma estrela para guiá-los. Um cometa? Não acredito. Já viu um cometa que às vezes anda e às vezes para sobre uma casa?
+
+Chegando a Jerusalém, os sábios descobriram que estavam com um probleminha. Israel já tinha um rei, Herodes, que não queria nem um pouco descer do trono. Ele ficou perturbado, e não apenas ele, mas toda a população de Jerusalém. Já viu isso? Todo mundo ficar perturbado porque outro Rei iria tomar o lugar de Herodes? Pois é, ninguém queria Jesus. O pessoal era da opinião de que em time que está ganhando bem não se mexe.
+
+Esta história você encontra nos Evangelhos, principalmente em Mateus. Em outro lugar aparece o que as pessoas de Jerusalém estavam realmente pensando: “Não queremos que este reine sobre nós” ([Lc 19:14](http://bibliaonline.com.br/acf/lc/19/14)). Isso não é novidade nenhuma. A gente já nasce assim, inimigos de Deus e de Cristo. ([Rm 5:10](http://bibliaonline.com.br/acf/rm/5/10)) Mas vamos continuar nossa verdadeira história do Natal.
+
+O rei Herodes mandou os principais sacerdotes e escribas — os teólogos e doutores da época — pesquisarem o que estava escrito nas profecias dos antigos profetas. Sabe o que acharam? “E tu, Belém, terra de Judá, De modo nenhum és a menor entre as capitais de Judá; Porque de ti sairá o Guia que há de apascentar o meu povo de Israel.” ([Mt 2:6](http://bibliaonline.com.br/acf/mt/2/6)).
+
+Aí o rei armou um plano. Perguntou aos sábios — é esta a interpretação correta para a palavra “magos” — quando foi que viram a estrela, para poder calcular direitinho a data de nascimento do novo Rei, e pediu que avisassem quando encontrassem a criança. Herodes disse que queria ir até lá adorar o menino, mas o que ele queria mesmo era matá-lo. Percebeu como a história da paixão e morte de Cristo começou muito tempo antes? A verdadeira história do Natal tem seu desfecho na cruz do Calvário.
+
+Finalmente os sábios, guiados pela estrela, chegaram à casa onde estava o menino. Casa? Isso mesmo, casa. Ué?! E a história da cocheira, da manjedoura, do burrinho e da vaquinha de presépio? Ou, cadê a gruta de algumas versões? Bem, Jesus nasceu mesmo num lugar humilde, provavelmente numa cocheira, e seu primeiro berço foi uma manjedoura. Por quê? Ora, porque não havia lugar para ele em nenhuma estalagem ([Lc 2:6](http://bibliaonline.com.br/acf/lc/2/6)). Na maioria dos corações das pessoas hoje ainda está escrito “NÃO HÁ VAGA” para Jesus. E no seu?
+
+Sinto ter estragado aquela ideia romântica que você tinha do presépio, mas a verdade é que quando os sábios chegaram com seus presentes José, Maria e Jesus já estavam numa casa e provavelmente o menino era bem crescidinho, pois os sábios não vieram do Oriente de avião, mas caminhando ou montados em animais. Meses se passaram entre o nascimento e sua chegada a Belém.
+
+Surpreso? Então veja só o que Herodes fez. Quando os sábios não voltaram para lhe dar notícia — Deus avisou para que voltassem por outro caminho — ficou furioso. Tão furioso que mandou seus guardas a Belém para matarem todos os meninos da cidade e arredores com idade até dois anos. Isso mesmo, todos os meninos de Belém e vizinhança com até dois anos de idade. Aquelas crianças não receberam a visita de Papai Noel com um saco de presentes, mas dos soldados para matá-las com espadas e lanças. O primeiro e verdadeiro Natal foi um infanticídio, um extermínio em massa de crianças até dois anos de idade. Enquanto isso, avisados por Deus, José e Maria fugiam para o Egito levando o menino Jesus, que devia ter até dois anos de idade.
+
+Você já percebeu que o mundo daquela época não desejava nem um pouco Jesus — nem Herodes, nem o povo, nem os sacerdotes e escribas, nem os soldados. Percebe que são as mesmas classes de pessoas — governo, povo, religião, sábios e militares — que aparecem na cena da crucificação? Nem o mundo nem as pessoas mudaram nesses dois mil anos. “Não queremos que este reine sobre nós” ([Lc 19:14](http://bibliaonline.com.br/acf/lc/19/14)) continua sendo o que a maioria das pessoas realmente diz para Jesus.
+
+Em nossa época as pessoas continuam também matando crianças, às vezes até para garantir seu presente de Natal.
+
+E Jesus, chamando um menino, o pôs no meio deles, e disse: Em verdade vos digo que, se não vos converterdes e não vos fizerdes como meninos, de modo algum entrareis no reino dos céus. Portanto, aquele que se tornar humilde como este menino, esse é o maior no reino dos céus. E qualquer que receber em meu nome um menino, tal como este, a mim me recebe. Mas, qualquer que escandalizar um destes pequeninos, que creem em mim, melhor lhe fora que se lhe pendurasse ao pescoço uma mó de azenha, e se submergisse na profundeza do mar.” ([Mt 18:2-6](http://bibliaonline.com.br/acf/mt/18/2-6)).
+
+É isso. Este mundo não é nenhuma Disneylândia, as pessoas não mudaram e nem vão mudar a menos que... Bem, o evento mais importante da vinda de Jesus a este mundo não foi seu nascimento, mas sua morte. Ele morreu para que aqueles que creem nele pudessem nascer de novo — um novo nascimento espiritual — com um coração limpinho, do jeito que Deus gosta. Para isso Jesus teve que pagar por nossos pecados na cruz, substituindo aqueles que o aceitam como Salvador.
+
+Então não é ficando bonzinho que a gente vai para o céu? Bem, talvez você ganhe mais presentes de Natal ficando bonzinho, mas nunca vai ganhar a salvação eterna tentando fazer isso. Primeiro, porque a salvação é um presente de Deus, é grátis porque Jesus pagou seu preço na cruz. Segundo, porque ninguém consegue ser bonzinho o suficiente — o padrão é o próprio Deus — para chegar lá. Deus salva e transforma aqueles que vão a Cristo com todos os seus defeitos, pecados, vícios, problemas. Ele sabe exatamente o que cada um está passando.
+
+Uma vez eu li a história de um médico que foi a um leprosário na África falar de Jesus aos leprosos. Quando chegou lá, viu que todos estavam sentados sobre as mãos, com os pés sob o corpo. Percebeu que escondiam os cotos que restaram das mãos e pés, mutilados pela doença. Sentiam vergonha que aquele médico todo arrumadinho visse suas deficiências, como muita gente faz tentando esconder seus problemas de Jesus.
+
+O médico ficou apavorado. Como iria repetir o sermão cheio de palavras bonitinhas que preparou enquanto viajava num avião com ar condicionado? Achou melhor esquecer. Olhou para aquelas pessoas e disse algo mais ou menos assim:
+
+“Eu venho de um lugar onde não passo fome, tenho casa para morar, saúde, dinheiro e muitas coisas que faltam a vocês aqui. Não sei o que é passar forme, dormir ao relento, ser leproso ou aleijado das mãos e dos pés. Então não tenho nada de mim para falar a vocês. Mas vou falar de alguém que sabe o que vocês estão passando. Sou médico, e sei que grandes pregos cravados nas mãos e nos pés mutilam. As mãos param de funcionar, os pés também. Quero dizer a vocês que Jesus um dia ficou com suas mãos e pés mutilados, pregados numa cruz. Morreu ali, sem poder se mexer, totalmente inválido, por mim e por vocês. Ele sabe muito bem o que vocês estão passando. É para ele que vocês devem olhar, é nele que devem crer. “Ele entende o que vocês estão passando.”
+
+Quando terminou de falar, todas aquelas pessoas — homens e mulheres, velhos e jovens, meninos e meninas — levantaram suas mãos expondo suas mutilações. Não queriam mais esconder seus problemas de Jesus. Ele os conhecia bem.
+
+Porque Deus amou o mundo de tal maneira que deu o seu Filho unigênito, para que todo aquele que nele crê não pereça, mas tenha a vida eterna. Porque Deus enviou o seu Filho ao mundo, não para que condenasse o mundo, mas para que o mundo fosse salvo por ele. Quem crê nele não é condenado; mas quem não crê já está condenado, porquanto não crê no nome do unigênito Filho de Deus.” ([Jo 3:16-18](http://bibliaonline.com.br/acf/jo/3/16-18)).
+
+Evidentemente não cabe ao cristão ser um estraga-prazeres, mesmo porque muitas pessoas realmente desfrutam da oportunidade de reunir a família, visitar amigos e presentear. Eu já fui muito radical neste sentido e não consegui nada. Hoje participo com a família numa festa que considero uma tradição familiar (como é o Dia de Ações de Graças nos Estados Unidos) e não uma celebração religiosa. E se sei que alguém irá me presentear, também compro um presente para aquela pessoa, pois seria uma indelicadeza recusar o presente ou deixar de retribuir.
+
+Há também o lado comercial da coisa, e de nada adianta reclamar de um dia que realmente movimenta o comércio quando a maioria de nós acaba se beneficiando disso, ou trabalhando em indústrias, em lojas ou mesmo em serviços, como um bancário, garçom ou manicure, nas mãos de quem vai parar o dinheiro das compras.
+
+Se algum cristão quiser realmente tratar a questão a ferro e fogo, o melhor então é procurar uma atividade que não se beneficie desses picos de vendas, mas acho que vai ser difícil. Ainda que você decida ir morar no campo e plantar trigo, obviamente suas vendas vão melhorar porque mais gente vai comer panetone.
+
+Apesar de sua falta de fundamento bíblico, não podemos deixar de nos lembrar de que o Natal é também uma excelente oportunidade para pregar o evangelho, pois tem muita gente que se sente bastante triste e melancólica nesta época do ano. Então, se você realmente deseja fazer uma diferença nesta época, faça algo de positivo e construtivo. Ao invés de sair por aí queimando árvores de natal, recusando presentes ou batendo com a Bíblia na cabeça do Papai Noel, pregue o evangelho.
+
+*****

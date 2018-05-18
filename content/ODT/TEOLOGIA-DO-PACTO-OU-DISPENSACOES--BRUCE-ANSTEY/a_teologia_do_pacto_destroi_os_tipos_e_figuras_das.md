@@ -1,0 +1,3 @@
+# A Teologia do Pacto destrói os tipos e figuras das Escrituras {#a-teologia-do-pacto-destr-i-os-tipos-e-figuras-das-escrituras}
+
+A Teologia do Pacto destrói os tipos e figuras das Escrituras. Ela descarta como mera ficção a beleza das figuras dispensacionais, tanto no Antigo quanto no Novo Testamento, que mostram o afastamento temporário de Israel e a presente interposição do chamado celestial da Igreja, antes de Deus retomar suas tratativas com o remanescente de Israel para introduzi-los nas bênçãos do reino milenial. Essas figuras representativas cobrem mais de cem capítulos de nossa Bíblia!

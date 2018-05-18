@@ -1,0 +1,19 @@
+# É possível ter certeza de ir para o céu? {#poss-vel-ter-certeza-de-ir-para-o-c-u}
+
+É frequente eu receber cartas de pessoas que parecem não desfrutar de uma segurança firme com respeito à sua salvação. Se este for o seu caso, saiba que tal situação persistirá enquanto você estiver associando salvação com bem-estar emocional.
+
+A salvação não é apenas uma solução para nossas angústias e tristezas. A salvação que Deus nos dá através de Cristo é a solução definitiva para a questão do pecado, que nos separa de Deus. Como pecadores, merecemos a condenação, a menos que aceitemos a Cristo como Salvador. É só então que estaremos totalmente seguros de nosso destino eterno, que será junto a Deus, no céu.
+
+A certeza dessa salvação é que irá proporcionar descanso e paz aos nossos corações. Mas a paz em nossos corações será apenas um fruto da paz que temos com Deus, quando passamos da posição de inimigos para a de filhos amados, coerdeiros com Cristo de todas as bênçãos celestiais.
+
+Muitos pensam ser impossível termos, agora mesmo, a certeza da salvação eterna e de um destino assegurado no céu. No entanto, aquele que verdadeiramente crê em Cristo pode ter como suas, agora mesmo, todas as promessas da vida vindoura.
+
+Para entender tal salvação, imagine que você foi vítima de um naufrágio, e se encontra no meio do oceano, sozinho na escuridão, tentando nadar para sobreviver. Suas forças começam a se acabar e aos poucos você percebe que está prestes a morrer, sem esperança de ser encontrado. De repente você ouve alguém gritar: “Segure a corda!” Em meio à escuridão você não vê ninguém, mas percebe que há uma corda ao seu lado. Você a agarra desesperadamente e em poucos minutos encontra-se são e salvo em um grande e seguro navio, a caminho do porto. A hora que você se vê no navio, é bem provável que não duvidará mais da sua salvação. Você estava perecendo no mar escuro e agora está em um seguro navio, com comida e sob cuidados médicos.
+
+Assim é a salvação de nossa alma. Todos nós somos pecadores, imersos na escuridão e afundando lentamente em direção ao lago de fogo, com um destino de horrível separação de Deus. De repente alguém diz: “Crê no Senhor Jesus e serás salvo!” ([Atos 16:31](http://bibliaonline.com.br/acf/atos/16/31)). Sabendo que não tem forças para se salvar a si próprio, você se segura em Cristo, crendo que ele morreu na cruz para pagar o seu pecado. Imediatamente você recebe de Deus o perdão de todos os seus pecados, pois “o sangue de Jesus Cristo, seu Filho, nos purifica de todo o pecado” ([1 João 1:7](http://bibliaonline.com.br/acf/1jo/1/7)), e recebe a promessa de que está livre do juízo de Deus, pois “quem crê nele não é condenado” ([Jo 3:18](http://bibliaonline.com.br/acf/jo/3/18)). Você poderá crer que já está salvo, se assim fizer?
+
+É claro que sim! Pois embora continue neste mundo, terá a promessa de Deus, contida na sua Palavra que é a Bíblia, de que está salvo do juízo, porque Cristo foi julgado e castigado no seu lugar. Assim como você estaria salvo no navio, mesmo estando ele no mar, você pode estar salvo em Cristo, mesmo que ainda esteja neste mundo.
+
+Quando cremos em Cristo, ficamos livres do juízo e da condenação que cairá sobre o pecador. Então será horrível, pois não haverá chance de ser salvo. A Bíblia fala, em [Apocalipse 20:15](http://bibliaonline.com.br/acf/ap/20/15) que “aquele que não foi achado escrito no livro da vida foi lançado no lago de fogo”. Para ter seu nome escrito no livro da vida, é necessário que você creia em Cristo enquanto ainda vive neste mundo. Com a morte, ou com a vinda de Cristo, acabam-se todas as chances de salvação.
+
+*****

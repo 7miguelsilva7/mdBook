@@ -1,0 +1,27 @@
+# É possível chegar à fé pela razão? {#poss-vel-chegar-f-pela-raz-o}
+
+Não há como eu incutir em você a crença de que a Bíblia seja divina, pois quando aqui não se trata de &quot;acreditar&quot; no sentido de uma asserção quanto à existência, mas de crer como quem crê que um cirurgião é bom, por ter sido salvo por ele.
+
+Não se chega à fé pelo intelecto. Eu tinha uma coleção de crenças intelectuais. Três anos de macrobiótica e uma estante cheia de livros esotéricos que sempre diziam que era preciso evoluir, que eu tinha algo a ser desenvolvido, que eu era isso e aquilo, que só precisava fazer isso ou aquilo para chegar ao céu, nirvana, equilíbrio, Tao, etc.
+
+Tudo isso caiu por terra imediatamente, quando me rendi. Trata-se de uma rendição: reconhecer que estou perdido e que preciso parar de buscar/lutar e simplesmente aceitar a oferta de amor de Deus. Foi assim. É por isso que se chama &quot;conversão&quot;. Você está indo para um lado, ouve um “meia volta, volver!” e dá um giro.
+
+O problema é que aceitar que a Bíblia é a Palavra de Deus significa aceitar que agora tem alguém que vai falar comigo e eu preciso obedecer. Aí acaba minha &quot;liberdade&quot; e “independência” (essa é a raiz do pecado). Antes de exercer fé em Deus e em sua Palavra, e assim considerar a Bíblia como tal, é preciso abrir mão de uma compreensão intelectual. Imagine-se diante de uma porta sem entender o que há lá dentro. Aí você passa a vida matutando sobre o que há lá, sem jamais ter dado o passo e atravessado a porta. Dar o passo é um momento de desequilíbrio, de incerteza, mas que é exatamente quando tudo o mais fica de lado e só a fé passa a ser o corrimão.
+
+Não podemos &quot;compreender&quot; Deus ou sua Palavra no sentido intelectual, mas apenas aceitá-lo. Você não compreende completamente seu celular, mas o aceita e usa. Seria um tolo se decidisse que só usaria celular quando compreendesse perfeitamente sua tecnologia.
+
+Não compreendo Deus, mas o aceito, e a Cristo como meu Salvador. Jamais vou entender como é que o Criador, por me amar tanto, entregou seu Filho para morrer em meu lugar, pagando por minhas culpas. Isto é algo que vai além de toda razão. Pense bem: o próprio Filho de Deus vindo ao mundo na forma de um homem para morrer! E morrer para assumir a culpa de um verme como eu! Dá para entender? Não. O mesmo com respeito à Bíblia.
+
+É por isso que se chama &quot;fé&quot;, da qual só temos a definição uma única vez na Bíblia: ([Hb 11:1](http://bibliaonline.com.br/acf/hb/11/1)) &quot;ORA, a fé é o firme fundamento das coisas que se esperam, e a prova das coisas que se não veem.”
+
+Quando falo da Bíblia com tanto carinho, é porque a carta de um pai só faz algum sentido quando se é filho. Para qualquer outro é algo banal. Qualquer estudioso pode conhecer a Bíblia como um livro, seu estilo, sua história etc. Mas é o Autor da Bíblia que precisa ser conhecido. Não vou entrar neste assunto, pois poderia escrever horas sem saber se você está realmente interessado em conhecer a fundo o que é a Bíblia, sua origem e seu poder. Caso esteja, sugiro que leia o livro &quot;Evidências que exigem um veredicto&quot;, de Josh McDowell. Ele tem outros livros sobre o tema.
+
+Eu e você escrevemos e sabemos que é mais fácil escrever um livro sozinho do que em grupo. Geralmente livros escritos em grupo acabam tendo algumas discordâncias, se o grupo não for coeso e tiver um mesmo pensamento. Agora imagine escrever um livro em grupo, só que um grupo de pessoas de níveis sociais e intelectuais diversos, morando em 3 continentes, sem que a maioria delas tenha contato umas com as outras. E não é só isso.
+
+Suponha que esse grupo seja formado por pessoas que viveram num período de 1.300 anos, entre o primeiro e o último autor, e tenham escrito porções deste livro em três idiomas diferentes. Para dificultar ainda mais as coisas, imagine que este projeto, no final, tenha que ter uma coerência ao longo de suas páginas, sem contradições. A obra tem que ser harmoniosa, do começo ao fim.
+
+É isso o que acontece com os 66 livros que compõem a Bíblia, escritos por quase 40 pessoas. Não é apenas uma grande obra. É transcendente e incrível. Jamais teria sido obra da simples compilação de autores ou do acaso. É preciso conhecer o Autor para saber. Sim, ela foi escrita por homens, mas é como se tivesse sido ditada.
+
+Há nelas provas incríveis, como as profecias já cumpridas. A destruição &quot;parcelada&quot; de Tiro é uma delas, já que dá para ler o que a Bíblia previu a respeito e comparar com o que já é história. A Bíblia conta que a cidade de Tiro (na campina) seria destruída ([Ez 26:8](http://bibliaonline.com.br/acf/ez/26/8)), que muitas nações se voltariam contra Tiro ([26:3](http://bibliaonline.com.br/acf/ex/26/3)), que suas muralhas seriam jogadas no mar e seria convertida em uma penha ([26:4](http://bibliaonline.com.br/acf/ex/26/4)), que os pescadores a usariam para secar suas redes ([26:5](http://bibliaonline.com.br/acf/ex/26/5)), que seus despojos seriam lançados ao mar (sem o que não serviria para enxugar as redes) ([26:12](http://bibliaonline.com.br/acf/ex/26/12)), que nunca mais seria reconstruída ([26:14](http://bibliaonline.com.br/acf/ex/26/14)) (a Tiro que conhecemos hoje não é a mesma).
+
+*****

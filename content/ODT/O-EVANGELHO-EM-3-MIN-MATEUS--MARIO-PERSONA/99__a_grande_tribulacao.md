@@ -1,0 +1,17 @@
+# 99 — A grande tribulação {#99-a-grande-tribula-o}
+
+[**Mateus 24:15-26**](http://bibliaonline.com.br/acf/mt/24/15-26)
+
+O discurso de Jesus continua realçando o caráter judaico de [Mateus 24](http://bibliaonline.com.br/acf/mt/24). No [versículo 15](http://bibliaonline.com.br/acf/mt/24/15) chegamos à profanação do Templo de Jerusalém, descrita pelo profeta Daniel. Quando os judeus fiéis, desse tempo que ainda é futuro, virem o sacrilégio cometido no lugar santo saberão que é chegada a hora. Para que isso aconteça é preciso que exista outra vez o Templo, portanto ele será reconstruído. A frase “_quem lê, entenda”_ ([Mt 24:15](http://bibliaonline.com.br/acf/mt/24/15)) tem grande significado para os judeus fiéis que lerão o profeta Daniel e entenderão que é chegada a hora.
+
+O capítulo continua mostrando que é dirigido a judeus. Além da referência ao Templo, que é destruído e reaparece profanado no [versículo 15](http://bibliaonline.com.br/acf/mt/24/15), Jesus fala de falsos profetas, pois foram profetas que levaram a Palavra de Deus a Israel. As advertências dos apóstolos feitas à Igreja é contra falsos mestres. Jesus fala também de falsos cristos que farão grandes milagres, e lembre-se de que “_Cristo”_ significa “_Messias”_. Sempre existiu gente por aí dizendo ser Jesus, querendo enganar os cristãos, mas quantos você encontra dizendo ser o Cristo, o Messias de Israel, tentando enganar os judeus?
+
+As pessoas às quais a profecia é dirigida estão na Judeia, e são exortadas a fugirem para os montes e orarem para que a fuga não aconteça no sábado, que é o dia em que os judeus não podem viajar, ou no inverno, que obviamente só abrange um hemisfério. Jesus está falando de uma tribulação como nunca houve desde o princípio do mundo, portanto não pode ser associada a qualquer perseguição, holocausto ou guerra da história, pois esta precede a volta de Cristo, o que ainda não aconteceu.
+
+O [capítulo 2](http://bibliaonline.com.br/acf/2ts/2) da Segunda Carta aos Tessalonicenses diz que então será revelado o Anticristo, o mestre dos milagres, que se assentará no Templo de Jerusalém proclamando ser Deus. Diz também que Deus fará com que creiam na mentira e sigam o Anticristo todos os que ouviram o evangelho, e foram deixados para trás no arrebatamento da Igreja. Portanto, se você ouviu o evangelho da graça e ainda não tomou uma decisão, a hora é agora. Depois só será salvo quem nunca foi evangelizado antes.
+
+O Anticristo só se manifestará depois que aquele que o detém, o Espírito Santo, for tirado da Terra. No [capítulo 2](http://bibliaonline.com.br/acf/atos/2) de Atos dos Apóstolos o Espírito Santo desceu ao mundo e passou a habitar individualmente em cada pessoa que crê em Jesus, e coletivamente na Igreja. Quando os crentes em Jesus forem tirados da Terra no arrebatamento, o Espírito, que é o penhor ou garantia da sua salvação, será tirado com eles. Quem for evangelizado depois disso e crer em Jesus terá o Espírito sobre si, como nos tempos do Antigo Testamento, mas não habitando em si, como acontece hoje.
+
+Se você crê realmente em Jesus, você tem o Espírito Santo, pois a Bíblia diz que se alguém não tem o Espírito de Cristo, esse tal não é dele. Você é de Jesus? Nos próximos 3 minutos o firmamento é abalado com a impressionante volta de Cristo.
+
+_tic-tac-tic-tac..._

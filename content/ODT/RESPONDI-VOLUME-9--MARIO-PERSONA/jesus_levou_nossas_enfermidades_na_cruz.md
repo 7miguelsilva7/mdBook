@@ -1,0 +1,53 @@
+# Jesus levou nossas enfermidades na cruz? {#jesus-levou-nossas-enfermidades-na-cruz}
+
+Agradeço por seu cuidado em escanear algumas páginas do livro de T. J. McCrossan assinalando as contradições entre o que aquele autor escreveu e o que você leu em meu texto “Cristo levou embora nossas enfermidades? “ T. J. McCrossan, que viveu no início do século 20, advogava que teria sido na cruz, e não em seu ministério em vida, que Cristo teria levado nossas enfermidades. Os versículos que ele usava como base para sua teoria eram “Verdadeiramente ele tomou sobre si as nossas enfermidades” ([Is 53:4](http://bibliaonline.com.br/acf/is/53/4)) e “Ele tomou sobre si as nossas enfermidades, e levou as nossas doenças” ([Mt 8:17](http://bibliaonline.com.br/acf/mt/8/17)).
+
+Tenho absoluta certeza de que ele estava completamente equivocado, não apenas neste ponto como em outros, como é o caso desta “pérola” tirada do mesmo livro: “Por que muitos verdadeiros santos de Deus não são curados? Muitos santos não são curados por causa do falso ensino. Esses santos não podem orar a oração de fé para serem curados, e o que é pior, eles creem que é da vontade de Deus que fiquem doentes. Ao mesmo tempo eles podem, sem dor na consciência, mandar chamar um médico e usam de todos os remédios humanos possíveis para se livrarem daquilo que Deus teria enviado a eles para seu próprio bem. A natureza humana é realmente engraçada”.
+
+Não acredito que ele tenha mantido o mesmo tom de sarcasmo ao se encontrar com Deus. Sim, porque T. J. McCrossan certamente ficou doente e morreu, como ficam doentes e morrem todas as pessoas depois de certa idade. Será que não orou “a oração de fé para ser curado”? Provavelmente ele nunca prestou atenção nas passagens que falam de santos enfermos, como Paulo, Timóteo e Trófimo, que não foram milagrosamente curados e até buscavam a ajuda de médicos e medicamentos para suas dificuldades físicas. Será que Paulo e os outros desconheciam a “oração de fé”?
+
+([2Tm 4:20](http://bibliaonline.com.br/acf/2tm/4/20)) “...deixei Trófimo doente em Mileto”. (Por que Paulo não curou Trófimo?).
+
+([1Tm 5:23](http://bibliaonline.com.br/acf/1tm/5/23)) “Não bebas mais água só, mas usa de um pouco de vinho, por causa do teu estômago e das tuas frequentes enfermidades”. (Por que Paulo não curou Timóteo?).
+
+No texto que me enviou o autor faz piruetas com os tempos dos verbos gregos para explicar que [Mateus 8:17](http://bibliaonline.com.br/acf/mt/8/17) não estaria se cumprindo no momento em que o Evangelho dizia estar se cumprindo, mas que ainda se cumpriria na cruz. Não entendo grego, mas o texto para mim é claro que quando Mateus revela que a profecia estava se cumprindo ali naquele momento é porque era ali mesmo o cumprimento da profecia, e não na cruz. Ao curar alguém, Cristo tomava a enfermidade da pessoa e podia fazer isso por causa de sua natureza imaculada. Ele tocava o leproso e não ficava impuro. Em vida ele levou as enfermidades de quem curou; na morte na cruz levou os pecados (não as enfermidades) dos que nele creem.
+
+O livro que me enviou foi publicado nos anos 30 e depois republicado por Kenneth Hagin, um pregador pentecostal conhecido por suas heresias e que escreveu: “Uma pessoa que busque cura deveria olhar para a Palavra de Deus e não para seus sintomas. Ela deveria dizer: sei que estou curada, porque a Palavra diz que pelas suas pisaduras eu fui curada”. O livro de McCrossan é apenas mais uma das obras que deram sustentação ao movimento pentecostal que tanto dano trouxe ao testemunho cristão.
+
+Kenneth Hagin, que promovia as ideias de McCrossan, também se inspirava em E. W. Kennyon, que escreveu: “Sei que estou curado porque o Senhor me disse que estou curado, e não me importo com os sintomas que possam estar em meu corpo... “Todas as doenças foram liquidadas por Deus no calvário, essa questão foi encerrada”. Kennyon morreria de câncer, a mesma doença que também matou Kenneth Hagin, que escreveu: “Não é a vontade de Deus que pessoa alguma fique doente... É sempre da vontade de Deus que cada crente seja curado fisicamente de qualquer doença ou enfermidade”.
+
+Outros que creram no mesmo equívoco de achar que na cruz Jesus teria levado nossas enfermidades foram também surpreendidos pela doença e pela morte. T. L. Osborne escreveu: “Cristãos nunca devem estar doentes… essa sempre é a vontade de Deus, curá-los de uma vez por todas”. Sua esposa Dayse Osborn morreu de câncer depois de se declarar curada diante de sua congregação. Muitos pregadores brasileiros seguem a mesma linha do erro, como Edir Macedo, Valdemiro Santiago e R.R. Soares, que escreveu: “Minha vida se divide em antes e depois de eu ter lido o livro, ‘O Nome de Jesus’, de Kenneth Hagin”. Ainda que a “oração de fé” desses pregadores que morreram doentes não tenha servido completamente para que permanecessem vivos, suas pregações de prosperidade certamente os tornaram prósperos graças aos milhares de doentes desesperados que eles enganaram com uma falsa ilusão de cura baseada numa interpretação errada das escrituras.
+
+Mas voltando ao livro que me enviou, quando um autor começa a viajar no grego e hebraico como se soubesse de algo que pobres mortais não sabem eu fico com um pé atrás para não ser levado pelo argumento. E neste caso nem há necessidade de se buscar no grego, pois basta comparar [Mateus 8:17](http://bibliaonline.com.br/acf/mt/8/17) com outras instâncias semelhantes para ver que sempre que é usada a expressão “para que se cumprissem as escrituras” ela está diretamente relacionada ao acontecimento no momento da ação. Seria estranho que apenas a passagem que fala de levar as enfermidades estivesse relacionada a um evento futuro, quando todas as outras tem relação com o que está acontecendo naquele exato momento. Aqui vão alguns exemplos:
+
+([Mt 1:22](http://bibliaonline.com.br/acf/mt/1/22)) “Tudo isto aconteceu para que se cumprisse o que foi dito da parte do Senhor, pelo profeta, que diz; eis que a virgem conceberá, e dará à luz um filho, e chamá-lo-ão pelo nome de EMANUEL, que traduzido é: Deus conosco”.
+
+([Mt 2:15](http://bibliaonline.com.br/acf/mt/2/15)) “E esteve lá, até à morte de Herodes, para que se cumprisse o que foi dito da parte do Senhor pelo profeta, que diz: do Egito chamei o meu Filho”.
+
+([Mt 2:23](http://bibliaonline.com.br/acf/mt/2/23)) “E chegou, e habitou numa cidade chamada Nazaré, para que se cumprisse o que fora dito pelos profetas: ele será chamado Nazareno”.
+
+([Mt 4:13-16](http://bibliaonline.com.br/acf/mt/4/13-16)) “E, deixando Nazaré, foi habitar em Cafarnaum, cidade marítima, nos confins de Zebulom e Naftali; para que se cumprisse o que foi dito pelo profeta Isaías, que diz: a terra de Zebulom, e a terra de Naftali, junto ao caminho do mar, além do Jordão, a Galileia das nações; o povo, que estava assentado em trevas, viu uma grande luz; e, aos que estavam assentados na região e sombra da morte, a luz raiou”.
+
+([Mt 8:16-17](http://bibliaonline.com.br/acf/mt/8/16-17)) “E, chegada a tarde, trouxeram-lhe muitos endemoninhados, e ele com a sua palavra expulsou deles os espíritos, e curou todos os que estavam enfermos; Para que se cumprisse o que fora dito pelo profeta Isaías, que diz: Ele tomou sobre si as nossas enfermidades, e levou as nossas doenças”.
+
+([Mt 12:15-22](http://bibliaonline.com.br/acf/mt/12/15-22)) “Jesus, sabendo isso, retirou-se dali, e acompanharam-no grandes multidões, e ele curou a todas. E recomendava-lhes rigorosamente que o não descobrissem, para que se cumprisse o que fora dito pelo profeta Isaías, que diz: eis aqui o meu servo, que escolhi, o meu amado, em quem a minha alma se compraz; porei sobre ele o meu espírito, e anunciará aos gentios o juízo. Não contenderá, nem clamará, nem alguém ouvirá pelas ruas a sua voz; não esmagará a cana quebrada, e não apagará o morrão que fumega, até que faça triunfar o juízo; e no seu nome os gentios esperarão. Trouxeram-lhe, então, um endemoninhado cego e mudo; e, de tal modo o curou, que o cego e mudo falava e via”.
+
+([Mt 13:34-35](http://bibliaonline.com.br/acf/mt/13/34-35)) “Tudo isto disse Jesus, por parábolas à multidão, e nada lhes falava sem parábolas; para que se cumprisse o que fora dito pelo profeta, que disse: abrirei em parábolas a minha boca; publicarei coisas ocultas desde a fundação do mundo”.
+
+([Mt 21:2-5](http://bibliaonline.com.br/acf/mt/21/2-5)) “Ide à aldeia que está defronte de vós, e logo encontrareis uma jumenta presa, e um jumentinho com ela; desprendei-a, e trazei-mos. E, se alguém vos disser alguma coisa, direis que o Senhor os há de mister; e logo os enviará. Ora, tudo isto aconteceu para que se cumprisse o que foi dito pelo profeta, que diz: dizei à filha de Sião: eis que o teu Rei aí te vem, manso, e assentado sobre uma jumenta, e sobre um jumentinho, filho de animal de carga”.
+
+([Mt 27:35](http://bibliaonline.com.br/acf/mt/27/35)) “E, havendo-o crucificado, repartiram as suas vestes, lançando sortes, para que se cumprisse o que foi dito pelo profeta: repartiram entre si as minhas vestes, e sobre a minha túnica lançaram sortes”.
+
+([Jo 12:37-38](http://bibliaonline.com.br/acf/jo/12/37-38)) “E, ainda que tinha feito tantos sinais diante deles, não criam nele; para que se cumprisse a palavra do profeta Isaías, que diz: Senhor, quem creu na nossa pregação? E a quem foi revelado o braço do Senhor?”
+
+([Jo 17:12](http://bibliaonline.com.br/acf/jo/17/12)) “Estando eu com eles no mundo, guardava-os em teu nome. Tenho guardado aqueles que tu me deste, e nenhum deles se perdeu, senão o filho da perdição, para que a Escritura se cumprisse”.
+
+([Jo 18:8-9](http://bibliaonline.com.br/acf/jo/18/8-9)) “Jesus respondeu: já vos disse que sou eu; se, pois, me buscais a mim, deixai ir estes; para que se cumprisse a palavra que tinha dito: dos que me deste nenhum deles perdi”.
+
+([Jo 19:24](http://bibliaonline.com.br/acf/jo/19/24)) “Disseram, pois, uns aos outros: não a rasguemos, mas lancemos sortes sobre ela, para ver de quem será. Para que se cumprisse a Escritura que diz: repartiram entre si as minhas vestes, E sobre a minha vestidura lançaram sortes”.
+
+([Jo 19:28](http://bibliaonline.com.br/acf/jo/19/28)) “Depois, sabendo Jesus que já todas as coisas estavam terminadas, para que a Escritura se cumprisse, disse: tenho sede”.
+
+([Jo 19:36](http://bibliaonline.com.br/acf/jo/19/36)) “Porque isto aconteceu para que se cumprisse a Escritura, que diz: nenhum dos seus ossos será quebrado”.
+
+*****

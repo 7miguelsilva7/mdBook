@@ -1,0 +1,5 @@
+## Ajoelhar-se Para Orar {#ajoelhar-se-para-orar}
+
+Devemos permanecer assentados durante momentos santos e solenes de oração? Reconhecemos que a grande necessidade na oração é ter a atitude correta no coração. Sabemos que muitos dos que vão às reuniões de oração são de idade avançada, estão enfermos, delicados e que não podem se ajoelhar por períodos longos, se é que podem fazê-lo. Em outros casos, há falta de espaço para ajoelhar-se.
+
+Estes são assuntos que requerem soluções práticas. Sem dúvida, há uma lamentável falta de reverência em muitas reuniões de oração. Tratemos de ajoelhar-nos sempre que nos seja possível. Isto expressa reverência. O bendito Mestre, &quot;pondo-se de joelhos, orava&quot; ([Lucas 22:41](http://bibliaonline.com.br/acf/lc/22/41)). O apóstolo Paulo disse o mesmo. “E havendo dito isto, pôs-se de joelhos, e orou com todos eles” ([Atos 20:36](http://bibliaonline.com.br/acf/atos/20/36)).

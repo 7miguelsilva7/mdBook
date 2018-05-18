@@ -1,0 +1,11 @@
+# Esclarecimento {#esclarecimento}
+
+As cartas a seguir, publicadas com a permissão do amigo a quem se dirigem, não foram enviadas até terem sido impressas. Quando o amoroso protesto dele chegou às minhas mãos eu quis responder imediatamente, mas considerando que recebi muitas cartas semelhantes e consultas pessoais, publiquei minhas respostas, primeiro, para explicar o passo que tomei; em segundo lugar, para esclarecer qualquer equívoco, e em terceiro lugar, a fim de retirar publicamente de circulação meu panfleto contra os chamados “irmãos”*, aos quais me refiro nas cartas.
+
+[*N. do T.: O autor refere-se aos “brethren”, também conhecidos por “Plymouth Brethren” e às vezes em português por “irmãos de Plymouth” ou “irmãos unidos”, para identificar aqueles que a partir do início do século 19 saíram dos sistemas religiosos para estarem congregados somente ao nome de Jesus. Nesta tradução usarei “irmãos”, entre aspas, porém aqueles que assumem tal posição fora das divisões denominacionais nunca adotaram para si mesmos tal título por considerarem “irmãos” todos os que fazem parte do corpo de Cristo, sem distinção].
+
+Os motivos da retirada de circulação de meu panfleto é que eu descobri que algumas fontes de minhas informações, usadas quando escrevi o texto, eram indignas de confiança. Informações mais autênticas me levaram a interpretar as coisas de uma maneira completamente diferente. Além disso, uma análise das declarações que eu tinha usado, quando vistas em seu contexto, me convenceu de que eu lhes tinha dado um significado que não era o pretendido pelo seu autor. Além disso, uma reconsideração minuciosa de alguns dos pontos de vista que eu mesmo tinha condenado, levaram-me a concluir que eles eram bíblicos. Sob tais circunstâncias, eu simplesmente obedeci às indicações da Palavra de Deus e aos ditames da consciência em confessar o meu erro, e espero que a publicação destas cartas ajudem a anular os efeitos de meu panfleto.
+
+Se aprouver ao Senhor usar essas cartas para orientar os crentes em um caminho e posição corretos, eu não poderia ser mais grato. Que elas possam ser usadas para a Sua glória no bem-estar dos seus santos.
+
+Edward Dennett - Blackheath, Londres,1875

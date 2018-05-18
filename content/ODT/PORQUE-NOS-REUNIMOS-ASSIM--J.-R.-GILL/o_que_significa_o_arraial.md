@@ -1,0 +1,11 @@
+# O que significa &quot;o arraial&quot;? {#o-que-significa-o-arraial}
+
+Falamos com freqüência do &quot;arraial&quot;, e talvez sem compreendermos completamente o que significa. Sem dúvida alguma, o &quot;arraial&quot;, em sua aplicação estrita, nos fala do tabernáculo, e da condição dos filhos de Israel no deserto, embora aqui ele seja claramente aplicado a Jerusalém. Ele coloca diante de nós a religião organizada e terrena. Jerusalém e seu templo, o lugar divino de adoração, durante muito tempo levou o selo do favor de Deus, e os cristãos judeus tinham sido vagarosos em se desligarem daquele sistema no qual haviam sido criados desde a infância. Todavia, agora eles são exortados a sair.
+
+Vocês já repararam, amados amigos cristãos, quão singular era o estado de coisas que existia aqui no final de Hebreus? Repare a data que é dada na tradução King James [versão inglesa da Bíblia]: 64 d.C. Trinta anos ou mais após o princípio do cristianismo, eles ainda são encontrados em Jerusalém crentes - seguindo adiante com o judaísmo, seguindo adiante ainda com o templo e os sacrifícios que eram oferecidos no templo. Você há de concordar que aquilo era algo muito estranho! É evidente que sim, e talvez se eu e você tivéssemos vivido naquela época, não teríamos tido a paciência que Deus teve, mas Ele os suportou. Aqui já se haviam passado trinta anos e nós os vemos prosseguindo da mesma maneira, mantendo uma doutrina que misturava a graça e as obras. Isso não era nada diferente de se misturar água com óleo. Eles foram exortados a sair &quot;...a Ele fora do arraial, levando o Seu vitupério&quot;.
+
+Há certos pontos associados a este sistema que eu gostaria de tratar por alguns momentos. As características do arraial eram quatro. Primeiro, ele tinha um santuário terreno. (Originalmente era o tabernáculo; mais tarde foi o templo.) Em segundo lugar, ele tinha uma ordem estabelecida de sacerdócio que se colocava entre Deus e os adoradores.
+
+Terceiro, ele tinha uma congregação de adoradores composta de salvos e não salvos.
+
+Quarto, todos eles juntos e coletivamente, estavam sob a lei para justiça. Estas quatro características marcavam o arraial.

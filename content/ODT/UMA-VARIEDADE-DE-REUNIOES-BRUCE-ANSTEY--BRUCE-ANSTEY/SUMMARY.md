@@ -1,0 +1,16 @@
+# Summary
+
+* [UMA-VARIEDADE-DE-REUNIOES-BRUCE-ANSTEY-BRUCE-ANSTEY](README.md)
+* [Uma Variedade de Reuniões](uma_variedade_de_reunioes.md)
+* [REUNIÕES DE ASSEMBLEIA](reunioes_de_assembleia.md)
+* [PARTIMENTO DO PÃO](partimento_do_pao.md)
+* [REUNIÃO DE ORAÇÃO](reuniao_de_oracao.md)
+* [REUNIÃO ABERTA](reuniao_aberta.md)
+* [REUNIÃO PARA AÇÕES DE DISCIPLINA](reuniao_para_acoes_de_disciplina.md)
+* [REUNIÕES DA ASSEMBLEIA](reunioes_da_assembleia.md)
+* [REUNIÃO DE LEITURA](reuniao_de_leitura.md)
+* [PREGAÇÃO PARA CRENTES](pregacao_para_crentes.md)
+* [PREGAÇÃO DO EVANGELHO](pregacao_do_evangelho.md)
+* [REUNIÃO PARA RELATAR UM TRABALHO MISSIONÁRIO](reuniao_para_relatar_um_trabalho_missionario.md)
+* [REUNIÃO DE IRMÃOS (ou REUNIÃO DE CUIDADOS)](reuniao_de_irmaos_ou_reuniao_de_cuidados.md)
+* [REUNIÃO DE COMUNHÃO (ou Festa de Amor)](reuniao_de_comunhao_ou_festa_de_amor.md)

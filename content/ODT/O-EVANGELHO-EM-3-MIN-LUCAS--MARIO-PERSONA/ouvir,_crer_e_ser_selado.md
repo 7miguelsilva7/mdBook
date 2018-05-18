@@ -1,0 +1,15 @@
+# **Ouvir, crer e ser selado** {#ouvir-crer-e-ser-selado}
+
+[Lucas 11:13](http://bibliaonline.com.br/acf/lc/11/13)
+
+A passagem em Efésios 1:13 é categórica: &quot;Quando vocês ouviram e creram na palavra da verdade, o evangelho que os salvou, vocês foram selados com o Espírito Santo da promessa, que é a garantia da nossa herança até a redenção daqueles que pertencem a Deus, para o louvor da sua glória&quot;. Hoje uma pessoa convertida a Cristo não precisa pedir pelo Espírito Santo, pois sua vinda para habitar no novo convertido é automática.
+
+Em Efésios Deus enxerga o cristão com tudo resolvido. No[capítulo 1](http://bibliaonline.com.br/acf/ef/1) ele foi abençoado “com todas as bênçãos espirituais nas regiões celestiais em Cristo” (v. 3); foi escolhido em Cristo “antes da fundação do mundo” para ser santo e irrepreensível (v. 4); foi predestinado para ser filho por adoção (v. 5); já possui a redenção por meio do sangue e o perdão dos pecados (v. 7); tem revelado para si o mistério da vontade de Deus (v. 9) e foi selado com o Espírito Santo depois de ouvir e crer na palavra da verdade (v. 13).
+
+O[capítulo 2](http://bibliaonline.com.br/acf/ef/2) de Efésios continua explicando que o crente tem vida juntamente com Cristo (v. 5); está ressuscitado com Cristo e assentado nas regiões celestiais (v. 6); foi salvo pela graça, por meio da fé (v. 8); tem acesso ao Pai (v. 18); é membro da família de Deus (v. 19) e é morada do Espírito Santo, coletiva e individualmente. Já que o crente em Jesus possui, não só o Espírito Santo, mas todo um pacote de benefícios e privilégios, não faria muito sentido ele orar por algo que já recebeu, não é mesmo? Além disso, em Romanos 8:9 diz que “se alguém não tem o Espírito de Cristo, não pertence a Cristo”.
+
+Isto mostra que, na atual dispensação, uma pessoa é considerada pronta para o céu depois que ouviu o Evangelho, creu em Jesus e foi selada com o Espírito Santo. Mas quando analisamos outras passagens dos Evangelhos e das epístolas percebemos que a divisão no versículo 13 de Efésios não é sem um propósito. Ali diz que ouviram, creram e foram selados, indicando assim três momentos bem definidos da salvação, ainda que possam ocorrer simultaneamente. Esta é uma verdade pouco compreendida na cristandade, principalmente por aqueles que acreditam ser possível ao homem crer em Cristo sem um empurrão de Deus.
+
+Para que alguém creia em Cristo é preciso que antes tenha recebido vida espiritual vinda de Deus. Quem está espiritualmente morto não sente o peso de seus pecados e não tem qualquer motivação para buscar a Deus. É isto que Jesus chama de nascer de novo em sua conversa com Nicodemos no[capítulo 3](http://bibliaonline.com.br/acf/jo/3) de João. O novo nascimento se dá quando o Espírito de Deus aplica a água da Palavra de Deus em uma alma gerando vida. Assim que recebe vida, o pecador passa a se interessar pelas coisas de Deus, ao mesmo tempo em que é incomodado por seu pecado e aterrorizado pelo juízo. É este o estado de Cornélio, no[capítulo 10](http://bibliaonline.com.br/acf/atos/10) de at. Mas quem é Cornélio? É o que veremos nos próximos 3 minutos.
+
+tic-tac-tic-tac...

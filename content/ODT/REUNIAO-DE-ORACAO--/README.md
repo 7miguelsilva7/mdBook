@@ -1,0 +1,7 @@
+# REUNIAO-DE-ORACAO {#reuniao-de-oracao}
+
+REUNIÃO DE ORAÇÃO
+
+DESCONHECIDO
+
+2017-07-21T17:00:00+09:00

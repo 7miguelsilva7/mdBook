@@ -1,0 +1,3 @@
+# EM CASA {#em-casa}
+
+“ Vai para tua casa, para os teus, e anuncia-lhes quão grandes coisas o Senhor te fez” ( [Marcos 5:19](http://bibliaonline.com.br/acf/mc/5/19)). Com quantas pessoas eu me encontro a cada dia, as quais não conhecem o amor de Deus? Eu não tenho que viajar para terras distantes para contar aos outros o que o Senhor tem feito por mim. Meu campo missionário pode estar em minha vizinhança, meus amigos, aqueles com quem trabalho, ou meus colegas de estudos. O Senhor pode me enviar a falar a um estranho na rua. Minha missão é contar aos outros quão grandes coisas o Senhor fez por mim.

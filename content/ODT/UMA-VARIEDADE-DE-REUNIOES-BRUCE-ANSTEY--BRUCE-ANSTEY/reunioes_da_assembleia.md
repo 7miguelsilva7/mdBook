@@ -1,0 +1,3 @@
+# REUNIÕES DA ASSEMBLEIA {#reuni-es-da-assembleia}
+
+As reuniões nesta segunda categoria têm um caráter diferente daquelas as quais nós chamamos de “reuniões de assembléia”. A principal diferença é que estas reuniões são realizadas por responsáveis, irmãos dotados, em vez de ser sob a direta e espontânea direção do Espírito. Isto não quer dizer que o Espírito de Deus não seja necessário ou que não dependa-se dEle nestas reuniões; aqueles que falam deveriam ser “cheios do Espírito” ([Efésios 5:18](http://bibliaonline.com.br/acf/ef/5/18)) e “guiados pelo Espírito”([Romanos 8:14](http://bibliaonline.com.br/acf/rm/8/14)).

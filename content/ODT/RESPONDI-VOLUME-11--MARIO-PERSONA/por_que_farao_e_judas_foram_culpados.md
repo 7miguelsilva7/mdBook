@@ -1,0 +1,13 @@
+# Por que Faraó e Judas foram culpados? {#por-que-fara-e-judas-foram-culpados}
+
+Alguém perguntou: “Se foi Deus quem endureceu o coração de Faraó para não deixar os israelitas saírem do Egito, e se foi Satanás quem entrou em Judas para este trair Jesus, como se poderia atribuir a eles culpa pelo que fizeram?” O processo de endurecimento de Judas (e posterior morada de Satanás) é semelhante ao de Faraó e ao dos que receberão o anticristo no futuro, e também ao de qualquer pessoa que rejeite a Palavra de Deus. Primeiro a pessoa endurece o próprio coração para não dar ouvidos a Deus, depois Deus endurece o coração da pessoa.
+
+Ao que parece Faraó endureceu seu próprio coração cinco vezes (número da responsabilidade humana) antes de Deus endurecer seu coração: “Porém o coração de Faraó se endureceu, e não os ouviu...” ([Êxodo 7:13, 22](http://bibliaonline.com.br/acf/ex/7/13,22); [8:15, 19, 32](http://bibliaonline.com.br/acf/ex/8/15:19:32)). “Porém o Senhor endureceu o coração de Faraó” ([Êxodo 9:12](http://bibliaonline.com.br/acf/ex/9/12)).
+
+O endurecimento próprio não vem da ignorância, mas justamente o contrário. Vem de conhecer e deliberadamente rejeitar. Judas encaixa-se no que é dito em [Hebreus 6:4-6](http://bibliaonline.com.br/acf/hb/6/4-6), como alguém que teve todos os privilégios de ter andado com Jesus, porém sem nunca ter crido nele: “Porque é impossível que os que já uma vez foram iluminados, e provaram o dom celestial, e se tornaram participantes do Espírito Santo, e provaram a boa palavra de Deus, e as virtudes do século futuro, e recaíram, sejam outra vez renovados para arrependimento”.
+
+No futuro, os que receberão o anticristo... “esse cuja vinda é segundo a eficácia de Satanás, com todo o poder, e sinais e prodígios de mentira, e com todo o engano da injustiça para os que perecem” chegarão a esse ponto “porque não receberam o amor da verdade para se salvarem.”. Uma vez tendo eles próprios endurecido seus corações quando havia oportunidade de se salvarem, e não o fizeram, Deus age para que aceitem a mentira como verdade. “E por isso Deus lhes enviará a operação do erro, para que creiam a mentira; para que sejam julgados todos os que não creram a verdade” ([2 Tessalonicenses 2:9-12](http://bibliaonline.com.br/acf/2ts/2/9-12))
+
+Isso é mais ou menos o que está em [Provérbios 29:1](http://bibliaonline.com.br/acf/pv/29/1): “O homem que muitas vezes repreendido endurece a cerviz, de repente será destruído sem que haja remédio”.
+
+*****

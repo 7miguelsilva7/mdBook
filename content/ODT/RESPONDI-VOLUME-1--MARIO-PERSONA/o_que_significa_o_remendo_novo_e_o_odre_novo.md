@@ -1,0 +1,9 @@
+# O que significa o remendo novo e o odre novo? {#o-que-significa-o-remendo-novo-e-o-odre-novo}
+
+Você perguntou sobre[Marcos 2:21-22](http://bibliaonline.com.br/acf/mc/2/21-22). Um remendo de um pano novo e resistente sobre um tecido já enfraquecido, fatalmente causará um rombo maior. Odres são peles (de porco, carneiro ou outro animal) confeccionadas na forma de um saco para reter líquidos. Ainda hoje é usado de diferentes maneiras em diversas regiões do mundo. Por exemplo, há lugares na China onde é usado para fazer manteiga, enchendo-o de nata e jogando-o no chão continuamente até que a nata fique bem batida e se transforme em manteiga.
+
+Quando, na antiguidade, se fazia vinho, era comum colocar o suco de uva em um odre novo. Na medida em que o suco fermentava, liberava gás que, por não ter por onde escapar ia enchendo o odre e, com a pressão, esticando o couro. Não é preciso dizer que ao fim do processo o odre estava maior. Porém não poderia ser usado novamente da mesma forma, pois a elasticidade do couro teria chegado ao limite. Se fosse colocado ali suco de uva ou vinho novo ainda em fase de fermentação, fatalmente o odre se rasgaria com a pressão.
+
+O Senhor fazia menção ao fato de que as novas coisas, referente ao reino, que estava ensinando aos judeus não poderiam ser armazenadas nos velhos costumes deles (para compreender melhor o reino leia Parábolas de Mateus[13](http://bibliaonline.com.br/acf/mt/13) — creio que você já tenha este livreto). Numa aplicação mais prática, posso dizer que é impossível alguém receber as coisas de Deus a menos que tenha nascido de novo, que seja uma nova criatura. Tentar absorver as coisas de Deus e tentar aplicá-las à velha natureza ou ao velho homem só resultará em um rombo maior ou em desperdício.
+
+*****

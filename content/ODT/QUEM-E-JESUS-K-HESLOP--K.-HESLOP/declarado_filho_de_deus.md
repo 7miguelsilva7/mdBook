@@ -1,0 +1,9 @@
+# DECLARADO FILHO DE DEUS {#declarado-filho-de-deus}
+
+Paulo escreveu aos cristãos romanos: &quot;Acerca de Seu Filho, que nasceu da descendência de Davi segundo a carne, declarado Filho de Deus em poder, segundo o Espírito de santificação, pela ressurreição dentre os mortos&quot; ([Romanos 1:3,4](http://bibliaonline.com.br/acf/rm/1/3,4)). Aqui, bem no começo de sua carta aos crentes em Roma, Paulo confirma tanto a humanidade como a divindade de Jesus Cristo. Jesus &quot;nasceu da descendência de Davi segundo a carne&quot;.
+
+Isso aconteceu há quase dois mil anos quando Cristo nasceu de uma virgem em um estábulo em Belém. Mas repare que as Escrituras são cuidadosas aqui em fazer uma distinção. Embora Se tenha tornado um Homem, ele foi &quot;declarado Filho de Deus&quot;. Nada aqui sugere que Ele tenha Se tornado Filho de Deus. Como Filho de Deus Ele é o EU SOU, Aquele que sempre existiu.
+
+João começou seu evangelho com a declaração de que &quot;no princípio era o Verbo, e o Verbo estava com Deus, e o Verbo era Deus. Ele estava no princípio com Deus... e o Verbo Se fez carne, e habitou entre nós... cheio de graça e de verdade&quot; ([João 1:1-14](http://bibliaonline.com.br/acf/jo/1/1-14)).
+
+Quanto cuidado da parte de Deus em registrar um testemunho da divindade de Seu amado Filho. Em Hebreus, no primeiro capítulo, lemos que Deus nos falou &quot;pelo Filho, a Quem constituiu herdeiro de tudo, por Quem fez também o mundo. O Qual, sendo o resplendor da Sua glória, e a expressa imagem da Sua pessoa, e sustentando todas as coisas pela palavra do Seu poder, havendo feito por Si mesmo a purificação dos nossos pecados, assentou-Se à destra da majestade nas alturas&quot; ([Hebreus 1:1-3](http://bibliaonline.com.br/acf/hb/1/1-3)). Jesus Cristo é a própria essência de Deus. Verdadeiramente, em Cristo &quot;habita corporalmente toda a plenitude da divindade&quot; ([Cl 2:9](http://bibliaonline.com.br/acf/cl/2/9)).

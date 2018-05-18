@@ -1,0 +1,91 @@
+# Deus não aprova a homo afetividade? {#deus-n-o-aprova-a-homo-afetividade}
+
+Em seu e-mail você tenta provar que não existe fundamento bíblico para condenar o que você chamou de homo afetividade. Você pode fazer sua própria vontade se quiser, porque é essa a raiz do mal que já vem embutido em nós quando nascemos, já que o pecado original é fazer a própria vontade.
+
+Porém, ao tentar provar pela Bíblia que a sua vontade está certa aos olhos de Deus você só aumenta sua condenação. Aquele que não conheceu a vontade de seu senhor e não a fez sofrerá poucos açoites, mas aquele que conheceu e não a fez sofrerá muitos açoites, foi a analogia que Jesus fez.
+
+Você começa usando o neologismo “homo afetividade” como se fosse algo diferente de homossexualismo, gay, sodomia, lesbianismo ou qualquer outra palavra usada para identificar relações sexuais entre pessoas do mesmo sexo. Será que entendi que usou o termo para dar a ele um termo mais amplo e não denotar interesse puramente sexual?
+
+Seja o que for, o amor entre pessoas do mesmo sexo eu só encontro na Bíblia quando vejo o amor entre pai e filho ou mãe e filha, entre amigos (como Davi e Jonatas, mas sem essa conotação homossexual que alguns querem enxergar), entre o Senhor Jesus e eu, entre irmãos, etc. Em nenhum destes casos existe o impulso sexual ou a intenção de formarem um “casal”.
+
+Seus argumentos são fracos. Ao afirmar que devemos nos despir de sentimentos discriminatórios você faz o mesmo que qualquer um com um sentimento discriminatório ‘antigay’ faria: querer convencer outros a aceitarem sua posição e ideias. Alguém que é a favor do homossexualismo é tão discriminatório quanto o que é contra, se discrimina os que pensam de modo diferente. Entenda que as pessoas podem acreditar o que quiserem, e enquanto isso fica no âmbito das ideias não há qualquer problema ou ofensa nisso.
+
+Considerando ainda que escreveu para mim sem eu conhecê-lo e sem exatamente perguntar algo, entendo que seja esta uma iniciativa ativa e não passiva de tentar me convencer de suas ideias, já que devo ter o perfil das pessoas que você discrimina, ou seja, das que acreditam no que a Bíblia fala do homossexualismo. A maioria das pessoas que acreditam ser a prática homossexual contrária ao que Deus ensina em sua Palavra não sai por aí com um sentimento de caça às bruxas ou faz passeatas e carreatas para tentar afirmar sua posição heterossexual.
+
+É bom entender que em momento algum Deus odeia o homossexual, assim como em momento algum Deus odeia o pecador (e todos nós somos pecadores). Deus abomina a prática homossexual, o contato entre corpos de pessoas do mesmo sexo. Embora eu saiba que muitos misturam as coisas e passam a discriminar os homossexuais (as pessoas) e não apenas o homossexualismo (a prática), o cristão que conhece a Palavra de Deus irá entender a diferença e não irá querer entrar no bloco da caça às bruxas, mas saberá tratar com amor qualquer pessoa, independente de sua religião, etnia, prática sexual, classe social, time que torce ou seja lá o que for.
+
+Infelizmente, pelo mau jeito com que os homossexuais (pessoas) têm sido tratados por alguns que não entendem a diferença entre a prática e o ser humano, a caça às bruxas já começa a mudar de lado. Uma pessoa que hoje acredite naquilo que a Bíblia diz sobre a prática homossexual (mesmo que respeite as pessoas) está sujeita a ser discriminada como politicamente incorreta, como se a liberdade de pensamento só valesse para o caso de todos pensarem como a maioria pensa ou a última pesquisa do IBOPE indicou.
+
+Para isso já existe o nome de discriminação reversa, que é quando aquele que era antes discriminado exige que todos pensem como ele. Sou contra qualquer tipo de discriminação, mas a favor do livre pensar. Posso respeitar uma pessoa sem concordar com suas práticas, e isso não se configura discriminação. Ninguém é obrigado a torcer pelo mesmo time ou gostar das mesmas cores.
+
+Quando você argumenta que precisamos usar a sabedoria e a inteligência (que você tenta legitimar por terem sido dadas por Deus), você se esquece de que somos criaturas arruinadas pelo pecado, portanto uma triste caricatura daquilo que fomos no princípio.
+
+Por isso nossa inteligência e sabedoria, puramente humanas, também estão igualmente arruinadas e distorcidas, e é por isso que Deus nos alerta a não confiarmos em nossa inteligência, sabedoria e discernimento. Você encontra bastante sobre isso em [1 Coríntios 1](http://bibliaonline.com.br/acf/1co/1) [e 2](http://bibliaonline.com.br/acf/1co/2) e em outras passagens da Bíblia.
+
+Se não podemos confiar em nossa sabedoria para discernir isso vamos ser obrigados a apelar para uma sabedoria superior, no caso a de Deus, que foi revelada na sua Palavra, a Bíblia. Se você a considera a Palavra de Deus, então terá de se sujeitar a ela. Se não, terá que rejeitá-la completamente, sob a pena de estar se considerando mais sábio do que Deus, a ponto de saber discernir o que nela está certo e o que nela está errado.
+
+Hoje está na moda tentar apontar o que é genuíno na Bíblia e o que teria sido alterado, como se alguém tivesse os originais para comprovar essas supostas alterações. Você sempre irá encontrar alguém com opiniões diferentes e aí teremos tantas versões do certo e errado de Deus quantas são as pessoas neste mundo.
+
+Mais uma vez você erra ao dizer que os sentimentos de amor, paixão, desejo, sensualidade e sexualidade são aceitáveis e perfeitos diante de Deus. Sim, ele nos deu essas coisas, mas elas foram também contaminadas pelo pecado e também são condicionais. Uma criança pode ter esses desejos, mas você certamente não gostaria que uma filha sua ainda pequena mantivesse relações sexuais com os meninos da escola só porque ela tem esses desejos e é anatomicamente capaz de usá-los.
+
+Deus colocou em nós a sexualidade com um propósito e basta uma olhada em Gênesis para descobrir que propósito foi esse: “crescei e multiplicai-vos”. Você consegue fazer isso entre duas pessoas do mesmo sexo? Quando você dá um martelo ao seu filho, também explica que é para martelar o prego, não o dedo. Há condições para tudo e sem ler o manual não entenderemos como usar a ferramenta.
+
+É claro que nem sempre um casal pratica sexo ou carícias de cunho sexual apenas com o objetivo de procriar. Há uma passagem quando um rei descobre que Rebeca não era exatamente irmã de Isaque ao espiá-los “brincando”:
+
+“E aconteceu que, como ele esteve ali muito tempo, Abimeleque, rei dos filisteus, olhou por uma janela, e viu, e eis que Isaque estava brincando com Rebeca sua mulher. Então chamou Abimeleque a Isaque, e disse: Eis que na verdade é tua mulher; como pois disseste: É minha irmã? E disse-lhe Isaque: Porque eu dizia: Para que eu porventura não morra por causa dela.” ([Gn 26:8-9](http://bibliaonline.com.br/acf/gn/26/8-9)).
+
+Mesmo assim, me parece muito claro que as ferramentas que Deus colocou em nosso corpo, sejam elas anatômicas ou sensoriais, foram com a intenção de unir um homem e uma mulher em matrimônio para que se complementassem e também gerassem filhos e mantivessem um relacionamento como família. Ainda que não gerem filhos, o homem e a mulher fazem uso do sexo como forma de manterem um relacionamento íntimo. Não encontro na Palavra de Deus limitações exceto as impostas nas epístolas quanto ao sexo fora do casamento ou aquelas que dizem que os cônjuges não devem se privar um ao outro, desde que mantenham o leito “sem mácula”, ou seja, estejam em uma união lícita e não envolvidos em fornicação, prostituição ou adultério.
+
+Negar as bases do relacionamento entre um casal conforme foi instituído por Deus no Éden é destruir todo o simbolismo existente também entre Jesus e sua noiva, a Igreja (ou entre o noivo e a noiva Israel em Cantares). Considerando que essas coisas já estavam nos desígnios de Deus muito antes da criação, acredito até que Deus tenha criado o relacionamento homem-mulher pensando já no relacionamento de Cristo com sua noiva. Não foi o caso de Deus apenas “emprestar” um conceito que surgiu no jardim do Éden, mas o contrário. Deus colocou Adão e Eva como figuras daquilo que já tinha planejado e iria fazer com Jesus e a Igreja.
+
+Quando você diz estranhar cristãos que veem com maus olhos a união entre pessoas do mesmo sexo é porque não está levando em conta o que Deus pensa a respeito. Na Bíblia há muitas coisas que são chamadas de “pecado”, mas algumas são chamadas de “abominação”, e entre essas se inclui o homossexualismo. [Levítico 18:22](http://bibliaonline.com.br/acf/lv/18/22) diz:
+
+“Com homem não te deitarás, como se fosse mulher; abominação é”.
+
+Muito embora Deus ame todas as pessoas sem distinção, ele considera o ato homossexual abominável. É claro que se fizer uma pesquisa de opinião pública você irá descobrir que Deus não nem um pouco politicamente correto em algumas coisas que são aceitas pela sociedade em nossos dias.
+
+Seus argumentos valem ser repetidos aqui, no que diz respeito ao contexto da ordenança do matrimônio:
+
+“Numa leitura mais ampla e conhecedora desta passagem, considerando todo contexto deste capítulo, lembramos que naquele tempo era costume do povo de DEUS e tradição que as famílias tinham que ser numerosas, consideravam bênçãos de DEUS, o maior número possível de filhos, para assim garantir a continuidade da descendência, a segurança do clã, e o conforto dos anciãos, prática inviável nos dias atuais”.
+
+Será que não percebeu que o matrimônio foi instituído no Jardim do Éden, antes da queda, quando só existiam Adão e Eva e nenhum perigo? De onde vem essa ideia de “garantir... a segurança do clã e o conforto dos anciãos” se o pecado ainda não tinha aparecido e se Adão e Eva nem sequer estavam sujeitos à morte?
+
+Além disso, se eu fosse você não seria tão rápido em afirmar que “para DEUS, é um assunto muito pequeno e insignificante” o da união entre duas pessoas (e Deus falava de pessoas de sexos opostos). Esse é o assunto inicial da Bíblia — Adão se une a Eva — e o assunto final da Bíblia — Jesus se une à sua noiva, a Igreja — e você diz que é insignificante? É o tema de todo um livro, Cantares, e você acha que Deus não está prestando atenção a isso?
+
+Às vezes fico na dúvida o que os homossexuais estão realmente reivindicando. Se é apenas uma questão de direitos, creio que qualquer país permite que duas pessoas façam um contrato de sociedade ou um acordo quanto aos seus bens e direitos mútuos sem que isso se configure um matrimônio. Se for uma questão de cunho moral, querer fazer isso de cima para baixo, ou seja, do governo para as consciências individuais é algo tão complicado quanto tentar manter um estado teocrático. Cada um tem o direito de considerar o que é certo e errado se isso não interferir na vida do vizinho.
+
+Já se a questão é de querer imitar o matrimônio, uma instituição que não é humana, mas divina em sua origem, aí a coisa fica mais complicada.
+
+Sua interpretação de que a condenação da prática homossexual encontrada na Bíblia era apenas para aquela época em razão dos costumes e da cultura também é furada. Se fosse assim, Deus não precisaria ter tratado do assunto quando deu a Lei aos hebreus no deserto e, quase dois mil anos depois, quando Paulo escreveu [Romanos 1](http://bibliaonline.com.br/acf/rm/1), onde há um repúdio claro contra a prática homossexual.
+
+“Por isso também Deus os entregou às concupiscências de seus corações, à imundícia, para desonrarem seus corpos entre si; pois mudaram a verdade de Deus em mentira, e honraram e serviram mais a criatura do que o Criador, que é bendito eternamente. Amém. Por isso Deus os abandonou às paixões infames. Porque até as suas mulheres mudaram o uso natural, no contrário à natureza. E, semelhantemente, também os homens, deixando o uso natural da mulher, se inflamaram em sua sensualidade uns para com os outros, homens com homens, cometendo torpeza e recebendo em si mesmos a recompensa que convinha ao seu erro. E, como eles não se importaram de ter conhecimento de Deus, assim Deus os entregou a um sentimento perverso, para fazerem coisas que não convêm”.
+
+Se fosse uma questão apenas cultural a Bíblia nem precisaria ter tocado no assunto e bastaria ter deixado a coisa como estava, considerando que tanto na antiguidade dos tempos de Moisés, como na cultura romana na qual os cristãos romanos estavam inseridos, o homossexualismo era uma prática aceita e até incentivada. Muitas pessoas ricas mantinham escravos e escravas só para esse fim e basta você pesquisar um pouco de história para aprender isso.
+
+O Deus vivo e verdadeiro, porém, era contrário às práticas da cultura das épocas tanto de Moisés como de Paulo, e não creio que tenha mudado só porque hoje estamos alguns milhares de anos à frente. A ideia da história da humanidade culminar na história da união de um Noivo e uma Noiva, Cristo e sua Igreja, mostra muito bem a razão de Deus repudiar qualquer caricatura de uma união matrimonial envolvendo pessoas do mesmo sexo.
+
+Seus argumentos enfraquecem ainda mais ao citar os erros cometidos pela humanidade e pelos cristãos que fizeram guerras, mataram, escravizaram, tudo em nome de Deus. Pois é, e agora você está tentando também colocar o aval de Deus sobre o homossexualismo, como fizeram os cristãos aos longos dos séculos para justificarem seus erros?
+
+Fazendo uma retrospectiva, até aqui você tinha argumentado que o homossexualismo é aprovado por Deus porque nascemos com impulsos e afeições sexuais, que somos sábios para discernir o que Deus aprova, que você tem uma dúzia de traduções da Bíblia discordantes entre si, que o matrimônio foi instituído para proteger o clã dos perigos e que qualquer afirmação bíblica em contrário é apenas um costume da época. Agora você apela para a ciência para mostrar que há pessoas que nascem pendendo mais para um sexo ou outro, e até aponta uma porcentagem para isso, usando a expressão “é sabido”, algo que se utiliza quando se tenta transformar uma suposição em verdade absoluta:
+
+“É sabido que cerca de 25% da humanidade é, de alguma forma de homo afetivos, divididos em diferentes aspectos da diversidade desta realidade. Nascer homossexual é tão perfeito e natural como nascer heterossexual, confirmando assim, que minimamente as influências externas contribuem para o surgimento da homossexualidade (...) Nascer heterossexual como homossexual é tão natural, que se observarmos o reino animal, outra obra perfeita de nosso DEUS, iremos encontrar a prática homossexual entre os animais, será que a natureza também é possessa por demônios? Ou será que sobre eles também caiu alguma maldição hereditária, será que também sofreram abusos sexuais e fatores externos para agirem assim?”
+
+Sim, o mesmo você encontra entre os animais, mas não acredito que animais sirvam de exemplo para aqueles que foram criados à imagem e semelhança de Deus. Além do mais os animais também são vítimas da queda do homem, bem como toda a Criação:
+
+“A ardente expectativa da criação aguarda a revelação dos filhos de Deus. Pois a criação está sujeita à vaidade, não voluntariamente, mas por causa daquele que a sujeitou, na esperança de que a própria criação será redimida do cativeiro da corrupção, para a liberdade da glória dos filhos de Deus. Porque sabemos que toda a criação, a um só tempo, geme e suporta angústias até agora.” ([Rm 8:20](http://bibliaonline.com.br/acf/rm/8/20)).
+
+E não podemos nos esquecer de que o pecado, quando entrou na Criação, arruinou não só a nossa alma, mas também o nosso corpo, daí sermos imperfeitos em diferentes aspectos e sujeitos às doenças, degenerações e morte. Como saber o jeito que devíamos ser se o pecado não tivesse existido? Olhando para a criação original de Deus, da qual temos apenas dois espécimes, Adão e Eva, ou então, melhor ainda, para Jesus.
+
+Se Deus estabeleceu um padrão do que seja a sua vontade em sua Palavra, então ainda que cem por cento da humanidade tenha nascido ou esteja vivendo diferente desse padrão, isso não significa nada para o cristão. Ele não é guiado pela natureza, por estatísticas ou por pesquisas de opinião pública, mas pela Palavra de Deus. Se um homem tem uma disfunção qualquer em seu sistema hormonal e ganha um excesso de hormônios femininos que o leva a se sentir atraído por outros homens, não significa que isso seja um aval para fazer o que bem entender, especialmente se for um cristão.
+
+Mesmo porque há também homens que nascem com um excesso de hormônios masculinos, o que os torna extremamente agressivos e atraídos por qualquer mulher que passe na frente. Seria isso um aval para ele agir como seus instintos ordenam? Certamente alguém que se sujeita a ser guiado por Deus e pela sua Palavra não irá ser guiado por meros instintos, como fazem os animais.
+
+Resumindo tudo, se você acredita no que acredita, se você acha que deve viver como homossexual e ninguém tem nada a ver com isso, esse é um problema seu e algo que deve tratar com Deus, não comigo. Se um dia eu vier a encontrá-lo pessoalmente irei respeitá-lo como qualquer ser humano deve ser respeitado, independente de suas crenças ou inclinações sexuais.
+
+Só acho que ao dirigir a mim a cópia de um e-mail que enviou a outras pessoas fazendo afirmação de sua opção homossexual, só posso deduzir que esteja querendo me convencer de suas ideias ou que não esteja muito seguro delas, já que não me lembro de termos conversado ou tido algum contato anterior, pessoalmente ou por e-mail.
+
+Como eu disse no início, a Bíblia mostra claramente que a prática que você defende é contrária à vontade de Deus e, ao querer colocar o aval de Deus sobre suas próprias interpretações da Bíblia isso só deixa você numa situação mais complicada perante ele. Não apenas terá de explicar sua forma de agir, mas também sua tentativa de distorcer sua Palavra para ela se encaixar naquilo que você pensa, que você chamou de “verdade que creio para mim”. Sim, é a sua verdade e você pode até acalentá-la, mas não passa nem perto de ser a verdade de Deus que ele expressou em sua Palavra.
+
+“Porventura, a palavra de Deus se originou no meio de vós ou veio ela exclusivamente para vós outros?” ([1 Co 14:36](http://bibliaonline.com.br/acf/1co/14/36)).
+
+*****

@@ -1,0 +1,3 @@
+# QUEM É JESUS? {#quem-jesus}
+
+O mundo hoje está cheio de confusão e engano acerca de Jesus; quem Ele é, o que fez, e o que ensinou. Parte disso se deve à ignorância, mas muito é resultado da obra de Satanás para manter os homens afastados de Deus. Apesar de ser Jesus o fundamento da fé cristã, nem sempre temos uma compreensão clara de Quem Ele é! Dizer que Jesus é Deus santo, e perfeito Homem é verdade, mas parece ser uma contradição. Nossa mente finita tem dificuldades para compreender o conceito de um Deus divino. Mas em Jesus vemos tanto a divindade como a perfeita humanidade.

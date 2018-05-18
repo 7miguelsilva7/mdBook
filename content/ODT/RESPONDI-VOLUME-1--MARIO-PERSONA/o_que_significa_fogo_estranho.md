@@ -1,0 +1,5 @@
+# O que significa &quot;fogo estranho&quot;? {#o-que-significa-fogo-estranho}
+
+Nadabe e Abiú foram mortos por terem entrado na presença de Deus com &quot;fogo estranho&quot; em seus incensários. O que seria o “fogo estranho”? Simplesmente as suas próprias obras. O incensário devia ser aceso, usando-se para isso brasas tiradas do próprio altar do sacrifício. Nadabe e Abiú acenderam seus incensários com fogo que eles mesmos produziram, e foram mortos. O acesso à presença de Deus só pode ser através do altar; através do sacrifício de Cristo. Qualquer que tentar ter acesso à presença de Deus com base em suas próprias obras não subsistirá. As brasas tinham que ser tiradas do altar onde o cordeiro havia sido queimado. A adoração e o louvor, e as orações, que hoje oferecemos a Deus como incenso de aroma suave, só podem entrar na sua presença se forem produzidas em nós pelo sacrifício de Cristo; pelo fogo que um dia consumiu a oferta: o Cordeiro de Deus que tira o pecado do mundo.
+
+*****

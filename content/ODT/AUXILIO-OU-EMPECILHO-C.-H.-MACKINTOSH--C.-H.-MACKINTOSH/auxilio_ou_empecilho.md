@@ -1,0 +1,1 @@
+# AUXÍLIO OU EMPECILHO {#aux-lio-ou-empecilho}

@@ -1,0 +1,25 @@
+# O que fazer quando não sinto a presença de Deus? {#o-que-fazer-quando-n-o-sinto-a-presen-a-de-deus}
+
+A salvação não está numa igreja, mas numa Pessoa: Jesus. Quanto à sua revolta com Deus, isso faz parte de nossa natureza, pois somos inimigos dele por natureza. Nascemos assim, e se não existir uma obra do Espírito Santo em nós nos convertendo a Cristo, continuaremos inimigos dele até sermos chamados para prestar contas de nossos pecados e receber a condenação no lago de fogo.
+
+Mas não é isso que Deus quer. Ele quer que sejamos salvos, pois seu desejo é ter o céu cheio de pecadores perdoados. Quem tem filhos sabe que quando um filho se revolta contra os pais, a angústia dos pais é grande. Eles tentarão de todas as maneiras ganhar a simpatia daquele filho e sofrerão enquanto não conseguirem.
+
+Eu sei que às vezes nos sentimos decepcionados com Deus, mesmo depois de convertidos. Agora, se nós, com todas as nossas falhas e pecados, ficamos decepcionados com aquele que é perfeito, quanto mais não está ele decepcionado conosco? O problema é que geralmente nossa decepção é por não enxergarmos nossa vontade ser realizada e o culpamos disso. Mas qual é o pai que faz tudo o que seu filho deseja? Nem sempre os filhos sabem o que é melhor para eles.
+
+Agora, tudo isso eu estou dizendo de pessoas que se converteram a Cristo, que tiveram seus pecados perdoados e receberam de Deus uma vida nova. Mas como saber se alguém se converteu realmente? Você diz que não se sentia merecedora do perdão de Deus. Ora, e desde quando alguém perdoa quem merece? O simples fato de uma pessoa ofender outra já demonstra que ela não merece coisa alguma, muito menos perdão. Um bandido merece o perdão de um juiz? É claro que não, se o seu crime ficar comprovado.
+
+A questão é que Deus só pode me perdoar porque Jesus merece que Deus assim o faça, porque ele veio morrer e pagar pelos meus pecados. Não é baseado em minha bondade ou no grau de arrependimento ou qualquer coisa vinda de mim que Deus está apto a me perdoar, mas baseado naquilo que Cristo fez. Se eu aceito que a morte de Jesus na cruz foi suficiente para pagar meus pecados, posso me candidatar ao perdão de Deus, pois foi essa a única condição que ele colocou.
+
+Você disse que não sente mais a presença de Deus e por isso vive de forma apática, de um lado para o outro como uma folha ao vento. Mas o que faria se sentisse a presença de Deus a cada manhã? Será que aí sim você viveria jubilante e confiante nele? Os israelitas peregrinaram no deserto por 40 anos após sua libertação da escravidão do Egito. Durante aqueles quarenta anos, todos os dias, exceto nos sábados, caiu maná do céu para alimentá-los. Aquilo era um milagre diário de Deus, sem falar da nuvem que os acompanhava de dia e da coluna de fogo à noite. O poder de Deus era visível diariamente.
+
+Agora pense nisto: 40 anos são aproximadamente 310 dias por ano (excluídos os sábados, quando o maná não caía), o que dá 12.400 dias em que o maná caiu. Por 12.400 vezes aquele povo viu Deus agir de forma milagrosa, e sabe o que aconteceu? Mesmo assim se desviaram de seus caminhos, mesmo assim duvidaram dele. Se ler a Bíblia verá que ver ou sentir a presença de Deus não tem um efeito duradouro nas pessoas, a menos que elas exerçam fé, e fé é justamente crer naquilo que não vemos ou sentimos. Fé é a certeza das coisas que não se veem e de fatos que se esperam.
+
+Portanto, tudo o que você precisa é crer no que Deus diz em sua Palavra. Leia o evangelho de João e veja quantas promessas o Senhor Jesus faz a você.
+
+“Na verdade, na verdade vos digo que quem ouve a minha palavra, e crê naquele que me enviou, tem a vida eterna, e não entrará em condenação, mas passou da morte para a vida... Eu sou a porta; se alguém entrar por mim, salvar-se-á, e entrará, e sairá, e achará pastagens... Eu sou o bom Pastor; o bom Pastor dá a sua vida pelas ovelhas... As minhas ovelhas ouvem a minha voz, e eu conheço-as, e elas me seguem; e dou-lhes a vida eterna, e nunca hão de perecer, e ninguém as arrebatará da minha mão. Meu Pai, que mas deu, é maior do que todos; e ninguém pode arrebatá-las da mão de meu Pai. Eu e o Pai somos um...”. ([Jo 5:24](http://bibliaonline.com.br/acf/jo/5/24); [10:9, 11, 27-30](http://bibliaonline.com.br/acf/jo/10/9,11,27-30)).
+
+Você não precisa sentir essas coisas, basta crer no que ele disse. Se uma pessoa de sua confiança lhe der um cheque, você tem certeza de que pode contar com aquele dinheiro ou só vai ter certeza quando for ao banco descontá-lo? Vindo de alguém idôneo, o cheque é a promessa segura, e assim deve ser com a Palavra de Deus. Nossa incredulidade, impaciência ou o desconforto que achamos que é ter que ir ao banco é o que nos deixa aflitos.
+
+Volto a lembrá-la. Igreja, lugar ou pessoa alguma podem lhe dar o que você só pode obter falando com Jesus, crendo nele e recebendo de Deus o que ele lhe dá por intermédio de Cristo. Você deve se lembrar do que ele disse: “Vinde a mim, todos os que estais cansados e oprimidos, e eu vos aliviarei” ([Mt 11:28](http://bibliaonline.com.br/acf/mt/11/28)).
+
+*****

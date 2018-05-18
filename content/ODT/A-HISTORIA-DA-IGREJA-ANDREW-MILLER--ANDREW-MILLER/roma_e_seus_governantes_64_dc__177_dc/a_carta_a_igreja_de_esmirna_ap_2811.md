@@ -1,0 +1,1 @@
+### A Carta à Igreja de Esmirna (ap 2:8–11) {#a-carta-igreja-de-esmirna-ap-2-8-11}

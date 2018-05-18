@@ -1,0 +1,15 @@
+# Jesus diz que somos deuses? {#jesus-diz-que-somos-deuses}
+
+Sobre sua dúvida em João[10:34-36](http://bibliaonline.com.br/acf/jo/10/34-36)vou traduzir um comentário que achei bem completo:
+
+“ Respondeu-lhes Jesus: Não está escrito na vossa lei: Eu disse: sois deuses? Pois, se a lei chamou deuses àqueles a quem a palavra de Deus foi dirigida (e a Escritura não pode ser anulada), àquele a quem o Pai santificou e enviou ao mundo, vós dizeis: Blasfemas, porque disse: Sou Filho de Deus?”
+
+Aqui o Senhor Jesus citou o [Salmo 82:6](http://bibliaonline.com.br/acf/sl/82/6) para aqueles judeus. Ele chamou isso parte da Lei. Em outras palavras, foi tirado do Atos que eles reconheciam como sendo a Palavra de Deus inspirada. O versículo completo diz assim: “Eu disse: vós sois deuses, e vós outros sois todos filhos do Altíssimo”. O Salmo era dirigido aos juízes de Israel. Eles eram chamados “deuses” não por serem divinos, mas por representarem a Deus quando julgavam o povo. A palavra hebraica para “deuses” (elohim) significa literalmente “poderosos” e pode ser aplicada para personalidades importantes como os juízes. (Fica claro pelo restante do Salmo que eles não passavam de homens e não deidades, pois julgavam injustamente, faziam acepção de pessoas e pervertiam a justiça).
+
+O Senhor usou este versículo dos Salmos para mostrar que Deus usava a palavra “deuses” para descrever homens aos quais foi dada a Palavra de Deus. Em outras palavras, esses homens eram porta-vozes de Deus. Deus falava à nação de Israel através deles. Eles eram uma manifestação de Deus em seu lugar de autoridade e juízo, e eram os poderes ordenados por Deus. “E a Escritura não pode ser anulada”, disse o Senhor, expressando sua crença na inspiração nas escrituras do Antigo Testamento. Ele fala delas como escrituras infalíveis que devem se cumprir, e que não podem ser negadas. Na verdade, as próprias palavras das Escrituras são inspiradas, não apenas seus pensamentos ou ideias. Todo o argumento do Senhor está baseado numa única palavra, “deuses”.
+
+O argumento do Senhor vai do menor para o maior. Se juízes injustos eram chamados “deuses” no Antigo Testamento, quanto mais direito tinha ele (Jesus) de dizer que era o Filho de Deus. A Palavra de Deus veio a eles; ele era e é a Palavra de Deus. Eles eram chamados “deuses”; ele era e é Deus. Jamais poderia ser dito deles que o Pai os houvesse santificado e enviado ao mundo. Eles nasceram no mundo como quaisquer outros filhos do caído Adão. Mas Jesus foi santificado (separado) pro Deus Pai desde a eternidade para ser o Salvador do mundo, e foi enviado ao mundo do céu onde sempre habitou com seu Pai. Assim Jesus tinha todo o direito de reivindicar igualdade com Deus. Ele não estava blasfemando quando clamava ser o Filho de Deus, igual com o Pai. Os próprios judeus usavam o termo “deuses” para homens corruptos que eram meros porta-vozes ou juízes designados por Deus. Quanto mais podia ele (Jesus) reivindicar o título, já que ele realmente era e é Deus.
+
+Traduzido de “Believer’s Bible Commentary”, por William MacDonald.
+
+*****

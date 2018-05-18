@@ -1,0 +1,7 @@
+# QUEM-DESPREZA-O-DIA-DAS-COISAS-PEQUENAS-J-J.-T.-ARMET {#quem-despreza-o-dia-das-coisas-pequenas-j-j-t-armet}
+
+QUEM DESPREZA O DIA DAS COISAS PEQUENAS
+
+J. T. ARMET
+
+2017-07-21T17:00:00+09:00

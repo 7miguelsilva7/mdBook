@@ -1,0 +1,7 @@
+# A-OPINIAO-PUBLICA-C-BUCHANAN-C.-BUCHANAN {#a-opiniao-publica-c-buchanan-c-buchanan}
+
+A OPINIÃO PÚBLICA
+
+C. BUCHANAN
+
+2017-07-21T17:00:00+09:00

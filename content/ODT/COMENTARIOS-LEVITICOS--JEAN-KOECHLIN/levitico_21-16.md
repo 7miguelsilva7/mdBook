@@ -1,0 +1,13 @@
+# Levítico 2:1-16 {#lev-tico-2-1-16}
+
+([2:1-16](http://bibliaonline.com.br/acf/lv/2/1-16))
+
+Se a oferta queimada chama a atenção para o doce perfume de Cristo na Sua morte, a oferta de manjares (ou alimento), geralmente de flor de farinha, é bem diferente e corresponde à perfeição de Sua vida como um homem na terra.
+
+Para Cristo ser um sacrifício perfeito para Deus, Ele precisou viver uma vida perfeita e sem pecado. A flor de farinha é uma figura da vida pura e uniforme de nosso bendito Senhor. O sacerdote podia tomar um punhado da farinha, derramar azeite e incenso sobre ela, e então queimá-la sobre o altar. O azeite é uma figura do Espírito Santo. O incenso, uma figura das graças, da bondade de Cristo. O Senhor Jesus &quot;Se ofereceu a Si mesmo imaculado (sem mancha) a Deus&quot; ([Hb 9:14](http://bibliaonline.com.br/acf/hb/9/14)).
+
+Esta oferta não exige nenhuma vítima ou sangue, apenas farinha, azeite, incenso e sal. A humanidade do Senhor corresponde ao grão de trigo moído finamente; Seu nascimento e batismo pelo Espírito Santo para ser amassado e ungido com azeite; Seu teste pelo sofrimento de modo visível ou oculto no calor da caçarola, panela ou no forno. Estas coisas eram para o Pai um perfume do mais alto valor. O crente apresenta a Deus esta vida perfeita de Jesus e faz dela o seu próprio alimento. Vamos olhar para este Homem maravilhoso nos evangelhos. Sua dependência, Sua paciência, Sua confiança em Deus, Sua mansidão, Sua sabedoria, Sua bondade e dedicação – não disso mudou mesmo através de todos os Seus sofrimentos. Estas são algumas das maravilhosas lembranças que vemos na oferta de farinha polvilhada com incenso. É &quot;coisa santíssima&quot; ([versículo 3, 10](http://bibliaonline.com.br/acf/lv/2/3,10)). Fermento, uma imagem do pecado, não fazia parte dela, nem mel, um símbolo dos afetos humanos.
+
+Para deixar bem claro, nenhuma oferenda aqui mencionada poderia conter qualquer fermento, geralmente uma figura do mal (pecado). O mel é uma figura da belas coisas ou qualidades naturais das pessoas. As pessoas costumam dizer que se agirem com doçura ou bondade para com outros, isto se torna uma oferta a Deus. Aqui aprendemos que nenhum mel devia ser incluído. As coisas bonitas da vida não podem ser oferecidas a Deus como um sacrifício.
+
+Em contraste, o sal, uma imagem da separação para Deus, que preserva da corrupção, marcou a vida de Jesus e nunca deve faltar em nossas vidas ([Mc 9:50](http://bibliaonline.com.br/acf/mc/9/50); [Colossenses 4: 6](http://bibliaonline.com.br/acf/cl/4/6)).

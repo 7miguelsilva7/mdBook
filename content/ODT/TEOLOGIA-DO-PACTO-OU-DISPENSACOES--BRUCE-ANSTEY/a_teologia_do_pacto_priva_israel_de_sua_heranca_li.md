@@ -1,0 +1,3 @@
+# A Teologia do Pacto priva Israel de sua herança literal {#a-teologia-do-pacto-priva-israel-de-sua-heran-a-literal}
+
+A doutrina da Teologia do Pacto priva o remanescente de Israel de sua herança em sua terra. Ela rouba deles sua esperança nacional. As Escrituras afirmam que a herança de Israel não será retida para sempre. Apesar de seu fracasso, eles receberão uma herança literal em sua terra, “porque os dons e a vocação de Deus são sem arrependimento” ([Romanos 11:29](http://bibliaonline.com.br/acf/rm/11/29)).

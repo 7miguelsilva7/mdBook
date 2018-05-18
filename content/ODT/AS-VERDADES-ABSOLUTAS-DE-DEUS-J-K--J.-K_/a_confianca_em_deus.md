@@ -1,0 +1,7 @@
+# A CONFIANÇA EM DEUS {#a-confian-a-em-deus}
+
+É grandioso descansar sobre as verdades absolutas de Deus. É isso que levanta o espírito do crente e estabelece a paz em um mundo turbulento. Esta confiança na palavra de Deus é a mesma que Satanás tenta minar desde o início quando ele apresentou a Eva a sutil pergunta: &quot;É isso que Deus disse?&quot;. Isto implica em dizer que Deus não tenha realmente falado com a humanidade; que somos livres para viver de forma independente d’Ele. As condições políticas, econômicas e morais no mundo atual refletem os resultados trágicos da recusa do homem das verdades absolutas de Deus.
+
+Em nenhum outro lugar as grandes perguntas da vida estão desbloqueadas, apenas nas escrituras sagradas. Os olhos da fé encontrarão o nosso relacionamento com um Deus amoroso, o nosso propósito de estar no planeta Terra e nosso destino eterno. Na verdade, nossos corações devem estar cheios de louvor por Seu amor nos revelar Sua mente.
+
+Quando as verdades absolutas de Deus nos tocam, somos levados a própria pessoa e a presença de nosso Senhor. É triste ver que muitas vezes nossas vidas dão provas de que não é essa a nossa experiência. Recebemos com prazer as promessas e garantias da palavra de Deus, mas damos pouca atenção aos seus mandamentos. Queremos desfrutar das bênçãos do Senhor, mas nos ressentimos por qualquer coisa que possa atingir as nossas consciências. No entanto, quando falamos de bênção, as promessas de Deus estão ligadas a obediência.

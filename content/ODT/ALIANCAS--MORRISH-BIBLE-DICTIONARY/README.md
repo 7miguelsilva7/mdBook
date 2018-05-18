@@ -1,0 +1,7 @@
+# ALIANCAS-MORRISH-BIBLE-DICTIONARY {#aliancas-morrish-bible-dictionary}
+
+ALIANÇAS
+
+2017-07-21T17:00:00+09:00
+
+Traduzido de MORRISH BIBLE DICTIONARY

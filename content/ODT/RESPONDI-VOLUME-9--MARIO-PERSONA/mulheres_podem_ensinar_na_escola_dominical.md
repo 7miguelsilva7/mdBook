@@ -1,0 +1,33 @@
+# Mulheres podem ensinar na escola dominical? {#mulheres-podem-ensinar-na-escola-dominical}
+
+Não há nada de errado em mulheres ensinarem na escola dominical, se os que aprendem são crianças e isto for feito em ambiente separado do ambiente público onde ficam os demais. O que a Bíblia é clara em proibir é que a mulher ensine, obviamente não crianças porque até a mãe e avó de Timóteo são citadas por terem feito um bom trabalho com o filho e neto. É comum hoje as pessoas seguirem a própria opinião sem antes buscarem na Palavra, e aqui vai o que diz a Palavra de Deus:
+
+“A mulher aprenda em silêncio, com toda a sujeição. Não permito, porém, que a mulher ensine, nem use de autoridade sobre o marido [homem], mas que esteja em silêncio. Porque primeiro foi formado Adão, depois Eva. E Adão não foi enganado, mas a mulher, sendo enganada, caiu em transgressão.” ([1Tm 2:11-14](http://bibliaonline.com.br/acf/1tm/2/11-14)).
+
+A passagem é muito clara: o lugar da mulher é aprender em silêncio e sujeição, não ensinar e nem usar de autoridade sobre o homem, pois o [versículo 12](http://bibliaonline.com.br/acf/1tm/2/12), no original, diz “sobre o homem” e não “sobre o marido”.
+
+Outro ponto importante é que Deus proíbe que a mulher fale nas igrejas, portanto isso já exclui uma boa parte do que vemos por aí, e neste caso não se trata apenas de ensinar, mas de pregar, falar, dar opiniões, fazer perguntas, conversar, etc.
+
+“As vossas mulheres estejam caladas nas igrejas; porque não lhes é permitido falar; mas estejam sujeitas, como também ordena a lei. E, se querem aprender alguma coisa, interroguem em casa a seus próprios maridos; porque é vergonhoso que as mulheres falem na igreja” ([1 Co 14:34-35](http://bibliaonline.com.br/acf/1co/14/34-35)).
+
+Como que sabendo que isto daria “pano pra manga” e alguns interpretariam como apenas uma questão de costumes e cultura da época, o apóstolo acrescenta: “Porventura saiu dentre vós a palavra de Deus? Ou veio ela somente para vós? Se alguém cuida ser profeta, ou espiritual, reconheça que as coisas que vos escrevo são mandamentos do Senhor” ([1 Co 14:36](http://bibliaonline.com.br/acf/1co/14/36)). E se alguém contestar, dizendo que isto se restringia à igreja de Corinto, por causa de problemas locais, então basta ler no envelope o destinatário da carta:
+
+“À igreja de Deus que está em Corinto, aos santificados em Cristo Jesus, chamados santos, com todos os que em todo o lugar invocam o nome de nosso Senhor Jesus Cristo, Senhor deles e nosso” ([1 Co 1:2](http://bibliaonline.com.br/acf/1co/1/2)).
+
+As passagens que mostram que Deus proíbe que a mulher ensine falam obviamente de doutrina, de explicar a Palavra de Deus. Isto porque encontramos Jesus mandando Maria Madalena levar o anúncio de sua ressurreição aos outros discípulos, o que nos leva a pensar que não está errado a mulher falar de Cristo em particular com alguém, no sentido de anunciar sua morte e ressurreição.
+
+É claro que se existir um irmão junto é melhor que este tome a dianteira, pois do simples anúncio do evangelho pode ser que seja preciso passar para o ensino da Palavra. Além disso, encontramos Priscila ajudando seu marido a esclarecer melhor as coisas para Apolo, o que demonstra que na esfera do lar e sob a autoridade do homem a mulher possa também ajudar neste sentido.
+
+“[Apolo] começou a falar ousadamente na sinagoga; e, quando o ouviram Priscila e Áquila, o levaram consigo e lhe declararam mais precisamente o caminho de Deus.” ([Atos 18:26](http://bibliaonline.com.br/acf/atos/18/26)).
+
+A mulher certamente não poderia ensinar na escola dominical nas reuniões da igreja ou assembleia, isto é, na presença de adultos, por duas razões: em público ela deve permanecer calada e na escola dominical ela acabaria ensinando doutrina, duas coisas não permitidas na Palavra de Deus (afinal, não é o que “achamos” que vale, mas o que está escrito com letras bem claras).
+
+Se um incrédulo pergunta algo a uma mulher cristã, ela certamente deve falar de Cristo a ele (transmitir o anúncio de sua morte e ressurreição), mas tendo o cuidado de não entrar no terreno do ensino. O melhor é que, uma vez falado do caminho da salvação ela pode muito bem pedir ajuda de um irmão para entrar em contato com o incrédulo e dar sequência no sentido de tirar suas dúvidas. Afinal, o que interessa ao incrédulo é o puro evangelho, que Paulo resumiu em [1 Coríntios 15](http://bibliaonline.com.br/acf/1co/15), “que Cristo morreu por nossos pecados, segundo as Escrituras, e que foi sepultado, e que ressuscitou ao terceiro dia, segundo as Escrituras” ([1 Co 15:3-4](http://bibliaonline.com.br/acf/1co/15/3-4)). De nada adianta se aprofundar no assunto com um incrédulo, porque ele ainda não está capacitado a entender as coisas de Deus. “O homem natural não compreende as coisas do Espírito de Deus, porque lhe parecem loucura; e não pode entendê-las, porque elas se discernem espiritualmente” ([1 Co 2:14](http://bibliaonline.com.br/acf/1co/2/14)).
+
+Veja que esta ordem das coisas de Deus tem também o outro lado, ou seja, não é em todas as situações que um homem pode ensinar. Por exemplo, Paulo não disse a Tito para ensinar as irmãs jovens coisas relacionadas ao comportamento da mulher cristã, mas disse às irmãs anciãs para fazerem isso. Por isso é errado e perigoso um homem tornar-se “conselheiro” de irmãs jovens quando o assunto vai além do evangelho e da doutrina, e passa às coisas relacionadas à sua vida íntima. Veja que o que Paulo ordena que seja ensinado pelas mulheres idosas, e não por Tito são questões relacionadas ao matrimônio:
+
+([Tt 2:3-5](http://bibliaonline.com.br/acf/tt/2/3-5)) “Quanto às mulheres idosas, semelhantemente, que sejam sérias em seu proceder, não caluniadoras, não escravizadas a muito vinho; sejam mestras do bem, a fim de instruírem as jovens recém-casadas a amarem ao marido e a seus filhos, a serem sensatas, honestas, boas donas de casa, bondosas, sujeitas ao marido, para que a palavra de Deus não seja difamada”.
+
+Sempre que um irmão precisar aconselhar uma irmã jovem sobre assuntos relacionados a casamento, filhos, relacionamentos com o marido, etc., ele deve procurar a ajuda de sua esposa ou de uma irmã anciã, nunca fazê-lo sozinho. Grande parte dos casos de adultério ocorridos dentro de igrejas começa com o irmão que aconselha envolvendo-se emocionalmente com a jovem que está fragilizada e carente em razão dos problemas que enfrenta no lar.
+
+*****

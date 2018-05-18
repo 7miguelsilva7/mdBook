@@ -1,0 +1,3 @@
+### 4\. O REI DOS REIS E SEUS EXÉRCITOS DO CÉU {#4-o-rei-dos-reis-e-seus-ex-rcitos-do-c-u}
+
+– ([Apocalipse 19:11-16](http://bibliaonline.com.br/acf/ap/19/11-16)) São os exércitos do Senhor Jesus Cristo (o Rei dos Reis). Esse exército será formado por todos os que foram levados à glória no arrebatamento, e por todos os que tomaram parte na primeira ressurreição, tanto aqueles dos tempos do Antigo como os do Novo Testamento. São os santos (celestiais) redimidos de Deus.

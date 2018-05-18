@@ -1,0 +1,3 @@
+# O Quinto Mandamento Mosaico {#o-quinto-mandamento-mosaico}
+
+&quot;Honra a teu pai e a tua mãe, para que se prolonguem os teus dias na terra que o Senhor teu Deus te dá&quot; ([Êxodo 20:12](http://bibliaonline.com.br/acf/ex/20/12)). Comparando este mandamento com [Efésios 6:2-3](http://bibliaonline.com.br/acf/ef/6/2-3), vemos que ele é citado palavra por palavra. No cristianismo não se espera menos dos filhos do que era exigido pela lei. Quão bendito é vermos os filhos de pais cristãos procurando colocar em prática este pedido da Palavra de Deus, conforme é dado aqui na epístola aos Efésios. Eles jamais terão ocasião de se lamentar por terem procurado dar a seus pais esta posição de respeito. Deus não lhes será devedor pois colherão a Sua benção em suas próprias vidas.

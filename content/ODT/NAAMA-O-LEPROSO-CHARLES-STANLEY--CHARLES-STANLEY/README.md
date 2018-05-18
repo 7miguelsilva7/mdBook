@@ -1,0 +1,7 @@
+# NAAMA-O-LEPROSO-CHARLES-STANLEY-CHARLES-STANLEY {#naama-o-leproso-charles-stanley-charles-stanley}
+
+NAAMÃ, O LEPROSO
+
+CHARLES STANLEY
+
+2017-07-21T17:00:00+09:00

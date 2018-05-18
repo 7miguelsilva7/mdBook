@@ -1,0 +1,13 @@
+# O que preciso fazer para ser salvo? {#o-que-preciso-fazer-para-ser-salvo}
+
+Em João[3:16](http://bibliaonline.com.br/acf/jo/3/16) lemos: &quot;Porque Deus amou o mundo de tal maneira que deu o seu Filho unigênito, para que todo aquele que nele crê não pereça, mas tenha a vida eterna&quot;. O que diz aí? &quot;... para que todo aquele que não faz tal e tal coisa não pereça?” Certamente que não é assim que está. Diz apenas “para que todo o que nele (em Cristo) CRÊ!”.
+
+O apóstolo Paulo escreveu uma carta aos crentes da Galácia, os quais afirmavam que para ser salvo era necessário não apenas crer em Cristo, mas também guardar a Lei, ou seja, praticar determinadas obras. A eles Paulo responde: &quot;Ó insensatos gálatas... Só quisera saber isto de vós: recebestes o Espírito pelas obras da lei ou pela pregação da fé? Sois vós tão insensatos que, tendo começado pelo Espírito, acabeis agora pela carne?&quot; ([Gl 3:1-3](http://bibliaonline.com.br/acf/gl/3/1-3)).
+
+Só Cristo pode nos salvar, pois morreu na cruz sendo castigado por Deus Pai no lugar do pecador. Todo aquele que nele crê tem a vida eterna, está salvo eternamente. E isso não depende do que fazemos ou deixamos de fazer, mas do que Cristo fez; &quot;e isto não vem de vós, é dom de Deus&quot; ([Ef 2:8](http://bibliaonline.com.br/acf/ef/2/8)). Portanto, a nossa salvação depende exclusivamente de Cristo e de Sua obra; não depende de nós, pois se dependesse de nós, a glória seria nossa. Mas, graças a Deus, não depende de nós que somos pecadores e sempre propensos a pecar.
+
+Quando um pecador vem a Cristo, arrependido de seu estado pecaminoso, isto só acontece por obra do Espírito Santo em seu coração, pois é o Espírito Quem nos convence do pecado ([Jo 16:8](http://bibliaonline.com.br/acf/jo/16/8)). Então, pela fé, o pecador crê que Cristo tomou o seu lugar na cruz carregando o seu pecado (do pecador).
+
+Quando o pecador assim crê, Deus lhe dá a salvação que é completa; Deus lhe dá o perdão que também é completo e esta pessoa nunca mais perderá a salvação, pois é um dom de Deus ([Ef 2:8](http://bibliaonline.com.br/acf/ef/2/8)) e nunca lhe será tirada por Deus &quot;porque os dons e a vocação de Deus são sem arrependimento&quot; ([Rm 11:29](http://bibliaonline.com.br/acf/rm/11/29)). Deus não &quot;tira” a salvação do crente, e ninguém mais pode fazê-lo &quot;porque estou bem certo de que, nem a morte, nem a vida, nem os anjos, nem os principados, nem as potestades, nem o presente, nem o porvir, nem a altura, nem a profundidade, nem alguma outra criatura nos poderá separar do amor de Deus, que está em Cristo Jesus nosso Senhor!” ([Rm 8:38-39](http://bibliaonline.com.br/acf/rm/8/38-39)).
+
+*****

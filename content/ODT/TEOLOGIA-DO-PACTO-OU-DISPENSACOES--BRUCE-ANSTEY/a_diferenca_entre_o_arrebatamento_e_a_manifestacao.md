@@ -1,0 +1,39 @@
+# A Diferença entre o Arrebatamento e a Manifestação {#a-diferen-a-entre-o-arrebatamento-e-a-manifesta-o}
+
+É importante entender que a vinda do Senhor tem duas fases — Sua vinda para os Seus santos e Sua vinda com os Seus santos. Aqueles que adotam a visão dispensacional da Bíblia se referem a estas vindas, respectivamente, como o Arrebatamento e a Manifestação de Cristo. Muitos cristãos (da Teologia do Pacto) confundem os dois eventos. Embora o Senhor venha do céu em ambas as ocasiões, o Arrebatamento e a Manifestação de Cristo são coisas distintas.
+
+[N. do T.: No original deste livro e na versão da Bíblia traduzida por J. N. Darby é utilizada a palavra “appearing”, traduzida aqui como “manifestação”. Dependendo da versão em português da Bíblia a tradução do termo pode variar, como “manifestação”, “esplendor”, “aparecimento” ou “vinda” em passagens como [2 Tessalonicenses 2:8](http://bibliaonline.com.br/acf/2ts/2/8) e [2 Timóteo 1:10](http://bibliaonline.com.br/acf/2tm/1/10); [4:1, 8](http://bibliaonline.com.br/acf/2tm/4/1,8) (ARC e ARA). Neste livro é usado o termo “manifestação” ou eventualmente “vinda de Cristo”].
+
+• Arrebatamento é quando o Senhor vem para os Seus santos ([João 14:2-3](http://bibliaonline.com.br/acf/jo/14/2-3)); a Manifestação de Cristo ocorre mais tarde quando Ele vem com os Seus santos que foram levados à glória no Arrebatamento ([Judas 14](http://bibliaonline.com.br/acf/jd/1/14); [Zacarias 14:5](http://bibliaonline.com.br/acf/zc/14/5)).
+
+• O arrebatamento poderia ocorrer a qualquer momento, mas a Manifestação de Cristo não acontecerá até cerca de sete anos após o arrebatamento.
+
+• No arrebatamento o Senhor vem secretamente, num piscar de olhos ([1 Coríntios 15:52](http://bibliaonline.com.br/acf/1co/15/52)); em Sua Manifestação Ele vem publicamente e todo olho O verá ([Apocalipse 1:7](http://bibliaonline.com.br/acf/ap/1/7)).
+
+• No arrebatamento Ele vem para libertar a Igreja ([1 Tessalonicenses 1:10](http://bibliaonline.com.br/acf/1ts/1/10)); em Sua Manifestação Ele vem para libertar Israel ([Salmos 6:1-4](http://bibliaonline.com.br/acf/sl/6/1-4)).
+
+• No arrebatamento Ele vem nos ares para a Sua Igreja, pois ela é o Seu povo celestial ([1 Tessalonicenses 4:15-18](http://bibliaonline.com.br/acf/1ts/4/15-18)); em Sua Manifestação Ele volta à terra (no Monte das Oliveiras) para Israel, que é o Seu povo terreno ([Zacarias 14:4-5](http://bibliaonline.com.br/acf/zc/14/4-5)).
+
+• No arrebatamento é o próprio Senhor que reúne os Seus santos ([1 Tessalonicenses 4:15-18](http://bibliaonline.com.br/acf/1ts/4/15-18); [2 Tessalonicenses 2:1](http://bibliaonline.com.br/acf/2ts/2/1)), mas em Sua Manifestação Ele envia os Seus anjos para reunir os eleitos de Israel ([Mateus 24:30, 31](http://bibliaonline.com.br/acf/mt/24/30,31)).
+
+• No arrebatamento Ele leva os crentes para fora deste mundo, deixando para trás os ímpios ([João 14:2-3](http://bibliaonline.com.br/acf/jo/14/2-3)); em Sua Manifestação os ímpios são tirados do mundo para julgamento e os crentes (que tiverem se convertido por meio do Evangelho do Reino que será pregado durante a tribulação) são deixados para desfrutar de bênçãos na terra ([Mateus 13:41-43](http://bibliaonline.com.br/acf/mt/13/41-43); [25:41](http://bibliaonline.com.br/acf/mt/25/41)).
+
+• No arrebatamento Ele vem para libertar os Seus santos (a Igreja) da ira vindoura ([1 Tessalonicenses 1:10](http://bibliaonline.com.br/acf/1ts/1/10)); em Sua Manifestação Ele vem para derramar a Sua ira ([Apocalipse 19:15](http://bibliaonline.com.br/acf/ap/19/15)).
+
+• No arrebatamento Ele vem como o Noivo ([Mateus 25:6, 10](http://bibliaonline.com.br/acf/mt/25/6,10)); em Sua Manifestação Ele vem como o Filho do Homem ([Mateus 24:27-28](http://bibliaonline.com.br/acf/mt/24/27-28)).
+
+• No arrebatamento Ele vem como a “Estrela da Manhã” que desponta pouco antes de raiar o dia ([Apocalipse 22:16](http://bibliaonline.com.br/acf/ap/22/16)); em Sua Manifestação Ele vem como o “Sol de Justiça”, que é o próprio raiar do dia ([Malaquias 4:2](http://bibliaonline.com.br/acf/ml/4/2)).
+
+• No arrebatamento Ele virá sem quaisquer sinais, pois o cristão anda por fé e não por vista ([2 Coríntios 5:7](http://bibliaonline.com.br/acf/2co/5/7)); em Sua Manifestação a Sua vinda será cercada de sinais, pois os judeus pedem sinais ([Lucas 21:11, 25-27](http://bibliaonline.com.br/acf/lc/21/11,25-27); [1 Coríntios 1:22](http://bibliaonline.com.br/acf/1co/1/22)).
+
+• Nas Escrituras nunca é feita referência ao arrebatamento como um “ladrão de noite”, mas Sua Manifestação é mencionada por seis vezes comparada ao “ladrão de noite” ([Lucas 12:39](http://bibliaonline.com.br/acf/lc/12/39); [1 Tessalonicenses 5:2](http://bibliaonline.com.br/acf/1ts/5/2); [2 Pedro 3:10](http://bibliaonline.com.br/acf/2pe/3/10); Mateus [24:43](http://bibliaonline.com.br/acf/mt/24/43); [Apocalipse 3:3](http://bibliaonline.com.br/acf/ap/3/3); [16:15](http://bibliaonline.com.br/acf/ap/16/15); [3:3](http://bibliaonline.com.br/acf/ap/3/3)).
+
+• O Arrebatamento fecha a atual dispensação do Mistério ([Efésios 3:9](http://bibliaonline.com.br/acf/ef/3/9)); a Manifestação de Cristo abre a Dispensação da Plenitude dos Tempos ([Efésios 1:10](http://bibliaonline.com.br/acf/ef/1/10)).
+
+A dispensação do Mistério começou e irá terminar com uma Pessoa divina vinda do céu. No início “veio do céu um som, como de um vento veemente... e todos foram cheios do Espírito Santo” ([Atos 2:2-4, 33](http://bibliaonline.com.br/acf/atos/2/2-4,33)). No final “o mesmo Senhor descerá do céu com alarido” ([1 Tessalonicenses 4:16](http://bibliaonline.com.br/acf/1ts/4/16)).
+
+As duas coisas são mencionadas como ocorrendo em uma fração de segundo. O Espírito Santo veio “de repente” ([Atos 2:2](http://bibliaonline.com.br/acf/atos/2/2)) e o Senhor também virá “num momento”, transformará nossos corpos “num abrir e fechar de olhos” e nos levará para a casa do Pai ([1 Coríntios 15:52](http://bibliaonline.com.br/acf/1co/15/52)). Assim a atual dispensação irá terminar tão rapidamente quanto começou.
+
+Além disso, do mesmo modo como a Igreja começou com “todos concordemente no mesmo lugar” (no cenáculo no dia de Pentecostes — [Atos 2:1](http://bibliaonline.com.br/acf/atos/2/1)), ela irá terminar com “todos concordemente no mesmo lugar” (a casa do Pai). É triste reconhecer que, entre os dois eventos e no tempo em que a Igreja esteve na terra não é isto que temos visto. A Igreja falhou terrivelmente em seu testemunho. Ela não foi cheia do Espírito e, como consequência, ao longo de sua história ela acabou dividida e espalhada. Mas na vinda do Senhor a convocação que Ele fará à reunião irá recriar a unidade que tem ficado perdida desde os primórdios da Igreja ([1 Tessalonicenses 4:16](http://bibliaonline.com.br/acf/1ts/4/16)). “Nossa reunião com Ele” naquele momento será uma demonstração do poder de Deus que é capaz de reunir o Seu povo para estarem juntos ([2 Tessalonicenses 2:1](http://bibliaonline.com.br/acf/2ts/2/1)).
+
+Estas coisas demonstram que a Igreja, desde o seu início até o seu destino final, é uma criação celestial de Deus designada e criada para habitar com Cristo no céu. Ela não é uma instituição permanente na terra, apesar de estar atualmente na terra. A Igreja está apenas passando por este mundo em seu caminho para o céu. O Senhor disse: “Não são do mundo, assim como eu não sou do mundo” ([João 17:14](http://bibliaonline.com.br/acf/jo/17/14)). Os cristãos são apenas “peregrinos e forasteiros” aqui na terra ([1 Pedro 2:11](http://bibliaonline.com.br/acf/1pe/2/11)). Um “forasteiro” é alguém que não está em sua própria casa, e um “peregrino” é alguém que está a caminho de casa. O céu é o nosso destino.

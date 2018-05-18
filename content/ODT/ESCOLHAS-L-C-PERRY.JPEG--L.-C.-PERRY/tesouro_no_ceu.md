@@ -1,0 +1,5 @@
+# Tesouro no Céu {#tesouro-no-c-u}
+
+&quot;Não ajunteis tesouros na Terra, onde a traça e a ferrugem tudo consomem, e os ladrões minam e roubam; mas ajuntai tesouros no céu, onde nem a traça nem a ferrugem consomem, e onde os ladrões não minam nem roubam. Porque onde estiver o vosso tesouro, aí estará também o vosso coração. A candeia do corpo são os olhos; de sorte que, se os teus olhos forem bons, todo o teu corpo terá luz ([Mateus 6:19-22](http://bibliaonline.com.br/acf/mt/6/19-22)).
+
+O Senhor Jesus proferiu estas palavras ao povo cujos olhos não eram bons. Eles estavam tentando manter as regras enquanto asseguravam para si mesmos um caminho de conforto e proeminência. Olhos bons fixados em Cristo e em Sua Palavra irão nos guardar de levarmos uma vida dupla. A verdade acerca daquilo que é duplo é que: &quot;Ninguém pode servir a dois senhores; porque ou há de odiar um e amar o outro, ou se dedicará a um e desprezará o outro. Não podeis servir a Deus e a Mamom [riquezas]. ([Mateus 6:24](http://bibliaonline.com.br/acf/mt/6/24)).

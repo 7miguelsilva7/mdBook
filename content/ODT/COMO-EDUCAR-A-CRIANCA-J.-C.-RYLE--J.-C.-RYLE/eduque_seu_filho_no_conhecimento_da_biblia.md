@@ -1,0 +1,3 @@
+# Eduque seu filho no conhecimento da Bíblia. {#eduque-seu-filho-no-conhecimento-da-b-blia}
+
+Não podemos fazer nossos filhos amarem a Bíblia, eu sei disso. Ninguém além do Espírito Santo pode dar a eles um coração que se deleite com a Palavra. Mas podemos fazer com que nossos filhos fiquem familiarizados com a Bíblia; e pode ter certeza de que nunca será cedo demais para fazê-lo, e eles nunca estarão familiarizados demais para você dar a tarefa por encerrada. Deixe que a Bíblia, simplesmente, seja tudo na educação de suas almas; e que todos os outros livros fiquem em segundo lugar.

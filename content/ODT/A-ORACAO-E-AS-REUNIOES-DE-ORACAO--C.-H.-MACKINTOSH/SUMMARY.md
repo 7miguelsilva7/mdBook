@@ -1,0 +1,15 @@
+# Summary
+
+* [A-ORACAO-E-AS-REUNIOES-DE-ORACAO-C.-H.-MACKINTOSH](README.md)
+* [A Base Moral da Oração](a_base_moral_da_oracao.md)
+* [Coração e Mente](coracao_e_mente.md)
+* [Ajoelhar-se Para Orar](ajoelhar-se_para_orar.md)
+* [As Condições Morais da Oração](as_condicoes_morais_da_oracao.md)
+* [Estar de Acordo na Oração](estar_de_acordo_na_oracao.md)
+* [Oração de Fé](oracao_de_fe.md)
+* [O Amigo Insistente Que Recebeu o Que Fora Buscar](o_amigo_insistente_que_recebeu_o_que_fora_buscar.md)
+* [Oração Específica](oracao_especifica.md)
+* [Orações Insistentes](oracoes_insistentes.md)
+* [A Presença Nas Reuniões de Oração](a_presenca_nas_reunioes_de_oracao.md)
+* [Orações Perseverantes](oracoes_perseverantes.md)
+* [Resumo](resumo.md)

@@ -1,0 +1,15 @@
+# Como posso servir mais ao Senhor? {#como-posso-servir-mais-ao-senhor}
+
+Vejo que o seu desejo é de conhecer ao Senhor Jesus para melhor servi-lo. A melhor escola para isso é ficar aos seus pés. Não pense também que trabalhar para o Senhor é o mais importante. Marta estava trabalhando muito para servir o Senhor, e ele chamou sua atenção por estar ocupada COM O TRABALHO, enquanto elogiou Maria que estava ocupada COM SUA PESSOA.
+
+Estou me referindo a[Lucas 10:38](http://bibliaonline.com.br/acf/lc/10/38) quando o Senhor visitou a casa de Marta, irmã de Lázaro e de Maria. Vemos Marta ocupada com muitas coisas e Maria assentada aos pés do Senhor ouvindo sua Palavra. Quando Marta reclamou da situação, o Senhor a repreendeu mostrando que Maria havia escolhido a boa parte e esta não lhe seria tirada. Vemos que o serviço de Marta, embora feito com boa intenção, estava fora de lugar, pois ela se ocupava com tudo, menos com a Pessoa do Senhor.
+
+Encontramos Marta em outra ocasião. O Senhor havia ressuscitado a Lázaro e Marta passou a ter um conhecimento real de quem era o Senhor. Que mudança aconteceu! Vemos Marta, então, no[capítulo 12](http://bibliaonline.com.br/acf/jo/12) de João, mas ali ela não está preocupada com o serviço e sim com o Senhor. Em João[12:2 e 3](http://bibliaonline.com.br/acf/jo/12/2,3) podemos contemplar o quadro completo e harmonioso para a vida de um cristão. Não há nenhum motivo para repreensão por parte do Senhor, pois Lázaro conhece o Senhor que lhe restituiu a vida; Marta sabe que o objetivo do seu serviço é o Senhor e Maria continua em sua atitude de adoração aos pés daquele que é Digno.
+
+Que exemplo maravilhoso para nós: Lázaro à mesa, demonstrando COMUNHÃO com o Senhor; Marta mostrando o SERVIÇO no seu devido lugar e Maria oferecendo sua ADORAÇÃO e se deliciando com suas palavras. É disto que precisamos para uma vida cheia de gozo. Comunhão, Serviço e Adoração. Mas tudo em perfeito e harmonioso equilíbrio, tendo sempre o Senhor como objetivo.
+
+Para que possamos aprender mais da Palavra de Deus, é preciso que deixemos de lado muitas coisas às quais estamos habituados. Talvez você esteja pensando em vícios ou coisas desse tipo, mas estou me referindo a tudo aquilo, pequeno ou grande, que não seja exatamente da forma que o Senhor ensinou. Em João[7:17](http://bibliaonline.com.br/acf/jo/7/17), na versão atualizada da Bíblia traduzida por Almeida, lemos: &quot;Se alguém quiser fazer a vontade dele (do Pai) conhecerá a respeito da doutrina&quot;.
+
+Este é um princípio extremamente importante e Paulo apresenta outro aspecto quando diz: &quot;Porventura procuro eu agora o favor dos homens, ou o de Deus? ou procuro agradar a homens? Se agradasse ainda a homens, não seria servo de Cristo&quot; ([Gl 1:10](http://bibliaonline.com.br/acf/gl/1/10)). Se o seu desejo é fazer a vontade de Deus, fique certo de que muitos homens não se agradarão disso, e poderá encontrar oposição até dentre os irmãos.
+
+*****

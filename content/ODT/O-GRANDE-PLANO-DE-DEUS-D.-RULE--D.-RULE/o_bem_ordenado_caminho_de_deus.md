@@ -1,0 +1,11 @@
+# O bem ordenado caminho de Deus {#o-bem-ordenado-caminho-de-deus}
+
+Deus tem sempre uma boa ordem na Sua maneira de tratar com o homem. Ele trata com diferentes grupos em diferentes épocas. Quando lemos nossas Bíblias, precisamos notar cuidadosamente para quem ou de quem é que Ele está falando.
+
+Em Seu proceder com Seu povo terreno, Deus trata primeiro com o remanescente, depois com as dez tribos, e finalmente Ele faz com que sejam novamente uma nação unida formada por doze tribos.
+
+Deus faz distinção entre a terra e o mundo. [Isaías 26:9](http://bibliaonline.com.br/acf/is/26/9) diz: &quot;Havendo os teus juízos na terra, os moradores do mundo aprendem justiça&quot;. A terra inclui Israel, o império romano e as outras nações que tiveram algo a ver com Israel no tempo que nosso Senhor esteve aqui. O mundo inclui todo o restante dos povos do planeta Terra. Na profecia vemos Deus julgando a terra enquanto o resto do mundo assiste e aprende justiça. Em Apocalipse, a expressão &quot;a quarta parte da terra&quot; significa Israel, e &quot;a terça parte da terra&quot; significa o império romano.
+
+É esse o modo de Deus julgar. É como se dissesse a uma nação: &quot;Agora é a sua vez; venha&quot;. Ele os introduz em Sua terra e trata com eles ali. Então chama outro grupo de nações e diz: &quot;Agora é a vez de vocês&quot;; e trata com eles ali. É assim que Ele procede com toda a Terra.
+
+A maneira de Deus abençoar é como uma pedra lançada dentro de um lago. As ondas começam em um ponto e então vão se espalhando em círculos. As ondas de bênção começam no Monte Sião, e então se estendem para a amada cidade do Senhor, Jerusalém. Dali passam a um alcançar um círculo um pouco maior chamado Judá, as duas tribos entre as quais Ele viveu, e então atingem toda a terra de Israel, então a terra e, finalmente, o mundo todo é incluído na bênção. Quando lemos a palavra profética, procurando entrar nos pensamentos e no coração de Deus a este respeito, passa a ser algo de extrema importância, e digno de ser desfrutado, vermos qual é o círculo com que Deus está tratando naquele momento.

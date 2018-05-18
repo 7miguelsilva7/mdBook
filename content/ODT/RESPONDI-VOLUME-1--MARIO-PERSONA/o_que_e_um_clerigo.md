@@ -1,0 +1,17 @@
+# O que é um clérigo? {#o-que-um-cl-rigo}
+
+Entendo como clérigo alguém que seja membro de um clero. Como clero, entendo ser uma ordem superior de homens dentro de uma religião. Havia um clero no Antigo Testamento e voltamos a encontrá-lo nos evangelhos. Era instituído por Deus. Os clérigos eram sacerdotes e levitas, como adoradores. E havia Moisés como autoridade no AT. No NT diz: &quot;Na cadeira de Moisés estão assentados os escribas e fariseus&quot;([Mt 23:2-3](http://bibliaonline.com.br/acf/mt/23/2-3)), o que o próprio Senhor reconheceu como detentores de autoridade para serem obedecidos no que diziam (não no que faziam).
+
+Todavia havia um espírito clerical, e este sim era o câncer do sistema: &quot;Creu nele porventura algum dos principais ou dos fariseus? Mas esta multidão, QUE NÃO SABE A LEI, é maldita&quot; ([Jo 7:48,49](http://bibliaonline.com.br/acf/jo/7/48,49)) O espírito de soberba estava associado ao conhecimento, obviamente, intelectual da Lei.
+
+E na cristandade, existe a divisão clero-laico? nem preciso responder. Sem entrar no catolicismo, onde isso é assumido, alguém já ouviu expressões do tipo &quot;pastor&quot; e “membros”? Sim, existe clero dentro da cristandade. Nenhum de nós é ingênuo, e se a carne dos outros cristãos for igual à minha, então todos corremos o risco (eu, inclusive) de ter o coração invadido pela soberba por pensarmos conhecer mais, em detrimento dos que achamos que sabem menos. Em[1 Coríntios 13](http://bibliaonline.com.br/acf/1co/13) descobrimos que “conhecemos em parte”. Qualquer um de nós. O problema é que o orgulho da bagagem intelectual, aprendida nas universidades, não deixa a gente considerá-la, como Paulo fez, esterco.
+
+Todavia, todo o sistema clerical é apreciado pelo mundo e pelos que a ele pertencem. Porque é assim no mundo, isto é, há títulos de nobreza, muitos acham que não poderia ser diferente nas coisas de Deus. Veja um exemplo disso no título &quot;Reverendo&quot; usado em algumas denominações para identificar seus pastores.
+
+Na Bíblia em Inglês &quot;Reverendo&quot; é um dos títulos de Deus ([Sl 111](http://bibliaonline.com.br/acf/sl/11/1):9). O “Reverendo” que temos hoje dentro de algumas denominações veio do inglês. Os apóstolos eram chamados “apóstolos”, alguém poderia argumentar. Um título, portanto, embora não veja “apóstolo”, que significa “enviado”, como um título honorífico (“Dr.”).
+
+O mesmo pode ser dito dos presbíteros que, evidentemente identificavam aqueles homens especialmente designados (lembre-se &quot;de cidade em cidade&quot; — temos isto hoje?). Todavia “pastor”, assim como “evangelista” e “mestre” ou “doutor” (“mestre”) são dons que não vejo aplicados como títulos honoríficos. Hoje se usa “Pr.” como se usa “Dr.”. Ou estou enganado? Ora, somos homens. Nosso ego gosta de ser acariciado com títulos. Ou não?
+
+Não posso julgar o coração de ninguém, só o meu (e mal, ainda por cima). Portanto não posso afirmar que este ou aquele irmão esteja tendo o mesmo sentimento daqueles fariseus. Mas sei que um irmão em uma posição de clérigo está mais propenso ao risco. Todavia, &quot;Nicodemos que era um deles (o que de noite fora ter com Jesus) disse-lhes...&quot; ([Jo 7:50](http://bibliaonline.com.br/acf/jo/7/50)). Ali estava um clérigo mais preocupado com a glória de Deus do que com a sua própria glória. E quando todos abandonaram o Senhor, ele se expôs para sepultar o corpo. Portanto o hábito não faz o monge. Mas o hábito é tudo o que podemos ver. Cabe ao monge mostrar o que é por seus frutos.
+
+*****

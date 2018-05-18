@@ -1,0 +1,25 @@
+# Viver com alguém é fornicação? {#viver-com-algu-m-fornica-o}
+
+Sua dúvida é por não existir algo na Bíblia que diga “é proibido ter relações sexuais se não for casado”. Não sei se você é convertida a Cristo ou não, mas o cristianismo não é uma religião de leis do tipo “isso é proibido”, “aquilo é permitido”.
+
+O judaísmo tinha suas leis, mas não o cristianismo. Há algumas ordenanças (como o batismo e a recordação da morte do Senhor na ceia), há costumes que o cristão deve adotar e há práticas que são consideradas pecado, mas tudo isso vem da forma como um pai amoroso falaria com seus filhos, e não do modo como um sargento trataria seus soldados. Aliás, na relação de um pai amoroso com seu filho às vezes nem palavras são necessárias, basta um olhar, para saber se aquilo agrada ou não ao pai.
+
+E o sexo fora do casamento certamente não agrada ao Pai (e quando falo Pai estou me referindo àqueles que podem chamá-lo assim por terem nascido de novo). Portanto, não olhe para a Bíblia como um livro de regras.
+
+O matrimônio é uma instituição divina. Em seu projeto original Deus criou um homem e uma mulher para se unirem e procriarem. Dentro desse relacionamento o sexo foi algo que Deus mesmo instituiu, e em Hebreus é considerado digno de honra o leito sem mácula, o casal que tem um ao outro exclusivamente. Os costumes do mundo atual estão bem diferentes disso, mas o que o cristão tem com os costumes? Não são eles a sua referência, mas fazer a vontade de Deus.
+
+Se você entendeu que fornicação é o sexo fora do casamento, então sabe que isso inclui também o sexo antes do casamento, ou seja, mesmo entre duas pessoas que pretendam se casar. Como elas ainda não estão unidas em matrimônio, elas se encontram em situação de fornicação se mantiverem relações sexuais. Deus sempre sabe o que é melhor para nós.
+
+Aí caímos na questão sobre o que é um casamento legítimo. Não sei o que dizem os costumes judaicos, pois o Antigo Testamento não traz qualquer menção de como deve ser celebrado um casamento judaico, mas não existe o tal “casamento no religioso” que costumamos falar. Na Bíblia não há qualquer referência de que alguém pudesse dizer “Perante Deus eu vos declaro marido e mulher”. O juiz de paz sim tem essa autoridade, pois ela lhe foi dada pelos homens, portanto perante a lei ele pode declarar marido e mulher. É o que chamamos de casamento civil.
+
+Mas “casamento religioso” não existe biblicamente. É claro que os cristãos podem convidar alguém para falar algumas palavras, fazer uma oração ou algo assim, mas se alguém disser que tem o poder de declarar um casal, casados diante de Deus, isso será uma usurpação de um poder que não foi dado a ninguém (exceto, como disse, o poder civil que o juiz tem).
+
+Essa questão que você mencionou, de duas pessoas vivendo juntas por vinte anos é muito relativa. Em algumas situações isso poderia ser considerado fornicação, em outras não. Como o cristão deve seguir as leis de seu país, se naquele país são consideradas casadas pessoas que têm uma certidão em cartório, então elas devem passar por isso para se considerarem casadas. Obviamente nos tempos bíblicos não havia cartórios, mas havia testemunhas e o casamento era um evento reconhecido como tal, como um contrato público. No minuto anterior àquela cerimônia todos sabiam que aquelas pessoas não eram casadas. No minuto seguinte, todos as tinham como casadas.
+
+Há casos de cristãos que se converteram em países onde a poligamia é aceita (em algumas tribos da África) e ficaram em um impasse porque tinham meia dúzia de esposas. Sei de um caso em que o homem convertido a Cristo decidiu coabitar apenas com a primeira esposa e prover o sustento das outras, sem ter com elas relações sexuais. Deste modo ele cumpriu a vontade de Deus quanto a ter uma só mulher, e não expôs as outras mulheres ao escárnio e humilhação, que seria o caso se as abandonasse numa sociedade como aquela.
+
+Portanto, você vê que não há uma lei ou uma regra, mas que é preciso discernimento para cada situação. No Brasil uma pessoa é considerada casada se tiver uma certidão de casamento, do mesmo modo que você precisa de um atestado de óbito para provar que morreu. Todavia, em boa parte do interior do país onde não existiam cartórios, são consideradas pela sociedade como casadas pessoas que tiveram um “casamento religioso”, pois no passado os livros das igrejas católicas eram considerados documentos válidos para certificar nascimento, casamento e óbito (não sei se ainda são). Mesmo assim, quando surge uma oportunidade elas costumam regularizar sua situação civil por várias razões.
+
+Se você for cristã e estiver na situação que descreveu (20 anos juntos, filhos, etc.), cabe a você orar e buscar saber a vontade de Deus. Se estiver no Brasil eu creio que o correto seria passar em um cartório de registro civil e legalizar sua relação.
+
+*****

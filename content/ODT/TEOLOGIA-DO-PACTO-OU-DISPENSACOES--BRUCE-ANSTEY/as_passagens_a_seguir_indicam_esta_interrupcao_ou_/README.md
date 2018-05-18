@@ -1,0 +1,1 @@
+# As passagens a seguir indicam esta interrupção ou suspensão: {#as-passagens-a-seguir-indicam-esta-interrup-o-ou-suspens-o}

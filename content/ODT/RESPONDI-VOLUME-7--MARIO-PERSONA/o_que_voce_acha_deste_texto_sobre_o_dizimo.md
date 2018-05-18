@@ -1,0 +1,27 @@
+# O que você acha deste texto sobre o dízimo? {#o-que-voc-acha-deste-texto-sobre-o-d-zimo}
+
+Você enviou um texto sobre o dízimo e gostaria que eu analisasse antes de enviar a outros irmãos. Recebo um número imenso de links, vídeos, textos e livros de leitores de meus blogs, e obviamente não teria tempo de ler todos ou analisar se estão corretos ou não. Como existe hoje muita coisa publicada na Internet, e uma vida não seria suficiente para ler tudo, antes de ler um texto cristão eu faço algumas perguntas.
+
+1\. Qual é o assunto? Se o texto for do tipo devocional ou falar de evangelismo, vida cristã, assuntos da vida prática, etc., então a probabilidade de conter erros é menor, pois são assuntos gerais que muitos cristãos dominam, independente de pertencerem ou não a um sistema religioso. Exclua desse “muitos cristãos dominam” os autores pentecostais, pois estes certamente acabarão ensinando que a salvação é por fé, mas a manutenção da salvação é por obras e perseverança, além dos erros associados ao Espírito Santo que normalmente vêm embutidos nesses textos. Se o assunto for igreja e as coisas ligadas à igreja, eu faço uma segunda pergunta.
+
+2\. Quem escreveu? Se for um irmão sem ligação com o sistema denominacional, as chances de ele acertar são maiores do que se o texto for escrito por um autor denominacional ou alguém pertencente ao clero de uma denominação (“pastor”, “profeta”, teólogo, “padre”, etc.). Mas mesmo assim eu preciso fazer mais uma pergunta:
+
+3\. Com quem ele está associado? O fato de alguém não estar ligado ao sistema denominacional não implica necessariamente que ele esteja trazendo sã doutrina. Há hoje muitos grupos sem denominação e você encontra em alguns deles aberrações doutrinárias muito piores do que as encontradas nos sistemas eclesiásticos. Já vi grupos sem denominação que pregam a salvação pelo batismo e dizem que o homem não nasce pecador, só fica pecador depois de pecar. Também existe a possibilidade de ser um dissidente, que esteve congregado ao nome do Senhor e, por pecado ou rebelião, foi colocado fora de comunhão. Aí é preciso cuidado, pois em meio à verdade pode estar a mentira. É importante sabermos que a má doutrina em um texto nunca vem sublinhada para a detectarmos imediatamente.
+
+4\. Qual foi o objetivo de quem escreveu? Embora esta pergunta seja a mais difícil, por não podermos detectar as intenções do autor, é possível ter algumas pistas. Por exemplo, há quem escreva para ganhar dinheiro, para atrair membros para sua religião, para ganhar notoriedade, etc. Outras informações sobre o autor podem ajudar neste caso.
+
+Agora vamos analisar o texto que você me enviou (ainda sem ler):
+
+1\. Qual o assunto? O dízimo, portanto um assunto relacionado à igreja.
+
+2\. Quem escreveu? Não sei quem é o autor, se é denominacional ou não.
+
+3\. Com quem ele está associado? Pareceu-me ser alguém de um desses grupos sem denominação existentes hoje, como “igrejas nas casas”, “comunidades”, etc. Embora a maior parte da bibliografia que ele colocou no final seja de livros de referências, como dicionários, ou autores normalmente lidos nos seminários teológicos, o autor do texto introduz na bibliografia Frank Viola, que é um dos autores do movimento de igrejas em casas, o que me faz pensar que ele esteja de algum modo associado a esse movimento ou seja simpatizante. Não sei se foi essa a intenção, mas o fato de incluir vários autores clássicos do mundo da teologia denominacional pode ser uma forma de baixar a guarda dos leitores denominacionais por parecer que o texto tem o aval desses autores.
+
+4\. Qual foi o objetivo de quem escreveu? O texto indica que é uma monografia de um curso de teologia que o autor fez visando obter o título de “Bacharel em Teologia”. Eu pergunto: para que serve um título de “Bacharel em Teologia”? O que alguém que aparentemente não concorda com o sistema religioso está fazendo numa incubadora de líderes religiosos, como é uma faculdade de teologia? A meu ver ele não entendeu o que é “qualquer que profere o nome de Cristo aparte-se da iniquidade” ([2Tm 2:19](http://bibliaonline.com.br/acf/2tm/2/19)). Sugiro a leitura do livro que estou traduzindo que fala bem sobre este assunto e que pode ser encontrado no endereço da Web www.umcorpo.blogspot.com.
+
+Minha conclusão é que o autor, ou pertence a uma denominação e busca obter um título para atuar com mais autoridade em uma, ou ele não pertence, mas deseja ser influente no meio denominacional e para isso acredita que um título eclesiástico ajude, ou então esteja em algum grupo não denominacional que tem por objetivo mudar o sistema denominacional e livrá-lo de alguns de seus muitos erros. Nenhuma das opções encontra respaldo bíblico.
+
+Concluindo, não é um texto que eu leria, porque fala da igreja, um assunto que dificilmente alguém com um pé no sistema religioso saberá tratar com isenção de interesses. Quando falamos de apartar-se do arraial, isto inclui TUDO o que está associado ao arraial religioso, inclusive suas faculdades de teologia, títulos honoríficos e até mesmo a intenção de melhorar o arraial, fazendo uma faxina doutrinária nas denominações. Apartar-se significa não olhar para trás e nem buscar beber mais dessa fonte.
+
+*****

@@ -1,0 +1,9 @@
+# Um aviso bíblico {#um-aviso-b-blico}
+
+Há um aumento na atividade dos espíritos maus hoje em dia. A Palavra nos dá uma voz de alerta: “Mas o Espírito expressamente diz que nos últimos tempos apostatarão alguns da fé, dando ouvidos a espíritos enganadores, e a doutrinas de demônios” ([1 Timóteo 4:1](http://bibliaonline.com.br/acf/1tm/4/1)).
+
+“Mas temo que, assim como a serpente enganou Eva com a sua astúcia, assim também sejam de alguma sorte corrompidos os vossos sentidos, e se apartem da simplicidade que há em Cristo. Porque, se alguém for pregar-vos outro Jesus que nós não temos pregado, ou se recebeis outro espírito que não recebestes, ou outro evangelho que não abraçastes, com razão o sofreríeis” ([2 Cor. 11:3-4](http://bibliaonline.com.br/acf/2co/11-3-4)).
+
+“Amados, não creiais a todo o espírito, mas provai se os espíritos são de Deus, porque já muitos falsos profetas se têm levantado no mundo. Nisto conhecereis o Espírito de Deus: Todo o espírito que confessa que Jesus Cristo veio em carne é de Deus; E todo o espírito que não confessa que Jesus Cristo veio em carne não é de Deus; mas este é o espírito do anticristo...” ([1 João 4:1-3](http://bibliaonline.com.br/acf/1jo/4/1-3)). Esta escritura mostra que a direção exercida por espíritos falsos pode levar eventualmente a falsas crenças no tocante à pessoa de Cristo.
+
+Não cremos que todo esse fenômeno entre os carismáticos seja obra de espíritos maus. É possível deixar-se arrastar pelo próprio espírito. Veja-se [Ezequiel 13:3](http://bibliaonline.com.br/acf/ez/13/3): “Assim diz o Senhor DEUS: Ai dos profetas loucos, que seguem o seu próprio espírito e que nada viram!”.

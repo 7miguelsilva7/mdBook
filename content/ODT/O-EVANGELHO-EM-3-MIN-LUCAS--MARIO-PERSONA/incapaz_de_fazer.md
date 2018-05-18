@@ -1,0 +1,15 @@
+# **Incapaz de fazer** {#incapaz-de-fazer}
+
+[Lucas 18:31-34](http://bibliaonline.com.br/acf/lc/18/31-34)
+
+Jesus passa por Jericó e à beira do caminho há um mendigo cego que, ao ouvir o ruído da multidão, pergunta o que está acontecendo. A resposta é que &quot;Jesus de Nazaré está passando&quot; ([Lucas 18:35](http://bibliaonline.com.br/acf/lc/18/35)). Jesus era de Belém, mas por ter sido criado em Nazaré alguns o chamavam assim. Os nascidos em Nazaré eram discriminados, como você percebe na passagem do Evangelho de João, quando Natanael é informado por Filipe que haviam encontrado o Messias, “Jesus de Nazaré, filho de José”. Natanael contestou: “Nazaré? Pode vir alguma coisa boa de lá?” ([Jo 1:45-46](http://bibliaonline.com.br/acf/jo/1/45-46)).
+
+Mas se os homens dizem que é “Jesus de Nazaré”, não é assim que o cego o chama. Ele “se pôs a gritar: Jesus, filho de Davi, tem misericórdia de mim!” ([Lc 18:38](http://bibliaonline.com.br/acf/lc/18/38)). Chamá-lo de “Filho de Davi” era tratá-lo com a dignidade real que ele merecia. “Os que iam adiante o repreendiam para que ficasse quieto”, talvez embaraçados com o escândalo causado pelo cego, “mas ele gritava ainda mais: Filho de Davi, tem misericórdia de mim!” ([Lucas 18:39](http://bibliaonline.com.br/acf/lc/18/39)). O que acontece a seguir é significativo: “Jesus parou” ([Lucas 18:40](http://bibliaonline.com.br/acf/lc/18/40)).
+
+Em um episódio no Antigo Testamento, quando o anoitecer poderia atrapalhar a vitória de Israel sobre o inimigo, “js exclamou ao Senhor, na presença de Israel: ‘Sol, pare sobre Gibeom! E você, ó lua, sobre o vale de Aijalom!’ O sol parou, e a lua se deteve, até a nação vingar-se dos seus inimigos” ([Js 10:12-13](http://bibliaonline.com.br/acf/js/10/12-13)). O Senhor é capaz de fazer o sol parar no meio do alto céu, mas aqui vemos um cego capaz de fazer o Senhor parar na terra.
+
+Lemos em[Isaías 57:15](http://bibliaonline.com.br/acf/is/57/15): “Assim diz o Alto e Sublime, que vive para sempre, e cujo nome é santo: ‘Habito num lugar alto e santo, mas habito também com o contrito e humilde de espírito, para dar novo ânimo ao espírito do humilde e novo alento ao coração do contrito’”. Um pouco antes vimos um rico saudável perguntar a Jesus: “Que farei para herdar a vida eterna?” ([Lucas 18:18](http://bibliaonline.com.br/acf/lc/18/18)). Agora vemos um cego pobre que clama por misericórdia por saber que é incapaz de fazer coisa alguma. E como poderia, se precisou da ajuda de outros para saber que Jesus passava e ser levado a ele?
+
+É Jesus quem pergunta: “‘O que você quer que eu lhe faça?’ ‘Senhor, eu quero ver’, respondeu ele. Jesus lhe disse: ‘Recupere a visão! A sua fé o curou’. Imediatamente ele recuperou a visão; e seguia a Jesus glorificando a Deus. Quando todo o povo viu isso, deu louvores a Deus” ([Lucas 18:41-43](http://bibliaonline.com.br/acf/lc/18/41-43)). E você? Ainda está querendo saber o que fazer para ser salvo ou se reconhece incapaz ao ponto de deixar que Jesus faça por você?
+
+tic-tac-tic-tac...

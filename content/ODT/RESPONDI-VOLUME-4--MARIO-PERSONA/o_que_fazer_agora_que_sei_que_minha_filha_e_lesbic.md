@@ -1,0 +1,71 @@
+# O que fazer agora que sei que minha filha é lésbica? {#o-que-fazer-agora-que-sei-que-minha-filha-l-sbica}
+
+Você contou que descobriu que sua filha, que foi criada em um lar cristão, tem um relacionamento com outra garota e que agora não aceita conselhos e exortações vindas de você, e muito menos da Bíblia.
+
+Demorei em responder pois não sabia por onde começar. Não sei o que você e seu marido estão passando. Tenho filhos, mas nunca passei por isso, portanto não tome o que eu disser aqui como minha experiência. Pretendo apenas buscar na Palavra o que acredito ser a melhor resposta.
+
+Não há dúvida de que na Bíblia o homossexualismo é considerado pecado por Deus. Ainda que toda a população do planeta decidisse chegar a um consenso “politicamente correto” sobre o assunto, a Palavra de Deus continuaria a acusar tal prática. Proibir as pessoas de expressarem sua opinião, como alguns países tentam fazer por meio de legislação, só criaria uma espécie de “ditadura gay” e criaria uma perseguição reversa: aqueles que eram injustamente perseguidos no passado passariam a exercer o papel de perseguidores.
+
+Também seria censura impedir as pessoas de lerem a Bíblia e pregarem a Palavra de Deus na sua forma original. Se o fato de o texto sagrado denunciar uma determinada classe de pessoas fosse pretexto para isso, os judeus há séculos teriam deixado de ler o Antigo Testamento em suas sinagogas. Suas páginas não poupam críticas ao povo que Deus escolheu e caiu tantas vezes em idolatria.
+
+Permitir apenas a publicação de uma Bíblia “saneada” de ofensas contra esta ou aquela classe de pessoas também não iria funcionar. Mesmo que alguém arrancasse suas páginas, isso não seria suficiente para mudar a opinião que Deus tem do homossexualismo. Aliás, arrancar páginas é o que faz o ator Ian McKellen (o mago Gandalf de “O Senhor dos Anéis”), que é gay e revelou seu lado censor em entrevista à revista “Details”:
+
+Details: É verdade que quando você fica em hotéis você arranca a página da Bíblia que condena o homossexualismo?
+
+Ian McKellen: Sim, eu arranco. Não me orgulho de estragar o livro, mas prefiro arrancar aquela página a jogar a Bíblia inteira no lixo. E não fui o primeiro a fazer isso: recebi de um casal de amigos um pacote contendo 40 páginas arrancadas por eles com o texto de [Levítico 18:22](http://bibliaonline.com.br/acf/lv/18/22), que diz, “Com varão te não deitarás, como se fosse mulher: abominação é”. Eles as amarraram juntas com um barbante para que eu pudesse pendurá-las no banheiro.
+
+Details: Você pendurou?
+
+Ian McKellen: Sim, estão em meu banheiro, mas é mais por curiosidade do que por ter a intenção de usá-las.
+
+Voltando à sua pergunta, se a sua filha foi criada no evangelho, ela deve saber que Deus condena o homossexualismo em sua Palavra. Mas como Jesus trataria um homossexual? Não existe um relato de qualquer conversa que ele tenha tido com homossexuais, mas nós o encontramos conversando com pessoas que praticavam outros tipos de pecado moral. Em todas essas situações ele tratou muito bem as pessoas, sem, contudo diminuir a gravidade de seus pecados ou compactuar com eles.
+
+Esta é uma distinção muito importante que o Senhor fazia e o cristão deve saber fazer: separar a pessoa de seu pecado. Jesus sempre amou o ser humano, ao mesmo tempo em que abominava a prática pecaminosa. Eu acredito que se o Senhor tivesse conversado com um homossexual ele agiria assim: demonstraria o seu amor pela pessoa e ao mesmo tempo diria como disse à mulher pega em adultério: “ Vai-te e não peques mais” ([Jo 8:11](http://bibliaonline.com.br/acf/jo/8/11)) .
+
+As únicas pessoas nos evangelhos que você encontra sendo tratadas com rigor pelo Senhor foram justamente aquelas que nossa sociedade trataria com todas as honras: o clero. A razão é que, para Deus, nada é mais grave do que brincar com as coisas espirituais, e aqueles homens brincavam com fogo ao ensinarem doutrinas erradas ao povo e também ao explorarem sua fé visando o lucro. Ao clero Jesus chamava de “ raça de víboras” , “ sepulcros caiados”, etc., e colocou os comerciantes do templo para correr na base do chicote.
+
+No entanto, por quase dois mil anos vimos ladrões, adúlteros, prostitutas e homossexuais serem tratados no chicote, enquanto os clérigos tinham seus anéis de ouro e calçados de cromo beijados pela sociedade. Parece existir hoje uma clara inversão do modo como Jesus trataria essas pessoas.
+
+Porém, não me entenda mal: o fato de o Senhor tratar ladrões, adúlteros e prostitutas com amor não denotava qualquer tipo de aprovação por suas práticas. Ao contrário, hoje ele continuaria dizendo a elas: “ Vai-te e não peques mais” .
+
+O primeiro passo em relação à sua filha é saber se ela realmente crê no Senhor Jesus como seu Salvador. Se ela crê, então o Espírito Santo que habita nela não a deixará sossegada enquanto estiver andando em pecado. Se a sua filha estivesse dormindo com o namorado eu estaria escrevendo basicamente as mesmas coisas, porque Deus abomina a imoralidade, seja ela homo ou heterossexual.
+
+Alguns alegam que a homo afetividade é algo que não podem evitar, mas o cristão pode evitar qualquer coisa que seja contrária à Palavra de Deus se tiver seu olhar colocado na glória e estiver disposto a fazer a vontade do Pai. O [capítulo 11](http://bibliaonline.com.br/acf/hb/11) de Hebreus nos fala de homens e mulheres de fé que abriram mão da própria vida tendo em vista a glória que viria. O Senhor Jesus suportou as maiores privações e provações porque olhava para o futuro. Jesus, que abriu mão de tudo por amor de nós e para a glória de Deus, é o melhor exemplo que um crente pode ter. Nossa vida aqui não passa de um átomo de tempo comparado à eternidade, portanto trocar as coisas eternas por prazeres temporais simplesmente não vale a pena.
+
+Mas quando um crente em Jesus, que sabe o certo e o errado, decide deliberadamente andar fora dos caminhos de Deus, ele pode se enquadrar naquilo que a Bíblia chama de “ pecado para a morte” ([1 Jo 5:16](http://bibliaonline.com.br/acf/1jo/5/16)) , que é quando um crente decide teimosamente desobedecer a Deus, e Deus prefere tirá-lo do mundo por não servir mais como um testemunho aqui.
+
+Nos tempos dos apóstolos, estes tinham autoridade para entregar uma pessoa a Satanás para a destruição do corpo, como vemos Paulo dizer em [1 Coríntios 5](http://bibliaonline.com.br/acf/1co/5), um poder que ninguém hoje tem. Provavelmente foi com essa autoridade, exercida pelo apóstolo Pedro, que Ananias e Safira caíram mortos após mentirem ao Espírito Santo em [Atos 5](http://bibliaonline.com.br/acf/atos/5). Eu creio que eles tenham sido salvos, porém “ como que pelo fogo” , como diz em [1 Coríntios 3:15](http://bibliaonline.com.br/acf/1co/3/15).
+
+[1 Coríntios 11:30](http://bibliaonline.com.br/acf/1co/11/30) nos fala de crentes fracos, doentes e que “ dormem” (morreram) por tratarem levianamente as coisas de Deus. Estavam salvos, porém colhiam no corpo as consequências de um andar desordenado. Quando alguém decide fazer uma “opção” deve entender que com ela virão consequências nem sempre agradáveis. Para um crente não faz sentido fazer uma “opção” por algo que não irá durar muito tempo. O que é qualquer “opção” feita nesta vida se compararmos com a eternidade?
+
+Às vezes é preciso questionar a realidade da fé de alguns que professam crer em Jesus, mas teimam em fazer a própria vontade. Muita gente acredita numa salvação do tipo ir à frente orar com o pastor de alguma religião, mas crer em Jesus é algo que vem de cima, é nascer do alto. É também algo que nos coloca numa dupla relação com Jesus: Salvador e Senhor . A maioria das pessoas é bastante atraída pela ideia de ter um Salvador , mas nem todo mundo gosta de ter um Senhor a quem prestar contas e que determina a morte da vontade própria. Aqueles que se sujeitam a tudo para o que o Senhor os destinou, sabem que “ ainda um pouquinho de tempo, e o que há de vir virá e não tardará” , e então ele recompensará aqueles que lhe foram fiel, “ homens dos quais o mundo não era digno” ( [Hebreus 10:37](http://bibliaonline.com.br/acf/hb/10/37)-[11:38](http://bibliaonline.com.br/acf/hb/11/38)).
+
+Se a sua filha não crê em Jesus, mas apenas professa uma religião sem ter passado pela realidade do novo nascimento, então sua inclinação homossexual é o menor dos problemas: ela continua na condição de perdida e a prática que decidiu adotar tem tudo a ver com este mundo, seu príncipe e os pensamentos humanos. A voz do povo não É a voz de Deus, portanto a opinião pública sempre acabará aceitando com naturalidade práticas contrárias à Palavra de Deus. Assim Paulo descreve os efésios antes de sua conversão:
+
+([Ef 2:1-3](http://bibliaonline.com.br/acf/ef/2/1-3)) “ ...estando vós mortos em ofensas e pecados, em que, noutro tempo, andastes, segundo o curso deste mundo, segundo o príncipe das potestades do ar, do espírito que, agora, opera nos filhos da desobediência ; entre os quais todos nós também, antes, andávamos nos desejos da nossa carne, fazendo a vontade da carne e dos pensamentos ; e éramos por natureza filhos da ira, como os outros também”.
+
+Se for este o caso, vocês deveriam estar mais preocupados com sua alma perdida do que com sua moral distorcida. No primeiro caso (crente) ela deve ser amada e ficar bem ciente de que está andando de uma forma avessa à vontade de Deus. Neste caso (incrédula) ela deve ser tratada como qualquer pessoa que precisa do evangelho, das boas novas da salvação. Não por ser homossexual, mas simplesmente por pertencer à raça humana caída e descendente de Adão.
+
+Do ponto de vista da vida diária, vocês devem deixar claro a ela que não poderão tratá-la como se nada estivesse acontecendo, pois vemos que o tratamento de alguém que, dizendo-se irmão, anda deliberadamente em pecado, deve ser um tratamento disciplinar ([1 Co 5](http://bibliaonline.com.br/acf/1co/5)). Não no sentido de castigo, mas de traçar uma clara linha divisória entre o que é da vontade de Deus e o que não é, e tentar de todos os meios ganhá-la para Cristo.
+
+Embora vocês não possam romper os laços naturais de afeição e filiação, devem estabelecer alguns limites, como por exemplo, não receber a companheira dela na casa de vocês (estou supondo que sua filha ainda mora com vocês, apesar de ser emancipada). Uma pessoa que vive na casa de seus pais deve se sujeitar às regras daquele que é cabeça da família.
+
+É preciso sempre adotar o olhar de Deus sobre o assunto. Quando qualquer um dos seus filhos cai em pecado, ele nos disciplina, nos coloca “no gelo”, mas em momento algum rompe a relação de Pai e filhos e nem nos ama menos por isso. O Pai da parábola do filho pródigo fez das tripas coração para trazer seu filho de volta. A mesma parábola mostra que provavelmente o filho que continuou perdido foi o “bom”, aquele que ficou em casa, porque não se sentia pecador.
+
+Outro ponto importante que vocês devem ter em mente é que boa parte da indignação dos pais em uma situação assim não é exatamente uma ira santa. Somos zelosos de nossa imagem e reputação, e quando um filho ou uma filha decide viver de um modo que nos envergonha, parte de nossa indignação vem do ego ferido. “ O que os meus amigos vão pensar?”, “Como ela pode fazer isso depois de tudo o que eu fiz por ela?”, “Quanta falta de consideração para com minha dedicação!”.
+
+Sim, nosso coração é assim mesmo e não nos conformamos quando vemos nossos filhos não desejando viver à nossa imagem e semelhança. É claro que esse é também o desapontamento de Deus em relação aos humanos, mas não somos Deus para conseguirmos ter o mesmo “desapontamento santo”. Tem sempre uma ponta de egoísmo em nossos sentimentos.
+
+Não sei se tudo o que escrevi aqui servirá de ajuda. Caso sua filha venha a ler este e-mail, é bom que ela entenda minha posição a respeito do homossexualismo. Primeiro, prefiro conversar com um homossexual a um clérigo todo paramentado e falando com voz sussurrante. Pelo menos o primeiro assumiu sua condição de pecador. O segundo a esconde sob o manto da dignidade religiosa. Acredito que este seria também o sentimento de Jesus pela distinção que ele fazia ao tratar com a classe sacerdotal.
+
+Segundo, você jamais me verá fazendo lobby contra direitos dos gays. Essas discussões que ocorrem na “casa de César” não me interessam, porque estou de passagem por um mundo cujo príncipe não é o meu Senhor, mas Satanás. Nossa sociedade não é nem metade promíscua como era o Império Romano nos tempos de Jesus, e mesmo assim ele não se deu ao trabalho de alterar o status quo daquela sociedade. A sua Pessoa e obra fizeram isso por influência, não por ingerência.
+
+Talvez você ouça a sua filha alegar que quer ser feliz, que não quer se colocar sob o jugo de um Deus arcaico, ou desperdiçar os melhores anos de sua vida vivendo sem prazer. Por isso termino deixando a passagem em que muitos discípulos do Senhor decidiram abandoná-lo por achar dura demais a vida que ele propunha a eles:
+
+([Jo 6:63-69](http://bibliaonline.com.br/acf/jo/6/63-69)) “ O espírito é o que vivifica, a carne para nada aproveita ; as palavras que eu vos disse são espírito e vida. Mas há alguns de vós que não creem... E dizia: Por isso, eu vos disse que ninguém pode vir a mim, se por meu Pai lhe não for concedido . Desde então, muitos dos seus discípulos tornaram para trás e já não andavam com ele. Então, disse Jesus aos doze: Quereis vós também retirar-vos? Respondeu-lhe, pois, Simão Pedro: Senhor, para quem iremos nós? Tu tens as palavras da vida eterna, e nós temos crido e conhecido que tu és o Cristo, o Filho de Deus ” .
+
+Sua filha está trocando Jesus e a comunhão com ele por uma namorada. Uma troca nada sábia, como vocês já sabem. Por que isso foi acontecer justamente com vocês eu não sei, mas sei que Deus tem uma medida de consolo para o seu caso também.
+
+([2 Co 1:3-4](http://bibliaonline.com.br/acf/2co/1/3-4)) “ Bendito seja o Deus e Pai de nosso Senhor Jesus Cristo, o Pai das misericórdias e o Deus de toda consolação, que nos consola em toda a nossa tribulação, para que também possamos consolar os que estiverem em alguma tribulação, com a consolação com que nós mesmos somos consolados de Deus ” .
+
+*****

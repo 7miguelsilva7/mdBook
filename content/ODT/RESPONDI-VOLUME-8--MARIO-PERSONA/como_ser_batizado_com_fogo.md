@@ -1,0 +1,15 @@
+# Como ser batizado com fogo? {#como-ser-batizado-com-fogo}
+
+Você diz que foi batizada com água em nome do Pai, do Filho e do Espírito Santo, mas seu desejo é “ser batizada com fogo, ou seja, selada em evidências de novas línguas”. Você diz ainda que está buscando e orando, mas não consegue alcançar isso e pergunta se fazer jejum poderia ajudar.
+
+Espero sinceramente que você nunca seja batizada com fogo, porque o batismo com fogo é o juízo eterno. Os pentecostais interpretam erroneamente a passagem e ficam pedindo fogo. Ainda bem que Deus não atende o pedido deles.
+
+Existe até um hino que diz “Manda fogo, Senhor, que eu quero sentir o Teu poder”. Ainda bem que o Senhor não faz o que pedem os que cantam assim, pois na Bíblia o fogo está sempre conectado com juízo. Isso ocorre por um erro de interpretação de [Atos 2](http://bibliaonline.com.br/acf/atos/2), onde as línguas não são “línguas de fogo” , mas são “línguas como de fogo” (ou parecidas com fogo) , e de [Mateus 3](http://bibliaonline.com.br/acf/mt/3), onde o fogo ali é erroneamente interpretado como o batismo do Espírito Santo ocorrido no Dia de Pentecostes.
+
+Se você observar atentamente o texto de [Mateus 3](http://bibliaonline.com.br/acf/mt/3), verá que João Batista está se dirigindo alternadamente tanto a salvos como a perdidos, falando também alternadamente de salvação e juízo (o fogo representa o juízo de Deus). Acrescentei as palavras [entre chaves] para você entender essa alternância:
+
+“Mas, vendo ele muitos dos fariseus e dos saduceus que vinham ao seu batismo, disse-lhes: Raça de víboras, quem vos ensinou a fugir da ira vindoura ? Produzi, pois, frutos dignos de arrependimento [Os salvos]... E já está posto o machado a raiz das árvores; toda árvore, pois que não produz bom fruto [Os perdidos], é cortada e lançada no fogo [o juízo]. Eu, na verdade, vos batizo em água, na base do arrependimento; mas aquele que vem após mim é mais poderoso do que eu, que nem sou digno de levar-lhe as alparcas; ele vos batizará no Espírito Santo [Os salvos], e em fogo [Os perdidos]. A sua pá ele tem na mão, e limpará bem a sua eira; recolherá o seu trigo [Os salvos] ao celeiro, mas queimará a palha [Os perdidos] em fogo inextinguível“.
+
+Quanto ao batismo do Espírito Santo que você deseja receber, e ainda com a “evidência” de falar em línguas estranhas, este é também um equívoco muito grande da doutrina pentecostal. Quem espera receber hoje o batismo do Espírito chegou dois mil anos atrasado, porque esse batismo ocorreu uma vez no dia de Pentecostes ([Atos 2](http://bibliaonline.com.br/acf/atos/2)). Se você já foi salva pela fé em Cristo você foi selada com o Espírito Santo, e não batizada com o Espírito Santo. Se você não tem o Espírito de Cristo, então nem ainda é dele! “Se alguém não tem o Espírito de Cristo, esse tal não é dele” ([Rm 8:9](http://bibliaonline.com.br/acf/rm/8/9)).
+
+*****

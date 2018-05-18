@@ -1,0 +1,23 @@
+# De quem é a voz que diz “Eis o Noivo”? {#de-quem-a-voz-que-diz-eis-o-noivo}
+
+Primeiro é importante entender que a parábola das dez virgens está sendo dada no evangelho ao remanescente judeu que crê em Jesus. Sua primeira aplicação, portanto, é para os amigos do noivo (no caso as virgens), que são as damas de companhia. Não se trata de uma cena que antecede uma espécie de casamento coletivo ou poligâmico, mas trata-se da condição individual de cada um que espera por seu Senhor.
+
+Porém, considerando que estamos falando do testemunho individual do cristão e da expectativa que ele deve ter de se encontrar com Cristo a qualquer momento, então a parábola também nos serve neste sentido como exortação e consolo. Entenda, portanto, que não estou falando da parábola como uma alusão direta ao arrebatamento da Igreja, mas ao estado em que devemos nos encontrar, isto é, de expectativa e como um testemunho eficaz (lâmpadas) que só pode existir quando seu combustível (azeite) vem do Espírito Santo de Deus.
+
+Durante séculos a volta de Cristo como o Noivo de sua noiva, a Igreja, ficou praticamente esquecida. Os cristãos eventualmente falavam da vinda de Cristo como Juiz e Rei, para julgar o mundo e reinar sobre ele, mas não há muita coisa sobre sua vinda como Noivo, não para julgar ou reinar sobre a Igreja, mas para levá-la para as núpcias, a festa de casamento.
+
+No início do século 19 na Inglaterra houve um forte movimento neste sentido, principalmente por cristãos que voltaram à leitura da Bíblia ao invés de continuarem aprendendo o que era ensinado pelas religiões de sua época. Para você ter uma ideia, o livro de orações oficial da igreja anglicana, usado nos cultos daquela denominação que era a igreja oficial da Inglaterra, não trazia qualquer menção sobre a vinda de Cristo como o noivo.
+
+Embora existam algumas referências anteriores à vinda de Cristo para sua Igreja, para nos encontrarmos entre nuvens com o Senhor, nada se igualou ao movimento ocorrido no século 19 e que teve como consequência um fervor inigualável da parte dos cristãos de levarem o evangelho por todo o mundo. É dessa época que temos as histórias dos muitos missionários para países distantes levando as boas novas de salvação.
+
+A parábola das virgens nos mostra um tempo quando cristãos verdadeiros (portadores de uma luz que só é possível ter por obra do azeite do Espírito Santo) e meros professos (pessoas que apenas se uniram a alguma religião cristã) estariam vivendo juntos, mas acabariam sendo distinguidos por terem ou não o azeite do Espírito que mantêm suas luzes de testemunho acesas. Todos ouviriam o brado “Aí vem o noivo” ou “Eis o noivo”, mas nem todos estariam com o azeite que possibilita uma luz real de testemunho.
+
+Se você estudar a história da igreja verá que o anúncio da vinda de Jesus para os seus é algo relativamente novo (embora já estivesse na Bíblia). Portanto esse brado, de que Jesus está aí para consumar as núpcias, é a voz da qual você perguntou. A Bíblia não diz quem deu o brado, mas ele certamente foi dado, pois eu e você já ouvimos. Curiosamente, existe um manuscrito da versão Vulgata Siríaca que diz: “Ai vem o Noivo com sua noiva”, o que faz sentido, pois as virgens ou damas de companhia seriam as acompanhantes, e não a noiva.
+
+O modo como alguém dá atenção a esse brado feliz é o que distingue um salvo de um perdido. O salvo se alegra por saber que a qualquer momento estará com o Noivo. Não há nada que deva acontecer antes da vinda de Jesus para arrebatar os seus, por isso o apóstolo Paulo já se incluía entre os que aguardavam esse momento, quando escreveu &quot;nós, os vivos, os que ficarmos...”.
+
+O incrédulo se apavora ao ouvir esse brado e passa a se preocupar com catástrofes, profecias, fim do mundo e coisas do tipo, pois sua esperança está no mundo, não no encontro com o Noivo no céu. Ele está mais preocupado com o que poderá perder com as destruições que ocorrerão por isso, toda essa preocupação com Nostradamus, 2012 e outras ideias diversas de fim do mundo como sempre ocorreram na história da humanidade (a vinda do Cometa Halley foi assim no passado). O crente, porém, vive na expectativa do que já ganhou e que está para se manifestar a qualquer momento.
+
+Quer a pessoa esteja entre os salvos da atual dispensação da Igreja e que aguardam o Senhor Jesus para qualquer momento no arrebatamento, quer seja alguém que viverá em dias futuros, quando vier a tribulação sobre o mundo (depois que a Igreja foi tirada daqui) e um remanescente de judeus e gentios se converter, uma coisa é certa: o brado “Eis o noivo” já foi dado e não será dado novamente.
+
+*****

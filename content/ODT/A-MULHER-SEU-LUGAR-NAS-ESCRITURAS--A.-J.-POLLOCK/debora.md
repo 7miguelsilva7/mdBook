@@ -1,0 +1,5 @@
+# Débora {#d-bora}
+
+Débora ocupa um lugar de destaque nas Escrituras. Foi uma profetisa - também era mulher casada e juíza em Israel. Ela foi uma exceção à regra, mas a exceção comprova a regra. As Escrituras não falam contra o lugar que ela ocupou, mas também não o aprovam. Contudo é suficiente o que foi dito pela própria Débora para vermos o que ela pensava sobre o assunto - condenou, pelo menos, a negligência dos homens, para não dizermos mais ([Jz 4.4-10](http://bibliaonline.com.br/acf/jz/4/4-10)).
+
+Ela convocou Baraque para que atacasse Sísera. No papel de profetisa, disse-lhe que o Senhor entregaria o inimigo em suas mãos. Mas Baraque, em sua covardia, não quis ir, a não ser que Débora o acompanhasse. Ela prontamente concordou com seu pedido, mas o informou que daquela missão ele não teria nenhuma honra - Sísera seria apanhado pela mão de uma mulher. Certamente a observação de Débora implicava que, se era motivo de vergonha para Baraque que uma mulher matasse Sísera, não era menos vergonhoso que uma mulher fosse obrigada, pela covardia dos homens, a julgar Israel.

@@ -1,0 +1,21 @@
+# Deus faz acepção de pessoas? {#deus-faz-acep-o-de-pessoas}
+
+A Bíblia ensina claramente que Deus escolheu alguns para a salvação, mas não indica que escolha alguém para a condenação. Todos estão condenados por natureza e teriam preferido continuar assim se Deus não decidisse escolher alguns para a salvação.
+
+Sua dúvida é que o fato de Deus ter escolhido alguns parece acepção de pessoas, mas a mesma bíblia diz que Deus não faz diferença entre pessoas e até condena isso.
+
+A verdade é que Deus deseja que todos sejam salvos ([1Tm 2:4](http://bibliaonline.com.br/acf/1tm/2/4); [2 Pe 3:9](http://bibliaonline.com.br/acf/2pe/3/9)) e Cristo morreu por “todos” ([2 Co 5:14](http://bibliaonline.com.br/acf/2co/5/14)), mas levou sobre si apenas o pecado de “muitos”, não de todos ([Is 53:12](http://bibliaonline.com.br/acf/is/53/12); [Hebreus 9:28](http://bibliaonline.com.br/acf/hb/9/28)).
+
+Fazer diferença entre pessoas, ou fazer acepção de pessoas que é a expressão normalmente usada na Bíblia, é considerar um melhor do que outro. Na hora de salvar Deus não faz acepção de pessoas por uma razão muito simples: todos são igualmente pecadores, maus, perdidos e merecedores do juízo eterno. Todos são iguais e estão igualmente perdidos.
+
+Então, sem dar a este ou àquele a preferência baseada em mérito, Deus simplesmente escolheu aqueles que ele quis. Diante de dois objetos exatamente iguais, por que você escolhe um e não o outro? Porque você quer, simplesmente por isso. Ninguém poderá dizer que foi injustiça, pois você podia muito bem não escolher nenhum.
+
+A escolha não depende do escolhido, mas de Deus, que quer escolher. Portanto não há acepção de pessoas. Os dois estavam igualmente qualificados para irem para o inferno, mas Deus decidiu que um não iria e o salvou. O erro das pessoas é acharem que salvação e perdição são dois caminhos e o homem está entre um e outro. Não é assim. [Romanos 3](http://bibliaonline.com.br/acf/rm/3) deixa bem claro que todos os homens são igualmente pecadores e estão longe de Deus. E Jesus, em [João 3](http://bibliaonline.com.br/acf/jo/3), diz que o homem no seu estado natural já está julgado e condenado.
+
+As passagens abaixo podem ajudar a entender melhor isso. Repare como Paulo diz que Deus preparou os vasos para honra, mas não diz o mesmo dos vasos de desonra. Ali diz que eles foram preparados, mas não diz que foram preparados por Deus.
+
+([Rm 9:10-26](http://bibliaonline.com.br/acf/rm/9/10-26)) “ E não somente isso, mas também a Rebeca, que havia concebido de um, de Isaque, nosso pai (pois não tendo os gêmeos ainda nascido, nem tendo praticado bem ou mal, para que o propósito de Deus segundo a eleição permanecesse firme, não por causa das obras, mas por aquele que chama ), foi-lhe dito: O maior servirá o menor. Como está escrito: Amei a Jacó, e aborreci a Esaú. Que diremos, pois? Há injustiça da parte de Deus? De modo nenhum. Porque diz a Moisés: Terei misericórdia de quem me aprouver ter misericórdia, e terei compaixão de quem me aprouver ter compaixão. Assim, pois, isto não depende do que quer, nem do que corre, mas de Deus que usa de misericórdia . Pois diz a Escritura a Faraó: Para isto mesmo te levantei: para em ti mostrar o meu poder, e para que seja anunciado o meu nome em toda a terra. Portanto, tem misericórdia de quem quer, e a quem quer endurece .
+
+Dir-me-ás então. Por que se queixa ele ainda? Pois, quem resiste à sua vontade? Mas, ó homem, quem és tu, que a Deus replicas? Porventura a coisa formada dirá ao que a formou: Por que me fizeste assim? Ou não tem o oleiro poder sobre o barro, para da mesma massa fazer um vaso para uso honroso e outro para uso desonroso? E que direis, se Deus, querendo mostrar a sua ira, e dar a conhecer o seu poder, suportou com muita paciência os vasos da ira, preparados para a perdição; para que também desse a conhecer as riquezas da sua glória nos vasos de misericórdia, que de antemão preparou para a glória, os quais somos nós, a quem também chamou, não só dentre os judeus, mas também dentre os gentios? Como diz ele também em Oséias: Chamarei meu povo ao que não era meu povo; e amada à que não era amada. E sucederá que no lugar em que lhes foi dito: Vós não sois meu povo; aí serão chamados filhos do Deus vivo”.
+
+*****

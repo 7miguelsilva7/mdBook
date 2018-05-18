@@ -1,0 +1,5 @@
+# A Teologia do Pacto negligencia as Escrituras {#a-teologia-do-pacto-negligencia-as-escrituras}
+
+O ensino da Teologia do Pacto negligencia as Escrituras que declaram abertamente que o presente chamado da Igreja pelo evangelho, o Mistério revelado, era desconhecido dos santos do Antigo Testamento ([Romanos 16:25-26](http://bibliaonline.com.br/acf/rm/16/25-26); [Efésios 3:3-10](http://bibliaonline.com.br/acf/ef/3/3-10); [Colossenses 1:25-27](http://bibliaonline.com.br/acf/cl/1/25-27)). Os teólogos do Pacto dizem que a Igreja era conhecida pelos profetas do Antigo Testamento, que teriam profetizado acerca dela. Mas isso é uma clara negação das patentes declarações das Escrituras de que eles não sabiam nada a respeito. Isso era um “mistério” que estava “oculto” daqueles que viveram nas eras passadas, e que foi revelado somente quando o Espírito de Deus veio habitar na terra na Igreja quando esta foi formada.
+
+A Teologia do Pacto desconsidera as muitas passagens das Escrituras que falam da verdade dispensacional, conforme discorremos nos capítulos anteriores. A clara evidência dos desígnios dispensacionais de Deus cobre mais de cem capítulos da Bíblia!

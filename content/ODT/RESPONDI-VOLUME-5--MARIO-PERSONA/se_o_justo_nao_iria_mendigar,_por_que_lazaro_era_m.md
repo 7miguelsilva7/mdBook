@@ -1,0 +1,21 @@
+# Se o justo não iria mendigar, por que Lázaro era mendigo? {#se-o-justo-n-o-iria-mendigar-por-que-l-zaro-era-mendigo}
+
+Sua dúvida surge do contraste entre duas passagens: o [Salmo 37:25](http://bibliaonline.com.br/acf/sl/37/25), onde Davi diz que &quot;Fui moço, e agora sou velho; mas nunca vi desamparado o justo, nem a sua semente a mendigar o pão”, e também do evangelho de [Lucas 16:20](http://bibliaonline.com.br/acf/lc/16/20), que fala do &quot;mendigo, chamado Lázaro”, que vai para o seio de Abraão depois que morre.
+
+Existem afirmações genéricas na Bíblia que são verdadeiras por serem genéricas. Por exemplo, dizer que os justos são abençoados é uma afirmação genérica. Embora existam muitos justos que morreram sem terem acesso às bênçãos em seu período de vida, cedo ou tarde a afirmação se cumprirá.
+
+Moisés, por exemplo, foi impedido de entrar na terra prometida, algo que sempre desejou fazer. Séculos depois, na cena da transfiguração, vemos Moisés exatamente na terra aonde almejava entrar, ao lado de Jesus e Elias. Deus enxerga as coisas em termos de eternidade. Vamos ver parte do contexto da passagem do Salmo (o contexto é muito mais amplo, porque é um Salmo profético que se refere ao remanescente judeu que será salvo na tribulação):
+
+([Sl 37:21-29](http://bibliaonline.com.br/acf/sl/37/21-29)) &quot;O ímpio toma emprestado, e não paga; mas o justo se compadece e dá. Porque aqueles que ele abençoa herdarão a terra, e aqueles que forem por ele amaldiçoados serão desarraigados. Os passos de um homem bom são confirmados pelo Senhor, e deleita-se no seu caminho. Ainda que caia, não ficará prostrado, pois o Senhor o sustém com a sua mão. Fui moço, e agora sou velho; mas nunca vi desamparado o justo, nem a sua semente a mendigar o pão. Compadece-se sempre, e empresta, e a sua semente é abençoada. Aparta-te do mal e faze o bem; e terás morada para sempre. Porque o Senhor ama o juízo e não desampara os seus santos; eles são preservados para sempre; mas a semente dos ímpios será desarraigada. Os justos herdarão a terra e habitarão nela para sempre”.
+
+Davi está falando de um modo geral, que durante sua existência nunca viu o justo desamparado e a descendência do justo a mendigar o pão (veja que ele não diz que nunca viu o justo mendigar o pão, mas a sua descendência). Não se pode dizer, do ponto de vista da eternidade, que Lázaro tenha sido desamparado, porque no final ele foi amparado sim, e é essa a história do evangelho e o contraste no qual ele aparece em relação ao rico ímpio.
+
+Mas veja que todo o capítulo deste Salmo Davi não está fazendo uma afirmação categórica e isolada, mas mostrando o contraste entre o ímpio e o justo e o que cada um ganha por ser assim. O assunto aqui é o contraste. Veja também que não é possível entender o versículo isolado, pois ele está falando da descendência do justo, e pelos versículos seguintes sabemos que ele está falando de alguém que &quot;compadece-se sempre, e empresta, e a sua semente é abençoada”.
+
+Parafraseando este Salmo, seria como se Davi estivesse dizendo que, das pessoas observadas em seu tempo de vida (de quando era moço até o momento em que escreve, quando é velho), ele deduziu que os justos, compassivos, liberais em emprestar e ajudar, etc. tiveram descendentes que (tendo aprendido tal exemplo) nunca precisaram mendigar o pão. A lição é tão clara e simples que até hoje observamos isso na sociedade, quando vemos alguém bem sucedido e damos o crédito de seu sucesso aos pais que o educaram corretamente e deixaram um bom exemplo.
+
+Quem tentar fazer uma comparação desta passagem com os evangelhos, e escolher justamente Lázaro, o mendigo, para isso, estará perdendo de vista o foco da Bíblia que é Jesus. A sublimidade da passagem que diz “nunca vi desamparado o justo” está justamente em perceber a força que ela tem quando comparamos com o que aconteceu com o único realmente justo que já pisou este mundo: Jesus.
+
+Ele foi sim desamparado, e aí sim poderíamos dizer que Davi errou. Jesus gritou &quot;Deus meu, Deus meu, por que me desamparaste?” e isso contradiz cabalmente as palavras ditas por Davi, a menos que a gente entenda que Deus precisou desamparar o Justo &quot;para fazer a sua obra, a sua estranha obra, e para executar o seu ato, o seu estranho ato”. ([Is 28:21](http://bibliaonline.com.br/acf/is/28/21)).
+
+*****

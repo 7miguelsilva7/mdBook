@@ -1,0 +1,3 @@
+# Por Que Nos Reunimos Somente ao Seu Nome? {#por-que-nos-reunimos-somente-ao-seu-nome}
+
+Esta é uma pergunta feita com freqüência àqueles que se reúnem ao nome do Senhor Jesus. Muitos têm expressado o desejo de que fosse escrito um tratado claro sobre tão importante assunto e, por conseguinte, apresento afetuosamente as considerações abaixo a todos os amados filhos de Deus. A primeira razão de nos reunirmos somente ao Seu nome é:

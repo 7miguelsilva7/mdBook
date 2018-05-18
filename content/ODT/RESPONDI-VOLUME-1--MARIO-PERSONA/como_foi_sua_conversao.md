@@ -1,0 +1,21 @@
+# Como foi sua conversão? {#como-foi-sua-convers-o}
+
+Eu não tive o privilégio de conhecer o caminho em minha infância. É claro que ouvia falar de Jesus na missa e minha mãe sempre procurou me guiar dentro daquilo que ela conhecia, ou seja, o catolicismo. Hoje ela também é convertida e reúne-se ao nome do Senhor. [Esta carta foi escrita há alguns anos. Minha mãe faleceu em 2005].
+
+Em 1974 comecei a ler o Novo Testamento, aconselhado por um amigo que até hoje ainda não se converteu. (A última notícia que tive dele é que é espírita e só se alimenta de alimentos não cozidos ou preparados). Mas logo me interessei por livros de ocultismo, espiritismo, filosofia, etc. Em 1975 comecei a me interessar por alimentação macrobiótica e logo estava amarrado na doutrina zen-budista.
+
+Em minha busca pela perfeição do corpo, acabei ficando só pele e osso, não comendo carne e nem alimentos industrializados por cerca de três anos. Quando achava que estava bem equilibrado com o universo, uma pneumonia me trouxe outra vez à realidade. A isso se juntou a morte da cantora Tuca, por causa da macrobiótica, e também de um discípulo do &quot;papa&quot; da macrobiótica no Brasil. Morreu de fome!
+
+Em meio a tudo isso, corria o ano de 1978, e um rapaz na faculdade de arquitetura de Santos, onde eu estudava, começou a me evangelizar. Algum tempo depois já éramos 12 novos convertidos ali e nos reuníamos uma vez por semana na faculdade para estudarmos o evangelho de João. Não se falava de igreja, mas só de salvação. Com mudanças de horários, logo perdi o contato com o irmão que me evangelizou, mas já estava convertido.
+
+Havia me convertido em casa, durante uma madrugada de muita luta e tocado também por um livro que, sem querer, tinha comprado: &quot;A Agonia do Grande Planeta Terra&quot; de Hal Lindsey. Digo que comprei “sem querer”, pois quando fui a uma livraria comprar livros de discos voadores (“Provas” de Erick Von Daniken), encontrei este livro ao lado do livro que tinha ido comprar. Comprei os dois. O que tinha ido comprar tinha um capítulo inteiro de “provas” contra a Bíblia, querendo demonstrar que não passavam de lendas de povos ignorantes. O outro era de profecias bíblicas e mostrava o destino deste mundo e, evidentemente, daqueles que não creem. Este me impressionou. Não era uma livraria evangélica e nem vendia livros evangélicos. De algum modo, Deus colocara aquele livro ali.
+
+Na noite de minha conversão rasguei mais de duzentos livros de filosofia, magia, espiritismo, xintoísmo, zen-budismo e um montão de ismos. Até o Bhaghavad Gita, que comprei dos Hare-Krishna, eu piquei. Aquilo tudo nunca havia trazido paz ao meu coração, mas apenas inchavam meu ego querendo fazer parecer que a salvação dependia de mim e colocando o Senhor Jesus no mesmo nível de homens como Buda e outros. Aquelas doutrinas e filosofias foram minha &quot;droga&quot; e eu estava me livrando dela.
+
+Mas o inimigo não desistiu e, embora convertido, era totalmente ignorante da Palavra de Deus. Com isso conheci alguns da seita &quot;Meninos de Deus&quot; que tentaram me atrair para o grupo. Como eu falava inglês, um deles me deu alguma literatura em inglês, de circulação interna e reservada só aos membros do grupo (certamente ele não sabia inglês e não viu o que era). Logo vi que tudo girava em torno de sexo e pregava a prostituição como forma de se ganhar adeptos.
+
+Na minha simplicidade, comecei a ir às missas todos os domingos, convertido a Cristo, porém sem entendimento. Depois de um ano lendo a Bíblia e a doutrina católica, abandonei definitivamente aquele sistema e comecei a me reunir com os batistas, até entender que Deus não criou nenhuma denominação. Em outubro de 1980 comecei a partir o pão em comunhão com os irmãos reunidos somente ao nome do Senhor.
+
+Bem, acredito que esta &quot;biografia&quot; lhe dará uma ideia da obra da graça de Deus para comigo. Ele tirou-me das garras de Satanás, de onde eu nunca conseguiria sair por meus próprios meios. Entristeço-me ao ver que alguns dos que trilharam comigo o caminho da filosofia oriental, quando ficaram decepcionados (pois todos ficam, cedo ou tarde) acabaram se encharcando de drogas ou de incredulidade.
+
+*****

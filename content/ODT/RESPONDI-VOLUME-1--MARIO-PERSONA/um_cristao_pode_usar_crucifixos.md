@@ -1,0 +1,15 @@
+# Um cristão pode usar crucifixos? {#um-crist-o-pode-usar-crucifixos}
+
+A Bíblia afirma que maldito era aquele que fosse suspenso no madeiro (cruz), e devemos aceitar isso. Os homens deturparam a mensagem da cruz, fazendo suas pequenas (ou grandes) cruzes como se fossem amuletos para dar boa sorte, proteção, identificação (de que são cristãos), etc.
+
+Porém os significados da cruz na Bíblia são diferentes daqueles que o homem inventou. A cruz era, em princípio, os pedaços de madeira onde criminosos eram mortos. Jesus morreu numa cruz, portanto a cruz passou a ser um emblema da morte de Cristo (leia[Filipenses 2:8](http://bibliaonline.com.br/acf/fp/2/8);[Colossenses 1:20](http://bibliaonline.com.br/acf/cl/1/20);[1 Coríntios 1:18](http://bibliaonline.com.br/acf/1co/1/18)). É também um emblema de vergonha e rejeição ([Lc 9:23](http://bibliaonline.com.br/acf/lc/9/23)).
+
+Mas vamos por partes. Eu não tenho nenhuma cruz na parede de minha casa ou pendurada em alguma corrente, pois a cruz, em si mesma (os pedaços de madeira) foi o instrumento de suplício de meu Salvador. Eu não iria querer pendurar um laço de corda na parede de meu quarto se alguém que eu amo tivesse morrido enforcado. Portanto a cruz, como objeto de madeira, foi o instrumento de suplício onde Jesus morreu.
+
+Porém, as Escrituras, conforme as passagens acima, mostram que a palavra &quot;cruz&quot; significa a obra de Cristo em sua totalidade; seu sacrifício levando nossos pecados. Então, quando digo que devemos nos lembrar da cruz, não quer isto dizer que devemos nos lembrar do instrumento de madeira, mas do sacrifício do Senhor. Da mesma maneira, na cruz ele foi rejeitado pelo homem e por Deus ([Sl 22](http://bibliaonline.com.br/acf/sl/22)). Portanto, posso pensar na cruz (não no instrumento de madeira) como uma posição de rejeição. Dizer que devemos levar a cruz de Cristo significa dizer que devemos tomar o lugar de rejeição e afronta que ele ocupou aqui neste mundo.
+
+A &quot;cruz de Cristo&quot;, no sentido de sacrifício de Cristo é o único meio de salvação para o homem pecador. Porém a cruz, o instrumento de madeira, nada pode fazer pelo pecador, por ser apenas um instrumento de suplício e maldição, assim como é uma forca, uma guilhotina ou uma cadeira elétrica. Ao ser levado ao madeiro, Cristo foi feito maldito; ali ele foi considerado pelo homem como um horrível criminoso que merece a morte por seus crimes. Quando lemos a notícia de alguém que foi, por exemplo, executado numa cadeira elétrica nos países onde há pena de morte, a notícia sempre vem acompanhada dos horríveis crimes que tal pessoa cometeu. Assim, um viajante que passasse por Jerusalém naquele dia e visse Cristo na cruz logo o consideraria como algum criminoso amaldiçoado.
+
+Porém, o pior ainda estava por vir, quando Cristo foi considerado maldito não apenas por homens, mas pelo próprio Deus. Na cruz Cristo foi feito pecado por nós ([2 Co 5:21](http://bibliaonline.com.br/acf/2co/5/21)), portanto, tornou-se algo com que o próprio Deus não podia ter comunhão. Ele foi feito culpado para que pudéssemos ter nossa dívida paga.
+
+*****

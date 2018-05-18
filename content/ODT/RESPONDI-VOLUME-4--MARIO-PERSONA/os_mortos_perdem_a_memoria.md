@@ -1,0 +1,17 @@
+# Os mortos perdem a memória? {#os-mortos-perdem-a-mem-ria}
+
+Você escreveu que conhece todas as passagens que falam de pessoas conscientes no pós-morte, referindo-se ao que escrevi em “Vamos reconhecer as pessoas no céu?” e “Existe consciência no pós-morte para os que não foram salvos?”.
+
+Sua dúvida está em [Eclesiastes 9:5](http://bibliaonline.com.br/acf/ec/9/5) “ Porque os vivos sabem que hão de morrer, mas os mortos não sabem coisa nenhuma, nem tampouco terão eles recompensa, porque a sua memória jaz no esquecimento”.
+
+Todos os outros textos revelam o que acontece após a morte do ponto de vista divino, e alguns até mesmo abrem uma cortina para enxergarmos o além, como é o caso do rico e Lázaro e também das passagens de Apocalipse . Este em [Eclesiastes 9](http://bibliaonline.com.br/acf/ec/9) revela qual é a visão humana das coisas. Assim é todo o livro de Eclesiastes, onde o ponto de vista é “debaixo do sol”, ou seja, neste mundo. Portanto é perfeitamente normal que alguém que veja um morto sendo enterrado deduza (do ponto de vista das coisas debaixo do sol) que para aquela pessoa tudo está acabado. Ele não tem mais qualquer relação com as coisas desta vida, ele esquecerá e será esquecido.
+
+É sempre útil entendermos o caráter de cada livro da Bíblia, quando foi escrito e para quem. Por exemplo, ao ler Hebreus, você percebe que foi escrito para os cristãos “hebreus” ou judeus. Por isso existe tanta referência aos rituais judaicos e tanta insistência para que os cristãos hebreus deixassem aquelas coisas.
+
+Quando você lê o evangelho de Mateus percebe que é o que mais fala do Antigo Testamento, tipo “como disseram os profetas” ou coisa assim. Aí você vai pesquisar e descobre que é o único livro do Novo Testamento que foi escrito em aramaico (o judeu popular dos tempos de Jesus) e que a genealogia de Cristo ali começa em Davi (na verdade, em Abraão, mas com foco em Jesus, “Filho de Davi”), ao contrário de Lucas onde a genealogia de Jesus é traçada até Adão. Mais uma vez vemos um livro escrito com uma mensagem especial aos judeus, para provar a eles que Jesus era Messias e Rei.
+
+Assim é com os livros da Bíblia. Atos por exemplo, não é um livro de doutrinas, mas de Atos ou práticas dos apóstolos, certas ou erradas. Não é tudo que está ali que deve ser imitado, pois os apóstolos também cometeram erros. Ao ler Jó você precisa filtrar o que os três amigos de Jó dizem, porque eles falam de sabedoria humana e não divina. Não podemos pegar um versículo do que eles estão dizendo e afirmar que aquilo é a vontade de Deus, porque não é. São palavras de homens registradas na Palavra de Deus, do mesmo modo como a Palavra de Deus registrou palavras de homens infiéis em muitas partes. A dificuldade é que o que os amigos de Jó dizem soa muito bonito e está bem alinhado com as religiões e filosofias humanas, daí podermos ficar confundidos.
+
+Voltando a Eclesiastes, lembre-se de que é um livro escrito do ponto de vista humano de enxergar as coisas (“debaixo do sol”). Neste ponto Eclesiastes é bem parecido com Provérbios. Este mostra um ensino que é bom para todo homem, salvo ou não, pode viver neste mundo da melhor maneira possível. Eclesiastes é como se dissesse que, mesmo vivendo do jeitinho de Provérbios, ainda assim sua vida não fará muito sentido “debaixo do sol”. Perceba que ambos servem até para um incrédulo, mas estão anos luz do que vemos revelado em outros livros, principalmente na doutrina dos apóstolos (epístolas).
+
+*****

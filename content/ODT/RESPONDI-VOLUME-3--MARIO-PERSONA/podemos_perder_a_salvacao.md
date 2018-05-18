@@ -1,0 +1,23 @@
+# Podemos perder a salvação? {#podemos-perder-a-salva-o}
+
+Você escreveu: “Minha dúvida está no [versículo 11](http://bibliaonline.com.br/acf/ap/3/11) de [Apocalipse 3](http://bibliaonline.com.br/acf/ap/3) que diz: ‘Guarda o que tens, para que ninguém tome a tua coroa.’ Eu fiquei realmente sem saber explicar. Como não se perde a Salvação se encontramos o Senhor dizendo para tomar cuidado para que ninguém roube nossa coroa?”.
+
+A passagem é de uma mensagem dirigida a uma igreja, Filadélfia, não especificamente a uma pessoa. No que diz respeito ao indivíduo, embora não podemos perder a salvação podemos perder muitas coisas associadas a ela, como, por exemplo, o galardão ou prêmio. Além de salvos, seremos recompensados pelo Senhor no céu conforme aquilo que fizermos aqui em nome dele e para ele. É o que diz em [1 Coríntios 3](http://bibliaonline.com.br/acf/1co/3):
+
+([1 Co 3:12-15](http://bibliaonline.com.br/acf/1co/3/12-15)) — “E, se alguém sobre este fundamento formar um edifício de ouro, prata, pedras preciosas, madeira, feno, palha, a obra de cada um se manifestará; na verdade, o Dia a declarará, porque pelo fogo será descoberta; e o fogo provará qual seja a obra de cada um. Se a obra que alguém edificou nessa parte permanecer, esse receberá galardão. Se a obra de alguém se queimar, sofrerá detrimento; mas o tal será salvo, todavia como pelo fogo”.
+
+Você escreveu: “Como explicar esta passagem de [Hebreus 6:4-6](http://bibliaonline.com.br/acf/hb/6/4-6)?”.
+
+“Porque é impossível que os que já uma vez foram iluminados, e provaram o dom celestial, e se tornaram participantes do Espírito Santo, e provaram a boa palavra de Deus, e as virtudes do século futuro, E recaíram, sejam outra vez renovados para arrependimento; pois assim, quanto a eles, de novo crucificam o Filho de Deus, e o expõem ao vitupério”.
+
+A passagem refere-se aos judeus (lembre-se de que a carta é aos cristãos hebreus e trata principalmente da necessidade que tinham de abandonar as velhas práticas do judaísmo). Os judeus foram iluminados (a Luz andou com eles), provaram o dom celestial (foram privilegiados com milagres, pães multiplicados, etc.), se tornaram participantes do Espírito Santo (lembre-se de que até Judas fazia milagres com os outros discípulos), e provaram a boa palavra de Deus (o Verbo de Deus andou com eles), e as virtudes ou poder do século futuro e recaíram, isto é, rejeitaram o Filho de Deus. Não há arrependimento para quem passou por tudo aquilo e mesmo assim não creu. Repare que em nenhum momento diz que eles creram. Portanto não trata do crente em Jesus, mas dos judeus que tiveram todos esses privilégios e viraram as costas para Cristo.
+
+Você escreveu: “[1 João 3:4-10](http://bibliaonline.com.br/acf/1jo/3/4-10) fala que o crente não comete pecado. Como pode ser isso? Se pecar perde a salvação?”.
+
+“Qualquer que comete pecado, também comete iniquidade; porque o pecado é iniquidade. E bem sabeis que ele se manifestou para tirar os nossos pecados; e nele não há pecado. Qualquer que permanece nele não peca; qualquer que peca não o viu nem o conheceu. Filhinhos, ninguém vos engane. Quem pratica justiça é justo, assim como ele é justo. Quem comete o pecado é do diabo; porque o diabo peca desde o princípio. Para isto o Filho de Deus se manifestou: para desfazer as obras do diabo. Qualquer que é nascido de Deus não comete pecado; porque a sua semente permanece nele; e não pode pecar, porque é nascido de Deus. Nisto são manifestos os filhos de Deus, e os filhos do diabo. Qualquer que não pratica a justiça, e não ama a seu irmão, não é de Deus”.
+
+No [capítulo 1](http://bibliaonline.com.br/acf/1jo/1) da mesma carta diz que quem disser que não tem pecado mente, portanto é preciso entender que devem se tratar de duas coisas diferentes, ou a Palavra de Deus estaria se contradizendo. A chave está aqui:
+
+([1 João 3:9](http://bibliaonline.com.br/acf/1jo/3/9)) “Todo o que é nascido de Deus não peca, porque o germe divino reside nele; e não pode pecar, porque nasceu de Deus”. (a tradução assim é mais fácil de entender). Quando você nasce de novo recebe de Deus uma nova natureza que é divina. É a vida eterna que agora você tem porque é nascido de Deus. Essa nova natureza não pode melhorar porque é perfeita, mas você continua com sua velha natureza, que às vezes é chamada de velho homem ou carne, a qual também não pode melhorar. Portanto você tem duas naturezas agora, uma que peca e outra que é impossível pecar. Quando for para o céu só vai com a segunda, porque a primeira já foi condenada na cruz em Cristo.
+
+*****

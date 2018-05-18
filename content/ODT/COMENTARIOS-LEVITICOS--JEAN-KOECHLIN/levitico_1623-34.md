@@ -1,0 +1,7 @@
+# Levítico 16:23-34 {#lev-tico-16-23-34}
+
+([16:23-34](http://bibliaonline.com.br/acf/lv/16/23-34) )
+
+Veja quão grande e complexo para o sumo sacerdote e seus filhos era o trabalho necessário para tirar os pecados. E todo esse serviço era eficaz apenas por um ano. Na verdade, a fonte dos pecados, o coração do homem, não era purificada, e este coração maligno não deixaria de produzir ações más ao longo do novo ano. Era sempre necessário repetir novamente estes sacrifícios. O sumo sacerdote passava seu ofício de pai para filho, “porque, pela morte, foram impedidos de permanecer&quot; ([Hb 7:23-25](http://bibliaonline.com.br/acf/hb/7/23-25)). Tudo era feito cuidadosamente e tudo nos fala da perfeição da obra de Deus.
+
+Quão maior é a obra de Cristo em toda a sua realidade, em toda a sua abrangência, exigindo Seu próprio sacrifício! Para tirar o pecado do mundo e anular todas as suas consequências, mas também para alcançar sua fonte - o coração do homem - e purificá-lo, Jesus estava completamente só. Ninguém tem a menor participação em Sua obra. O que o povo fazia durante esta grande obra do sumo sacerdote? Não podiam e não faziam nada além de afligir sua alma. A seu favor, uma obra foi realizada e sobre essa obra eles descansaram. Isso também é tudo que temos que fazer! Repousar sobre a obra plenamente suficiente e perfeita do Senhor Jesus.

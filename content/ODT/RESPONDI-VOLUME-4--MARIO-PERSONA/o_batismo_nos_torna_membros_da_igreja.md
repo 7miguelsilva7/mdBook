@@ -1,0 +1,21 @@
+# O batismo nos torna membros da Igreja? {#o-batismo-nos-torna-membros-da-igreja}
+
+Você escreveu que “ não se introduz uma pessoa que não se arrependeu no meio Cristão. Para participar do corpo de Cristo é necessário arrependimento (e pra isso precisa crer), e, portanto, o fato de batizar uma criança não a insere no corpo de Cristo” .
+
+É preciso entender que o “meio cristão” não significa exatamente salvação. Uma pessoa que professe ser cristão e tenha sido batizada está no “meio cristão”, ou cristandade. Você não pode questionar isso. Ainda que seja joio no meio do trigo, não é o homem quem determina quem é joio e quem é trigo. O Senhor conhece os que são seus. Você não pode chamar alguém assim de pagão, pois é um cristão no sentido exterior da palavra.
+
+Todavia, mesmo que uma pessoa seja cristã nominal, batizada, professante, praticante etc. ela pode nunca ter sido salva pela fé no sangue de Jesus. Não há salvação no batismo ou na mera profissão (de boca). A salvação é só pela fé no Senhor Jesus e no seu sangue derramado para expiação de nossos pecados. O batismo só salva no sentido de separação (algo parecido com a “santificação” de [1 Coríntios 7:14](http://bibliaonline.com.br/acf/1co/7/14)), mas não no sentido de salvação da alma eternamente. Assim, mesmo que alguém seja batizado, seja membro de uma “igreja” no sentido de denominação religiosa (o que não tem respaldo bíblico) e professe crer publicamente, se não creu realmente em seu coração essa pessoa não é membro do corpo de Cristo, não tem o Espírito de Cristo e não está salva.
+
+O processo é o seguinte: considerando que somos incapazes de crer por nós mesmos (afinal, não há quem busque a Deus, não há nenhum sequer), é preciso que o Espírito de Deus faça uma obra em nós. Ele então enche essa pessoa da sua Palavra (como os servos encheram os cântaros de água), e dá vida à pessoa através do novo nascimento (pois não é possível alguém espiritualmente morto entender ou crer, e ninguém nasce de vontade própria, mas da vontade de outra pessoa). Ao receber vida essa pessoa está apta para crer. Neste processo Deus irá operar nela também o arrependimento que vem de Deus, diferente do arrependimento de Caim ou Judas, que é o arrependimento que vem do homem.
+
+Sim, você tem razão ao dizer que ao batizar uma criança isso não faz dela parte do corpo de Cristo. Porém você já não pode dizer que se trate de uma criança pagã. Ela traz agora sobre si o nome de Jesus, o que inclusive aumenta sua responsabilidade quando passar a ter entendimento. Infelizmente o mundo religioso associa o batismo à introdução de alguém na igreja ou corpo de Cristo por considerar “igreja” uma organização religiosa tipo denominação. O problema não está na definição de batismo, mas na definição do que é a Igreja, o corpo de Cristo, uma verdade praticamente perdida entre muitos cristãos.
+
+É importante entender ainda que o batismo é algo essencialmente relacionado ao indivíduo. É inegável que existam diferentes opiniões quanto ao modo de batizar ou à idade do batizando, e são opiniões de pessoas sinceras que, de uma parte ou de outra, apontam razões bíblicas para essa ou aquela forma. Em momento algum isso devia ser motivo de divisão entre os cristãos, algo do tipo criar uma facção dos que batizam crianças e outra dos que batizam apenas adultos.
+
+Por esta mesma razão não pretendo continuar este assunto com você, pois você tem suas próprias convicções sobre o assunto e não é meu papel aqui mudá-las. Como meu tempo é pouco, prefiro dedicá-lo àquelas pessoas que têm dúvidas sinceras sobre a salvação e outros assuntos que as afligem, do que debater opiniões. Tenho adotado o hábito de responder a perguntas, mas não de debater meramente pelo prazer do debate, naquilo que na Bíblia aparece como “ contenda de palavras” .
+
+([Tt 3:9](http://bibliaonline.com.br/acf/tt/3/9)) “ Mas não entres em questões loucas, genealogias e contendas e nos debates acerca da lei; porque são coisas inúteis e vãs”.
+
+([Fp 3:15](http://bibliaonline.com.br/acf/fp/3/15)) “ Todos nós que alcançamos a maturidade devemos ver as coisas dessa forma, e se em algum aspecto vocês pensam de modo diferente, isso também Deus lhes esclarecerá”.
+
+*****

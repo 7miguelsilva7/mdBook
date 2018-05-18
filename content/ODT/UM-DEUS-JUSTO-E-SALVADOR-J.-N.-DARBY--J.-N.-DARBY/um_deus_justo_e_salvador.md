@@ -1,0 +1,9 @@
+# UM DEUS JUSTO E SALVADOR {#um-deus-justo-e-salvador}
+
+&quot;Anunciai, e chegai-vos, e tomai conselho todos juntos: quem fez ouvir isto desde a antiguidade? Quem desde então o anunciou? Porventura não sou eu, o Senhor? E não há outro Deus senão eu; Deus JUSTO E SALVADOR não há fora de mim.&quot; [Isaías 45:21](http://bibliaonline.com.br/acf/is/45/21)
+
+Todas as pessoas têm um certo conhecimento do bem e do mal; tal coisa elas dizem ser boa e tal coisa má. Mas talvez não existam duas pessoas que possuam exatamente o mesmo padrão do que seja bem e do que seja mal. O que as pessoas fazem é estabelecer um tal padrão do bem que possa incluir a elas próprias, e um tal padrão de mal que as exclua, e inclua outras.
+
+Por exemplo, o alcoólatra acha que não há muito mal em beber, mas poderia considerar um grande pecado roubar. O ambicioso, que talvez pratique todos os dias alguma fraude ou algum desfalque &quot;no mundo dos negócios&quot;, procura justificar-se com o pensamento de que é necessário e normal agir assim nos negócios, &quot;e, para todos os efeitos, não fico bêbado ou praguejo e blasfemo como os outros fazem&quot;, diz ele.
+
+Aquele que é imoral se orgulha de ser generoso e ter um bom coração para com os outros, ou, como se costuma dizer, &quot;não faz nenhum mal aos outros, exceto a si mesmo.&quot; O homem honesto, moral, amável e cuidadoso para com sua família, satisfaz a si próprio fazendo o que ele chama de seu dever, e olha ao seu redor e se compadece dos pecadores declarados que vê; mas nunca considera quantos pensamentos maus, quantos desejos pecaminosos já produziu seu coração, mesmo que desconhecidos dos outros. Porém Deus julga o coração, apesar de o homem enxergar apenas a conduta exterior. Assim, cada um se compraz por não estar fazendo algum tipo de mal, e se compara sempre a alguém que tenha cometido algum pecado que ele acha haver conseguido evitar.

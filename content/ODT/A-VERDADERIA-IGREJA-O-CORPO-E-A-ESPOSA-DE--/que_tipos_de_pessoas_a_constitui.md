@@ -1,0 +1,3 @@
+# Que tipos de pessoas a constitui? {#que-tipos-de-pessoas-a-constitui}
+
+Uma só: é formada de pecadores salvos, quer sejam judeus ou gentios, dos que se arrependeram diante de Deus das suas obras más e , pela fé, creram no Senhor Jesus Cristo como seu Salvador, sendo logo selados pelo Espírito Santo ( [Atos 20:21](http://bibliaonline.com.br/acf/atos/20/21); [2 Cor. 1:22](http://bibliaonline.com.br/acf/2co/2/22); [Ef 1:13-14](http://bibliaonline.com.br/acf/ef/1/13-14)).

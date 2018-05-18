@@ -1,0 +1,13 @@
+### O Apóstolo Matias {#o-ap-stolo-matias}
+
+Matias - o apóstolo eleito para ficar no lugar do traidor Judas. Ele não era um apóstolo da primeira eleição - isto é, ele não tinha sido imediatamente chamado e escolhido pelo próprio Senhor. É mais do que provável que ele era um dos setenta discípulos, e que tenha sido um acompanhante constante do Senhor Jesus durante todo o curso de seu ministério. Isto era uma qualificação necessária, conforme declarado por Pedro, para alguém que deveria ser uma testemunha da ressurreição. Até onde sabemos, o nome de Matias não aparece em nenhum outro lugar no Novo Testamento.
+
+De acordo com algumas tradições antigas, ele pregou o evangelho e sofreu o martírio na Etiópia, e outros acreditam que isto ocorreu na Capadócia. Assim permitiu-se que os grandes fundadores da igreja passassem da Terra para o Céu sem que uma caneta confiável narrasse seus trabalhos - seus últimos dias - suas últimas palavras, ou mesmo o lugar de descanso de seus corpos. Mas todos serão narrados no Céu, e serão guardados em uma memória eterna. Quão maravilhosos são os caminhos de Deus, e quão contrários aos caminhos dos homens!
+
+O modo pelo qual este apóstolo foi eleito foi por sorteio - um antigo costume judaico. As sortes foram colocadas em uma urna e o nome de Matias foi retirado e, desse modo, ele foi o apóstolo escolhido por Deus. “E apresentaram dois: José, chamado Barsabás, que tinha por sobrenome o Justo, e Matias. E, orando, disseram: Tu, Senhor, conhecedor dos corações de todos, mostra qual destes dois tens escolhido, para que tome parte neste ministério e apostolado, de que Judas se desviou, para ir para o seu próprio lugar. E, lançando-lhes sortes, caiu a sorte sobre Matias. E por voto comum foi contado com os onze apóstolos.” ([Atos 1:23-26](http://bibliaonline.com.br/acf/atos/1/23-26)). O modo solene com o qual o sorteio foi realizado foi considerado como uma forma de se referir à decisão de Deus. “E Arão lançará sortes sobre os dois bodes; uma pelo Senhor, e a outra pelo bode emissário.” “A sorte se lança no regaço, mas do Senhor procede toda a determinação.” ([Levítico 16:8](http://bibliaonline.com.br/acf/lv/16/8); [Provérbios 16:33](http://bibliaonline.com.br/acf/pv/16/33)). Os apóstolos, é bom lembrar, ainda não tinham recebido o dom do Espírito Santo. O sorteio nunca mais foi repetido após o dia de Pentecostes.
+
+Veja William CAVE, Lives o f the Apostles [A vida dos apóstolos]; Edward BURTON, Lectures upon the Ecclesiastical History, [Palestras sobre história eclesiástica]; William SMITH, Smith’s Bible Dictionary.↩
+
+Veja William CAVE, Lives of the Apostles.↩
+
+Veja Introdução ao Novo Testamento de Horne.↩
