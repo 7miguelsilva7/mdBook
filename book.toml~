@@ -1,0 +1,13 @@
+[book]
+
+title = 'QUAL O TEU DESTINO?'
+authors = ['DIVERSOS']
+
+multilingual = false
+src = 'src'
+
+
+[output.html]
+additional-js = ['custom.js']
+
+

@@ -1,0 +1,13 @@
+# O QUE SIGNIFICA “CRER”? 
+
+MEU AMIGO, há multidões que creem no que ouvem acerca de Cristo e do Evangelho, mas que nunca creram confiadamente no Senhor Jesus.
+
+Talvez você diga: “O que quer dizer? Não me parece haver muita diferença”. Pelo contrário, existe uma diferença da máxima importância. Suponhamos que eu esteja a passear com um amigo numa das ruas principais de alguma grande cidade. O meu amigo me diz: “Você vê aquele grande edifício na esquina, com uma tabuleta de metal?” Respondo afirmativamente. “Bem; é ali que fica o maior especialista em doenças do coração. Vêm doentes de todos os pontos do país para consultarem com ele. Os seus êxitos têm sido grandes e numerosos.” Nesta altura, o famoso médico sai do edifício e entra em seu carro, pelo que tenho oportunidade de vê-lo.
+
+Felizmente, o meu coração funciona muito bem. Acredito em tudo o que meu amigo me informou acerca do médico, mas a informação não tem para mim importância pois não necessito dos seus serviços clínicos.
+
+Suponhamos, porém, que poucas semanas depois desta conversa, eu adoeça de repente, com forte crise cardíaca. Lembro-me logo daquele médico; mando chamá-lo e coloco-me sem reserva em suas mãos, recuperando assim a saúde. Agora já conheço o médico; conheço a sua perícia, e quando falo dele, é com ânimo, pois estou grato por aquilo que me fez. Em resumo: entreguei o meu caso ao médico e descansei confiando em sua sabedoria e capacidade; enquanto que antes apenas acreditava no que ouvira acerca dele.
+
+Vamos ainda supor que o leitor e eu estamos passeando à beira mar, num lindo dia de verão. Vemos na praia um barco salva-vidas. Admiramos a sua construção forte, as suas linhas elegantes e o equipamento e condições que possui para salvar vidas. Em resumo, acreditamos em tudo quanto ao barco. Mas não necessitamos ser por ele socorridos, pois não nos encontramos em perigo de morrer afogados. Mas suponhamos que, seis meses depois, nos encontramos no convés de um navio prestes a afundar, e nossa única esperança de sermos salvos de morrer afogados é aquele barco salva-vidas. Que diferença em nossa atitude para com esse barco, quando o vemos se aproximar, tripulado por homens dedicados e corajosos. Com que grande alívio entramos nele e somos salvos! Não só acreditamos o que ACERCA dele nos consta, mas agora depositamos NELE a nossa confiança.
+
+Em 1859 o célebre francês Blondon atravessou as Cataratas do Niágara andando sobre um cabo esticado e, depois, ofereceu-se para tornar a fazer a travessia com qualquer pessoa às costas. Muitos acreditaram que ele era bem capaz de o fazer sem perigo algum, mas houve apenas um homem que aceitou o convite.
