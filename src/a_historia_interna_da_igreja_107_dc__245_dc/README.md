@@ -1,1 +1,0 @@
-# A História Interna da Igreja (107 d.C. – 245 d.C.) 

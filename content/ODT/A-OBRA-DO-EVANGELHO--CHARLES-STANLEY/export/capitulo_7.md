@@ -1,0 +1,67 @@
+# CAPÍTULO 7 {#cap-tulo-7}
+
+Pregando em Londres
+
+Naquela época eu estava acostumado a pregar com frequência em Londres. Mencionei a alguns irmãos que tinha em meu coração usar o Myddelton Hall, em Islington, para uma semana de pregações. Alguns duvidaram que fosse possível, mas muitos corações elevaram-se a Deus em oração. Foi tudo feito em dependência de Deus. Eu não tinha nada organizado ou preparado e nem ideia dos temas que iria pregar. O salão ficou cheio todas as noites. Foram apresentados muitos pedidos escritos de oração para pessoas queridas.
+
+Algo bem solene ocorreu certa noite. Assim que começamos, alguém chegou trazendo um pedido de oração a favor de uma senhora, de uma família mundana, que estava morrendo sem Cristo. O Sr. G., agora já com o Senhor, acompanhou o mensageiro, enquanto nos ajoelhávamos em solene e fervorosa oração. Ele encontrou a pobre senhora em meio ao maior luxo e extravagância que este mundo pode produzir. Mas não havia ninguém ali que conhecesse a Cristo, ou que pudesse falar alguma palavra a uma alma aflita prestes a passar da alta sociedade londrina para as trevas exteriores e o eterno padecer. Deus respondeu às orações. Ele abriu o coração daquela pobre senhora para receber a palavra da vida e ela foi salva eternamente.
+
+Um sentimento extremamente solene desceu sobre a reunião. Pudemos todos sentir a eternidade bem perto de nós. Pedimos para aqueles que estivessem angustiados que passassem para uma antessala. Em poucos minutos ela estava lotada. Que cena maravilhosa aqueles jovens e velhos, ricos e pobres, com os olhos marejados e aparência ansiosa, perguntando o que deveriam fazer para serem salvos. Fomos obrigados a voltar ao salão principal e, enquanto alguns buscavam o Senhor em oração silenciosa, outros falavam às almas angustiadas. O interesse parecia se aprofundar a cada noite; o grande salão estava sempre bem cheio. Só o Senhor sabe quantos foram os que passaram da morte para a vida.
+
+Pregando na John Street
+
+Por volta dessa época fui convidado por B. N. para pregar na capela da John Street por três noites. O assunto era a justiça de Deus em justificar o pecador. Após a pregação, convidamos os que estavam angustiados para que se dirigissem à sala de aulas adjacente. Cerca de 200 pessoas entraram. Era impossível conversar com cada uma delas individualmente. Eu estava muito exausto para continuar falando e, por isso, o Sr. N. tomou a palavra, enfatizando o assunto com a mais doce simplicidade. Aquilo era algo notável, pois segundo me haviam dito, ele tinha uma opinião diferente sobre o assunto. No entanto ali explicava com grande clareza em como Deus era Justo em justificar, através da morte e ressurreição de Cristo, o pecador que nele crê.
+
+Quero frisar um pouco isto para mostrar que a pregação não tinha, de modo algum, um caráter de reavivamento. Na verdade, como disse o Sr. N. a um amigo, tratava-se mais de estudos sobre a Divindade. Estou cada vez mais convencido de que é este o tipo de pregação necessária; não de excitação, mas de uma explanação clara do evangelho de Deus.
+
+O Velho &quot;Filho Pródigo&quot;
+
+Após as palestras do Sr. N., conversamos com algumas pessoas e depois encerramos. Nunca me esquecerei de um caso; um idoso cavalheiro, alto e refinado, com cerca de setenta anos de idade, que há muito tempo estava aprisionado por trevas desesperadoras. Eu estava falando do profundo gozo de Deus em receber o filho pródigo. O trabalho do pastor já havia sido feito; Ele havia buscado e morrido pela ovelha. O Espírito já tinha descido do céu para buscar e encontrar o perdido, como fez a mulher, varrendo todo o chão em busca de sua moeda de prata que estava perdida. E agora o Pai em justiça e graça podia encontrar e receber; podia beijar e vestir o filho pródigo. Escutei um profundo suspiro vindo daquele velho nobre — ou que fora um nobre no passado. Ele falou:
+
+— Gastei tudo. Gastei minha saúde, minha fortuna, todo conforto, esposa, filhos, tudo se foi; aqui estou, mergulhado em pecado e miséria.
+
+É impossível descrever a agonia e tristeza daquele velho homem. Colocamos o evangelho diante dele e confiamos na graça de Deus, a qual resplandeceu em sua alma imersa em trevas. Onde estará ele agora?
+
+Há muitos que professaram haver encontrado paz. Porém prefiro considerar que o Senhor usou aquelas três pregações especialmente para muitos que já eram filhos de Deus. Naquela época recebi convites para pregar nas grandes capelas de Londres, mas senti-me mais guiado a pregar em salões públicos, salas de reuniões, etc.
+
+Nos Condados do Oeste
+
+Tentarei agora descrever uma semana que passei nos condados do oeste. Fui hospedado por uma senhora cristã em Ipswich, após tê-la encontrado em Birmingham. Mal tive tempo de tomar uma xícara de chá após minha chegada de Londres, já que havia uma grande audiência esperando no salão de reuniões, às sete horas daquela noite de sábado. Dirigi-me ao salão, sugeri um hino, mas senti um branco total em minha mente. Não me ocorria nenhum versículo ou pensamento. Ajoelhei-me para orar e, no entanto, continuava um branco em minha memória. Quando me levantei, um versículo surgiu em minha mente, &quot;Portanto agora nenhuma condenação há para os que estão em Cristo Jesus&quot;. ([Rm 8:1](http://bibliaonline.com.br/acf/rm/8/1)) Murmurei: &quot;Senhor, vou ter que falar sobre isto de um jeito ou de outro”. Li os versículos. Aquela noite jamais será esquecida. Anos depois, encontrei uma senhora que me contou que ela, seus irmãos e irmãs receberam bênção naquela noite. Eles eram bem jovens. E muitos outros, principalmente os jovens, foram levados a Deus.
+
+No dia seguinte, dia do Senhor, estávamos pregando no mercado de Needham às duas e meia da tarde. Havia tanta gente que era impossível todos entrarem, e o poder de Deus podia ser sentido. À noite o salão de reuniões em Ipswich ficou lotado. Uma avalanche de pedidos, em favor de parentes, foi enviada para que fossem lidos. À medida que os lia, antes de elevarmos nossos corações em oração, notei um homem idoso perto de mim, com sua cabeça pendida em profunda tristeza. Ele estava cheio de remorso por não haver feito um pedido em favor de sua filha. Logo que acabei de ler os bilhetes com pedidos de oração, vi uma jovem alta tentando abrir caminho em meio à multidão, com o rosto rubro e olhos molhados de lágrimas. Ela aproximou-se do velho senhor e, caindo de joelhos ao seu lado, disse:
+
+— Pai, você não vai orar por mim?
+
+O dia vindouro, tão próximo, irá mostrar os resultados daquela noite. Já era tarde quando pudemos deixar aquelas muitas almas ansiosas. Na noite seguinte o interesse foi também muito grande.
+
+Stowmarket, Norwich e St. Edmunds
+
+na terça-feira, às quatro horas da tarde, tivemos uma reunião no Stowmarket, para oração e comunhão entre os irmãos. Lembro-me bem de uma oração. Um querido cristão de Bury disse:
+
+— Senhor, o teu servo está aqui e não perguntamos a ele se vai a Bury, mas perguntamos a Ti se é para ele ir pregar a Tua Palavra ali.
+
+Aquelas palavras estão tão vivas em minha memória que parece que escutei aquela oração ontem à noite. Usamos um grande galpão, recém-construído para venda de cereais, e às sete ele estava cheio de gente. Vieram de todos os lugares da vizinhança, em carroças, carruagens, charretes, etc. As horas se passaram e o profundo interesse continuava. Se encerrávamos a pregação, todos permaneciam esperando e tínhamos que recomeçar; até que, por fim, o gás da iluminação foi desligado às onze horas aproximadamente. Falei então sobre a vinda do Senhor, com aquela multidão ali no escuro. Era quase meia-noite quando fomos embora. Só Deus conhece os resultados. Muitos professaram haver recebido a salvação. Em muitos casos, não tenho dúvidas, a obra na alma já havia começado antes.
+
+na quarta-feira, às duas horas, uma grande audiência estava reunida no Teatro, o Salão de Conferências de Norwich. E às sete a multidão era tão grande que o salão ficou logo cheio, ficando também dois outros salões completamente lotados. Por volta das nove horas, a multidão que esperava do lado de fora era tão grande que foi preciso que os que já tinham ouvido saíssem, para o salão ser novamente ocupado pelos que esperavam que fosse iniciada nova pregação. Um idoso ministro levantou-se e declarou que nunca havia encontrado paz até àquela noite. Aquilo produziu um sentimento profundo e solene. Podia-se sentir que Deus estava operando por meio do Espírito Santo. Muitos professaram haver sido levados a Cristo naquele dia.
+
+No dia seguinte fui a Bury St. Edmunds. O irmão que havia orado em Stowmarket alugou o grande Salão de Conferências da cidade. No entanto, alguns cristãos queixaram-se de que seria desencorajador ver o grande espaço ocupado apenas pela metade. Às sete já era difícil encontrar um lugar vazio. Ali a Palavra pareceu ter sido especialmente abençoada para alguns, deixando marcas profundas. Havia muitos também que nunca tinham desfrutado da certeza dos pecados perdoados, dos pecados nunca mais levados em conta. Oh, quão bendito é que Deus seja Justo em nos reputar por justos diante dele.
+
+A Direção do Senhor
+
+Quando me lembro daquela semana, costumo dizer: Quem mais, além de Deus, poderia ter dado forças a um pobre e enfraquecido corpo, para atravessar aquela semana de trabalho com apenas um pulmão funcionando? Sem nenhum esforço, mas simplesmente obedecendo o guiar de Seu olhar e a direção do Espírito de Deus, portas de bênção que eu nem conhecia foram abertas de cima, e sempre de maneira diferente umas das outras.
+
+Em outra ocasião, eu me encontrava em Ipswich e tinha em meu coração a forte convicção de que devia ir a Sudbury e pregar a Cristo ali. Mencionei isto a muitos irmãos, mas eles me desencorajaram, com exceção de um irmão. Eu só sabia o nome de uma pessoa naquela localidade. Escrevi-lhe dizendo que gostaria de ir e pregar em um dia determinado. Em minha viagem, passei por Bury e descobri que aquele irmão que havia orado em Stowmarket tinha estado orando por Sudbury por cerca de dois anos. Quanto tem a ver com a obra do Senhor esses irmãos que oram! O irmão disse-me que iria comigo. Darei este exemplo como uma amostra do que aconteceu em muitas cidades que visitei.
+
+Chegamos à estação de Sudbury. Um jovem cavalheiro aproximou-se e perguntou-me se meu nome era Stanley. Respondi que sim. Ele disse-me que sua mãe ficaria contente em nos receber em sua casa, onde já havia alguns esperando pela leitura da Palavra. Encontramos um bom grupo às quatro horas e, evidentemente, eram todos estranhos para nós. Tivemos momentos maravilhosos meditando na Palavra.
+
+Enquanto eu lia, um ministro enviou um recado dizendo que eu poderia usar sua capela para pregar. Respondi que não poderia aceitar tal oferta, a menos que entendesse que teria total liberdade para falar de qualquer coisa que o Senhor me dirigisse a falar. Ele não se opôs. Então avisei que seguiria para lá às sete horas. Fui e encontrei a capela bem cheia. Porém, senti que não deveria pregar nela e senti-me guiado a propor que devíamos sair e ter a pregação ao ar livre. Todos, de boa vontade, concordaram e saímos. Para minha surpresa, já havia um bom grupo reunido lá fora; pessoas que pertenciam à igreja da cidade e que não entrariam naquela capela por considerá-los dissidentes. Preguei ali, ao ar livre para aquela grande congregação, até às dez horas.
+
+Alguém poderá perguntar: Como pôde acontecer aquilo? Como os outros ficaram sabendo? Eu direi. Foi-me contado depois (e tudo o que eu tinha de fazer naquela ocasião era obedecer ao Senhor), que o Sr. H. estivera pregando na igreja da cidade e dissera que eu estava sendo esperado para pregar em Sudbury durante a semana. Ele convidara sua congregação para ouvir-me pregar.
+
+Resultados em Sudbury
+
+Talvez alguém pergunte como é que me hospedava nas diferentes cidades para as quais viajava, embora sendo um estranho àquelas pessoas. Bem, no final da pregação, uma senhora procurou-me e disse-me que um cavalheiro, que não pôde estar ali presente por ter que acompanhar o funeral de um parente em uma cidade distante, havia enviado sua carruagem e rogava que aceitássemos sua hospitalidade, para a glória do Senhor. Viajamos alguns quilômetros e chegamos a uma mansão onde tivemos uma reunião até à meia-noite. De manhã tivemos outra reunião para os muitos empregados da propriedade, voltando depois para Sudbury, onde tivemos uma leitura que durou o dia todo.
+
+Enquanto escrevo isto me vem à mente uma carta, da qual citarei um trecho:
+
+&quot;Você deve se recordar de haver pregado o evangelho das boas novas de Deus em um pedacinho de terra chamado Croft, em Sudbury. Eu estava no meio da multidão e, pela graça e amor do Senhor, fui levado à gloriosa liberdade dos filhos de Deus. Posso agora bendizer e louvar o Senhor por Seu maravilhoso amor a mim demonstrado, ao entregar Aquele que tudo podia fazer — e que tudo fez — por um pobre pecador. Pelo Espírito de Deus você mostrou-me que tudo já havia sido feito pelo Senhor; que Ele havia satisfeito completamente a Deus e que a misericórdia de Deus tinha sido revelada em sua totalidade, quando entregou Seu próprio Filho. Senti-me como se estivesse sendo liberto das influências de Satanás e da escravidão dos homens, feliz por sair do &#039;arraial&#039; e dirigir-me Àquele Ser tão bendito que está fora de todas as pretensões humanas&quot;.

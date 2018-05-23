@@ -1,12 +1,7 @@
 [book]
 
-<<<<<<< HEAD
-title = 'A HISTÓRIA DA IGREJA'
-authors = ['ANDREW MILLER']
-=======
-title = 'QUAL O TEU DESTINO?'
-authors = ['DIVERSOS']
->>>>>>> 315a9b2a7e7be0d5ac95785a1d07e1e093959da9
+title = 'A OBRA DO EVANGELHO'
+authors = ['CHARLES STANLEY']
 
 multilingual = false
 src = 'src'

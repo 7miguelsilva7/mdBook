@@ -1,1 +1,0 @@
-# Islamismo—Iconoclastia (569—741 d.C.) 

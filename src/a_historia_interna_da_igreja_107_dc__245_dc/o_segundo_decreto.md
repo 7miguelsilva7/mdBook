@@ -1,3 +1,0 @@
-### O Segundo Decreto 
-
-Não muito tempo depois que o primeiro decreto tinha sido levado à execução por todo o império, rumores de revoltas na Armênia e Síria, regiões densamente populadas por cristãos, chegaram aos ouvidos do imperador. Essas confusões foram falsamente atribuídas aos cristãos, e proporcionaram um pretexto para um segundo decreto. Insinuava-se que o clero, como líderes dos cristãos, eram particularmente suspeitos nessa ocasião, e o decreto determinou que todos os que eram da ordem clerical fossem lançados na prisão. Assim, em um curto período de tempo, as prisões estavam cheias de bispos, presbíteros e diáconos.

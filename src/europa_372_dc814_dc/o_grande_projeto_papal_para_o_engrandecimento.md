@@ -1,5 +1,0 @@
-### O Grande Projeto Papal para o Engrandecimento 
-
-A difusão do cristianismo nesse século ultrapassou em muito seus anteriores, tanto nos países do Oriente quanto do Ocidente. Vimos alguns de seus triunfos no Ocidente. No Oriente conta-se que os nestorianos trabalharam com incrível afinco e perseverança para propagar a verdade do evangelho na Pérsia, Síria, Índia, e entre as nações bárbaras e selvagens habitantes dos desertos e das costas mais remotas da Ásia. Em particular, o vasto império da China foi iluminado por seu zelo e diligência com a luz do cristianismo. Durante vários séculos sucessivos, o patriarca dos nestorianos enviou um bispo para presidir sobre as igrejas de então na China. Essas interessantes pessoas rejeitaram a adoração de imagens, a confissão auricular, a doutrina do purgatório, e muitas outras doutrinas corruptas das igrejas romana e grega.
-
-A igreja oriental, ou igreja grega, parece ter sido impedida, por causa de dissensões internas, de se preocupar muito com a disseminação do cristianismo entre os pagãos. No Ocidente tudo era atividade mas, infelizmente, não para a disseminação do evangelho ou para a conversão de almas.12
