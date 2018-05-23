@@ -1,0 +1,21 @@
+# SEU SALVADOR OU SEU JUIZ? 
+
+O EVANGELHO proclama o que Deus fez, antes que venha o Dia do Juízo, a fim de que o homem não tenha que responder pelos seus pecados.
+
+Se o meu credor vier exigir o pagamento de uma dívida, e eu não tiver com que pagar, estou perdido; mas se ele vier para quitá-la, fico livre.
+
+Deus não pode aprovar a iniquidade; isso é impossível; mas uma coisa é insistir pelo pagamento de uma dívida, e outra é vir liquidá-la. O Evangelho nos conta o que Cristo fez como Salvador, antes de Sua próxima vinda, então como Juiz.
+
+Na Cruz de Cristo vemos demonstrada ao máximo a inimizade do coração humano; o que nem sempre nos é tão evidente. Logo que encontram uma oportunidade, todos menosprezam o Senhor. Felizmente, pela misericórdia de Deus, Cristo veio para demonstrar a graça divina. A cruz, porém, demonstra também a podridão e o ódio que existem no fundo do coração humano. O mundo crucificou o Filho de Deus!
+
+Agora Deus pode dizer ao mundo: “O que vocês fizeram com meu Filho? O que Ele fez a vocês? Nada senão o bem. Então, por que cuspiram em Seu rosto e O crucificaram?” Se alguém tivesse feito o mesmo ontem à minha mãe, seria possível que hoje eu estivesse disposto a ter amizade com tal pessoa? O homem tem procedido assim, e quando se faz luz em seu espírito, confessa ter agido deste modo e reconhece ser incapaz de justificar a si próprio, mesmo que seja de uma acusação das muitas que pairam sobre si.
+
+O mundo deve sofrer o juízo. Todos nós sabemos que assim será e, no entanto, continuamos de mãos dadas com ele! O que nos diz a lei de Deus? Declara ao homem o que ele deve ser: “Amarás ao Senhor teu Deus com todo o teu coração”; “Não cobiçarás.” Mas bem sei que não tenho amado a Deus, e tenho cobiçado. Portanto, sendo réu em um ponto que seja já não estou isento de culpa, mesmo que não tenha cometido todos os pecados de que o homem é capaz.
+
+Muitos falam de misericórdia, mas o que querem dizer com isto é que têm o desejo de que Deus dê, aos pecados que cometeram, tão pouca importância quanto eles próprios dão. Por exemplo, um homem cometeu dez pecados e espera ir para o Céu. Se tiver cometido onze, julgará que não é muito mau; quando tiver cem pecados em sua conta, ainda há de julgar que Deus o desculpará, pois não conhece a santidade de Deus. Ora, um único pecado basta para nos separar de Deus; porém a porta não se fecha para qualquer um que agora confessar tudo com franqueza. O que é o pecado? Acaso o leitor gosta de fazer a sua própria vontade? Isto é que é pecado.
+
+A lei exigia pagamento da dívida. Cristo veio pagá-la, e é isso a graça! “Deus estava em Cristo reconciliando consigo o mundo, não tomando em conta os seus pecados” ([2 Co 5:19](http://bibliaonline.com.br/acf/2co/5/19)). Volto-me para a Cruz de Cristo: o que Ele está fazendo ali? Julgando o ladrão arrependido? Não, mas “levando Ele mesmo em Seu corpo os nossos pecados sobre o madeiro”, liquidando-os, para que jamais voltem a ser lembrados ([1 Pe 2:24](http://bibliaonline.com.br/acf/1pe/2/24); [Hebreus 10:17](http://bibliaonline.com.br/acf/hb/10/17)).
+
+Lá está Aquele Salvador bendito, a Quem tenho desprezado durante toda a minha vida, e vejo que Ele tomou sobre Si os meus pecados, carregou o meu fardo. “Tudo está consumado” — consumado com absoluta perfeição, nada podendo se acrescentar à Sua obra, pelo que Cristo assentou-Se à destra do trono de Deus. Voltou à glória por haver completado a obra. O Espírito Santo torna isto claro aos nossos corações, e, desse modo, eu posso afirmar que Cristo fez tudo por mim. “O qual por nossos pecados foi entregue, e ressuscitou para nossa justificação” ([Rm 4:25](http://bibliaonline.com.br/acf/rm/4/25)). A ressurreição é a prova de que Deus aceitou a obra, e que nós, também, fomos aceitos ou “feitos agradáveis a Si no Amado” ([Ef 1:6](http://bibliaonline.com.br/acf/ef/1/6)).
+
+Assim, ao invés de afastar a mim, Deus afastou de mim o meu pecado. Veio ao meu encontro no dia da graça, para eu não ter que comparecer perante Ele no dia do Juízo.

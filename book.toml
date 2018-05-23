@@ -1,7 +1,7 @@
 [book]
 
-title = 'Acontecimentos Proféticos'
-authors = ['Bruce Anstey']
+title = 'QUAL O TEU DESTINO?'
+authors = ['DIVERSOS']
 
 multilingual = false
 src = 'src'
@@ -9,5 +9,6 @@ src = 'src'
 
 [output.html]
 additional-js = ['custom.js']
+additional-css = ['book.css']
 
 
