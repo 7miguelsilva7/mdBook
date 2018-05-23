@@ -1,0 +1,11 @@
+### Os Erros dos Historiadores em Geral {#os-erros-dos-historiadores-em-geral}
+
+Alguns historiadores, infelizmente, não levaram em consideração esta triste mistura dos vasos bons e ruins - dos verdadeiros e falsos cristãos. Eles mesmos não eram homens com mentes espirituais. Portanto fizeram, e ainda fazem, de seu objetivo principal, registrar os vários caminhos anticristãos e perversos dos meros professos. Eles se delongam minuciosamente nas heresias que perturbaram a igreja, nos abusos que a desgraçaram, e nas controvérsias que a distraíram. Nós, pelo contrário, nos esforçaremos para perscrutar pelas longas páginas escuras da história em busca da linha prateada da graça de Deus nos verdadeiros cristãos, embora muitas vezes a liga seja tão predominante que o minério puro é quase imperceptível.
+
+Deus nunca deixou a Si mesmo sem um testemunho. Ele sempre manteve Seus amados e queridos, mesmo que ocultos, em todas as eras e em todos os lugares. Nenhum olho a não ser o dEle poderia enxergar os sete mil em Israel que não tinham se curvado à imagem de Baal, nos dias de Acabe e Jezabel. E não há dúvida que dezenas de milhares, mesmo nas épocas mais sombrias do Cristianismo, serão encontrados, afinal, na “gloriosa igreja”, que Cristo apresentará a Si mesmo, no tão esperado dia de Sua alegria nupcial. Muitas pedras preciosas encontradas em meio ao lixo da “idade média” refletirão Sua graça e glória naquele dia sem par.
+
+Que bendito pensamento! Mesmo agora enche a alma de júbilo e deleite. Senhor, apresse aquele dia tão feliz por amor de Teu próprio nome!
+
+Diferente de muitos falsos, os verdadeiros crentes são humildes por instinto. Eles são geralmente reservados, e a maioria são pouco conhecidos. Não há humilhação tão profunda e real como aquela que o conhecimento da graça produz. Tais pessoas modestas e ocultas encontram pouco espaço nas páginas históricas. Mas o convincente e zeloso herege, e o barulhento e visionário fanático, são barulhentos demais para escapar à vista. Por isso, também, que os historiadores vêm recordando tão cuidadosamente os tolos e insensatos princípios e as más práticas de tais homens.
+
+Vamos agora mudar um pouco de assunto, e tomar uma visão geral da primeira parte de nosso assunto: as sete cartas às igrejas da Ásia.

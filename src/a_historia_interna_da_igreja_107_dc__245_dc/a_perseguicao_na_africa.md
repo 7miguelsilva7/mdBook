@@ -1,0 +1,3 @@
+### A Perseguição na África 
+
+Os historiadores dizem que em nenhuma parte do Império Romano o cristianismo tinha criado raízes mais profundas e permanentes do que na província da África. Naquela época, essa região era cheia de ricas e populosas cidades. O tipo africano de cristianismo era totalmente diferente do que era chamado de cristianismo egípcio. O primeiro era mais sincero e apaixonado, e o último era sonhador e especulativo, graças à má influência do platonismo. Tertuliano pertence a este período, e é um verdadeiro exemplo desta diferença; mas veremos mais sobre isso mais adiante. Vamos agora tomar nota de alguns dos mártires africanos.

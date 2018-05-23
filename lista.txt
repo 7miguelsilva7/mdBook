@@ -1,13 +1,11 @@
 atualizar-git.sh
 book
+book.css
 book.toml
-book.toml~
 comandoEmPastas.sh
-comandoEmPastas.sh~
 content
 custom.js
 gerarLivro.sh
-gerarLivro.sh~
 img
 lista.txt
 README.md

@@ -1,7 +1,7 @@
-# acontecimentos-profeticos - Bruce Anstey 
+# A-HISTORIA-DA-IGREJA-ANDREW-MILLER-ANDREW-MILLER 
 
-Acontecimentos Proféticos
+A História da Igreja
 
-Bruce Anstey
+Andrew Miller
 
-2017-05-12T17:00:00+09:00
+2017-07-21T17:00:00+09:00

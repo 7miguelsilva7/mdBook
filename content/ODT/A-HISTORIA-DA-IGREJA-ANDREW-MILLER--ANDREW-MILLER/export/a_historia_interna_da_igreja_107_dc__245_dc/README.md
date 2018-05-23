@@ -1,0 +1,1 @@
+# A História Interna da Igreja (107 d.C. – 245 d.C.) {#a-hist-ria-interna-da-igreja-107-d-c-245-d-c}

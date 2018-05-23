@@ -1,0 +1,3 @@
+### Anastácio e a Mariolatria 
+
+Anastácio, um presbítero que tinha acompanhado Nestório desde a Antioquia, e que era seu amigo íntimo, atacou, em um discurso público, o uso da expressão “Mãe de Deus”, que era aplicada à virgem Maria. O termo então posto em oposição tão violentamente tinha do seu lado a autoridade do uso consagrado pela tradição e muitos nomes de grande peso para com o povo. Nestório aprovou o discurso, apoiou seu amigo, e em vários discursos explicou e defendeu seu ataque. Muitos ficaram satisfeitos com esses discursos, e muitos se despertaram contra Nestório e seu amigo: a agitação em Constantinopla foi imensa, os gritos de “Heresia, heresia!” se ergueram e as chamas de uma grande e dolorosa controvérsia se acenderam.
