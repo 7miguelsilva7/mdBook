@@ -1,0 +1,15 @@
+# Cisternas {#cisternas}
+
+[**Lucas 14:28-30**](http://bibliaonline.com.br/acf/lc/14/28-30)
+
+_Não basta construir torres para vigiar o inimigo; é preciso também cavar cisternas, como fez o rei Uzias, que “construiu torres fortificadas em Jerusalém e... cavou muitas cisternas, pois ele possuía muitos rebanhos na Sefelá e na planície. Ele mantinha trabalhadores em seus campos e em suas vinhas, nas colinas e nas terras férteis, pois gostava da agricultura” (_[_2 Cr 26:9-10_](http://bibliaonline.com.br/acf/2cr/26/9-10)_). Algumas traduções trazem a palavra “poços”, mas a passagem realmente fala de “cisternas” ou reservatórios de água._
+
+Efésios [5:26](http://bibliaonline.com.br/acf/ef/5/26) diz que Cristo purificou sua Noiva, a Igreja, “_pelo lavar da água mediante a palavra”_, e em várias outras passagens a água aparece como figura da Palavra de Deus. Costumamos instalar fechaduras, travas e alarmes para vivermos seguros, mas quem poderia pensar que é cavando “_muitas cisternas”_ que podemos “_ficar firmes contra as ciladas do diabo”_ ([Ef 6:11](http://bibliaonline.com.br/acf/ef/6/11))? “_Guardei no coração a tua palavra para não pecar contra ti”_, diz o Salmo [119:11](http://bibliaonline.com.br/acf/sl/119/11). O [Salmo 19](http://bibliaonline.com.br/acf/sl/19) diz que essa Palavra “_é perfeita, e revigora a alma. Os testemunhos do Senhor são dignos de confiança, e tornam sábios os inexperientes”_ ([Sl 19:7](http://bibliaonline.com.br/acf/sl/19/7))_._
+
+A água das cisternas do rei servia para manter seus rebanhos, além dos “_trabalhadores em seus campos e em suas vinhas, nas colinas e nas terras férteis”_ ([2 Cr 26:10](http://bibliaonline.com.br/acf/2cr/26/10)). O primeiro Salmo diz que aquele que tem prazer na Palavra de Deus e medita nela é como “_árvore plantada à beira de águas correntes: Dá fruto no tempo certo e suas folhas não murcham”_ ([Sl 1:1-3](http://bibliaonline.com.br/acf/sl/1/1-3)). Somos aconselhados a beber dois litros de água por dia para vivermos saudáveis, mas quanto da Palavra realmente bebemos? Não estou falando de volume, pois é possível ler a Bíblia inteira em menos de cem horas corridas sem aproveitar uma vírgula. Estou falando de saborear e digerir a Palavra até ela impregnar nossos pensamentos.
+
+Proteção, vigor, sabedoria, refrigério e muito mais você encontra na Palavra de Deus se as “_cisternas”_ de seu coração estiverem sempre cheias dessa água pura. Os 176 versículos das 22 estrofes que compõem o [Salmo 119](http://bibliaonline.com.br/acf/sl/119) mencionam a Palavra de Deus. Cada estrofe começa com o nome de uma letra do alfabeto hebraico, e uma antiga lenda dizia que Davi usava este Salmo como uma cartilha para ensinar o alfabeto e a sabedoria de Deus a seu filho Salomão. Faz sentido. Eu aprendi a ler com uma cartilha chamada “_Caminho Suave”_ e não posso imaginar um caminho mais suave do que a Palavra de Deus para aprender a ler, falar e pensar os pensamentos de Deus.
+
+tic-tac-tic-tac...
+
+*****

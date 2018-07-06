@@ -1,0 +1,17 @@
+# Pedir o Espírito Santo {#pedir-o-esp-rito-santo}
+
+[**Lucas**](http://bibliaonline.com.br/acf/lc/11/13)[**11:13**](http://bibliaonline.com.br/acf/lc/11/13)
+
+No [versículo 13](http://bibliaonline.com.br/acf/lc/11/13) de Lucas 11, Jesus diz: “_Se vocês, apesar de serem maus, sabem dar boas coisas aos seus filhos, quanto mais o Pai que está no céu dará o Espírito Santo a quem o pedir!”_. Para entendermos o que significa pedir o Espírito Santo precisamos antes entender um princípio fundamental de interpretação bíblica. O fato de Deus dizer algo em sua Palavra nem sempre significa que esteja dizendo a você. Se você costuma abrir a Bíblia a esmo e acha que o primeiro versículo que vê é uma ordem direta de Deus para você, cuidado para não fazer bobagem quando a passagem disser: “_[Judas] foi e enforcou-se”_ ([Mt 27:5](http://bibliaonline.com.br/acf/mt/27/5)).
+
+Existem passagens que são ditas a Israel e existe a doutrina dos apóstolos dada à igreja nas epístolas. Há ordens dadas no Antigo Testamento para determinadas pessoas, que hoje nos servem de alento, mas que não foram dirigidas diretamente a nós. Existem também experiências pessoais de servos de Deus que nada têm a ver conosco. Portanto, quando ler algo, pergunte: A quem Deus disse? Quando Deus disse? Em que circunstâncias? O que veio antes? O que vem depois?
+
+Se aplicarmos este princípio aqui, veremos que Jesus está dizendo isto aos discípulos que ainda não têm o Espírito Santo habitando neles. Em João [7:39](http://bibliaonline.com.br/acf/jo/7/39) diz que “_Até então o Espírito ainda não tinha sido dado, pois Jesus ainda não fora glorificado”_. Portanto temos aqui um grupo de pessoas que, apesar de terem o Espírito Santo com eles, ainda não desfrutam do Espírito habitando neles. É normal que Jesus lhes dissesse para pedir o Espírito Santo, o que eles efetivamente passariam a fazer até o dia de Pentecostes, quando o Espírito veio habitar neste mundo — no crente individualmente e na igreja coletivamente.
+
+_Logo após a ressurreição Jesus diria aos discípulos em Lucas_ [_24:49_](http://bibliaonline.com.br/acf/lc/24/49)_: “Eu lhes envio a promessa de meu Pai; mas fiquem na cidade até serem revestidos do poder do alto”, e minutos antes de sua ascensão aos céus, ele prometeria, em Atos_ [_1:8_](http://bibliaonline.com.br/acf/atos/1/8)_: “[Vocês] receberão poder quando o Espírito Santo descer sobre vocês”. Então, no_ [_capítulo 2_](http://bibliaonline.com.br/acf/atos/2) _de Atos, lemos que “chegando o dia de Pentecoste, estavam todos reunidos num só lugar. De repente veio do céu um som, como de um vento muito forte, e encheu toda a casa na qual estavam assentados. E viram o que parecia línguas de fogo, que se separaram e pousaram sobre cada um deles. Todos ficaram cheios do Espírito Santo e começaram a falar noutras línguas, conforme o Espírito os capacitava” (_[_At 2:1-4_](http://bibliaonline.com.br/acf/atos/2/1-4)_)._
+
+Ao fundar a igreja Deus desfazia a confusão de línguas que começou em Babel, quando os homens quiseram construir uma torre que alcançasse o céu para perpetuarem seu nome na terra. Em [Atos 2](http://bibliaonline.com.br/acf/atos/2) Deus estava formando o corpo de Cristo, um povo que, apesar das diferenças linguísticas, deveria se entender como se todos falassem um mesmo idioma. Só então aqueles discípulos receberiam o Espírito Santo para habitar neles. E hoje, quando é que alguém recebe o Espírito Santo? A resposta nós veremos nos próximos 3 minutos.
+
+tic-tac-tic-tac...
+
+*****

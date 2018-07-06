@@ -1,0 +1,17 @@
+# O vento invisível {#o-vento-invis-vel}
+
+[**João 3:8-13**](http://bibliaonline.com.br/acf/jo/3/8-13)
+
+Se Jesus usou a água para simbolizar a ação da Palavra de Deus no novo nascimento, agora ele usa o vento como figura daquele que é nascido do Espírito Santo. Lembre-se de que ele está falando de um novo nascimento espiritual, gerado de cima para baixo, de Deus para o homem, e não de um renascimento da velha vida natural que trazemos em nós, nem tampouco do velho corpo de carne. “_O que nasce da carne é carne, mas o que nasce do Espírito é espírito”_ ([João 3:6](http://bibliaonline.com.br/acf/jo/3/6)), por isso nem pense nisso como uma suposta reencarnação.
+
+O novo nascimento é um ato soberano de Deus, não uma decisão do homem, e sem ele é impossível ao homem crer em Jesus. Em Efésios Paulo explica que o homem está espiritualmente morto em seus delitos e pecados. Coloque uma tonelada de pedras sobre um morto e nada acontecerá. Ele não sentirá o peso e tampouco será capaz de movê-lo ou terá qualquer desejo de fazer isso. Ele está morto.
+
+Olhe para o ser humano como morto espiritualmente e você entenderá por que ele não sente a tonelada de pecados que pesa sobre si e nem tem qualquer desejo de se aproximar de Deus. Não há como fazer nem uma coisa, nem outra. É preciso uma intervenção divina que injete vida nesse homem morto para ele sentir o peso de seus pecados e clamar a Deus por libertação. Como isso acontece? Ninguém sabe, ninguém viu.
+
+“_O vento sopra onde quer. Você o escuta, mas não pode dizer de onde vem nem para onde vai. Assim acontece com todos os nascidos do Espírito”_ ([João 3:8](http://bibliaonline.com.br/acf/jo/3/8)). Isso é o mais longe que podemos chegar para entender o novo nascimento. Sua ação é tão invisível quanto o vento, mas podemos ver os resultados naquele que nasceu de novo. A mudança é real. Nicodemos, porém, continua achando que Jesus está falando de um acontecimento físico, que pode ser analisado pela lógica racional de uma mente natural. Não pode.
+
+Ele continua sem entender, e ganha, por assim dizer, um puxão de orelha: “_Você é mestre em Israel e não entende essas coisas?”_ ([João 3:10](http://bibliaonline.com.br/acf/jo/3/10)). A resposta mais simples é “_Não”_, porque Nicodemos ainda precisa nascer de novo. Ele até entende que o Messias deve vir e estabelecer seu Reino, mas não como isso acontece, ou como uma alma é transformada para poder participar desse Reino. Jesus deixa de lado o Reino e outras coisas terrenas e passa agora a falar de coisas celestiais. Mas quem teria autoridade para falar das coisas celestiais?
+
+Somente alguém originário do céu, que tivesse livre trânsito entre o céu e a terra; que não fosse levado para o céu, mas tivesse o poder de subir de moto próprio sempre que desejasse; alguém pré-existente, que não apenas nascesse aqui, mas que tivesse descido para nascer aqui... enfim, alguém que fosse Deus onipresente, para estar no céu ao mesmo tempo em que estivesse diante de Nicodemos. Pois “_ninguém subiu ao céu, senão o que desceu do céu, o Filho do homem, que está no céu”_ ([João 3:13](http://bibliaonline.com.br/acf/jo/3/13)). Nos próximos 3 minutos vamos aprender o significado da serpente de bronze, cuja história Nicodemos já conhece do Antigo Testamento.
+
+tic-tac-tic-tac...

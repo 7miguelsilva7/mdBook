@@ -1,0 +1,17 @@
+# O Reino {#o-reino}
+
+[**Lucas 13:18-21**](http://bibliaonline.com.br/acf/lc/13/18-21)
+
+Na história da humanidade você encontra muitos exemplos de reinos e governos que são organizados antes mesmo de assumirem o poder. Geralmente algum partido de oposição ao governo vigente começa a se articular e a decidir quem assumirá cada posição na nova ordem de coisas. Às vezes até mesmo uma nova constituição é redigida para quando o novo governo assumir o controle. Algo semelhante ocorre com o reino de Deus. Ele já existe, mas não está no poder.
+
+É importante entender que “reino de Deus” não é sinônimo de céu ou salvação eterna. O reino é a esfera de governo de um Rei sobre seus súditos, sejam eles submissos ou não. Jesus veio ao mundo para reinar, porém foi rejeitado. Portanto o reino de Deus já estava no mundo funcionando nos bastidores, pois o Rei tinha seguidores em campanha divulgando suas propostas de governo e convidando as pessoas a se filiarem ao reino. Ao mesmo tempo Jesus dava provas de que seu reino era real, ao revelar o seu poder e de como seria a vida na terra quando estivesse no trono. A cura da mulher encurvada era uma dessas provas.
+
+_Se você entender isto entenderá a passagem de_ [_Hebreus 6_](http://bibliaonline.com.br/acf/hb/6) _que diz que “para aqueles que uma vez foram iluminados, provaram o dom celestial, tornaram-se participantes do Espírito Santo, experimentaram a bondade da palavra de Deus e os poderes da era que há de vir [ou seja, do Reino], e caíram, é impossível que sejam reconduzidos ao arrependimento” (_[_Hb 6:4-6_](http://bibliaonline.com.br/acf/hb/6/4-6)_). Essas pessoas são as mesmas que tiveram um contato direto com Jesus e não foram salvas porque não creram de verdade. Estavam no reino, porém eram contrárias ao Rei._
+
+Elas foram expostas à luz da presença de Cristo, sentiram um gostinho do dom celestial e foram participantes do Espírito Santo ao serem influenciadas por ele. O Espírito é quem convence o pecador do pecado, da justiça e do juízo vindouro, como explica João [16:8](http://bibliaonline.com.br/acf/jo/16/8), tentando levá-lo a Cristo. Ele também santifica o pecador colocando-o numa posição de privilégio, como a do incrédulo casado com uma mulher crente em 1 Coríntios [7:14](http://bibliaonline.com.br/acf/1co/7/14). Os “_poderes da era que há de vir”_ são os que Jesus manifestava ao curar doentes e alimentar multidões. Muitos dos que beberam do vinho nas bodas de Caná e comeram do pão que Jesus multiplicou estariam mais tarde cuspindo nele e gritando: “_Crucifica-o! Crucifica-o!”_.
+
+_Para mostrar que na ausência do Rei o Reino iria se deteriorar nas mãos dos homens, Jesus faz uma pergunta e a responde na forma de dois exemplos: “Com que se parece o Reino de Deus? Com que o compararei? É como um grão de mostarda que um homem semeou em sua horta. Ele cresceu e se tornou uma árvore, e as aves do céu fizeram ninhos em seus ramos... É como o fermento que uma mulher misturou com uma grande quantidade de farinha, e toda a massa ficou fermentada” (_[_Lucas 13:18-21_](http://bibliaonline.com.br/acf/lc/13/18-21)_). Nos próximos 3 minutos você ficará surpreso ao descobrir como as religiões invertem o significado destes exemplos._
+
+tic-tac-tic-tac...
+
+*****

@@ -1,0 +1,15 @@
+# Hoje é o dia da salvação {#hoje-o-dia-da-salva-o}
+
+[**Lucas 23:32-43**](http://bibliaonline.com.br/acf/lc/23/32-43)
+
+Quando alguém pega a promessa de Jesus ao ladrão arrependido, de que estariam juntos naquele mesmo dia no Paraíso, e junta com Atos [2:27](http://bibliaonline.com.br/acf/atos/2/27), que previa que Cristo não ficaria no _hades_, e ainda acrescenta 1 Pedro [3:19](http://bibliaonline.com.br/acf/1pe/3/19) e [4:6](http://bibliaonline.com.br/acf/1pe/4/6) ao pacote, a confusão fica completa. Como já expliquei, _hades_ não é um lugar físico, mas o estado de separação do corpo quando a pessoa morre. Sua alma e espíritos continuam vivos e despertos com Cristo no céu, no caso dos salvos, ou longe de Cristo e sofrendo nessa condição, no caso dos perdidos. Mas vamos ler a passagem em 1 Pedro [2:5](http://bibliaonline.com.br/acf/1pe/2/5); [3:19](http://bibliaonline.com.br/acf/1pe/3/19) e [4:6](http://bibliaonline.com.br/acf/1pe/4/6), inserindo algumas explicações no texto para facilitar sua compreensão.
+
+“_[Deus] não poupou o mundo antigo quando trouxe o dilúvio sobre aquele povo ímpio, mas preservou Noé, pregador da justiça, e mais sete pessoas... [Jesus] foi morto no corpo, mas vivificado pelo Espírito, no qual [Espírito] também foi e pregou [por intermédio de Noé] aos espíritos [que agora estão] em prisão que há muito tempo desobedeceram, quando Deus esperava pacientemente nos dias de Noé, enquanto a arca era construída... Por isso mesmo o evangelho foi pregado também aos [que hoje estão] mortos, para que eles, mesmo julgados no corpo segundo os homens, vivam pelo Espírito segundo Deus” (_[_1 Pe 2:5_](http://bibliaonline.com.br/acf/1pe/2/5)_;_ [_3:19_](http://bibliaonline.com.br/acf/1pe/3/19)_;_ [_4:6_](http://bibliaonline.com.br/acf/1pe/4/6)_)._
+
+Juntando tudo, Jesus não foi ao _hades_ pregar o evangelho no dia em que morreu na cruz. Nesse dia ele foi direto ao Paraíso, se é que você acredita no que ele disse ao ladrão. O que Pedro menciona em sua carta ocorreu muito tempo antes, quando Jesus, no Espírito, usou Noé, o “_pregador da justiça”_, para avisar os homens do juízo que iria cair sobre o mundo. Essa pregação de Noé durou mais de cem anos, enquanto Deus pacientemente aguardava a construção da arca. Os espíritos dos que ouviram a pregação de Jesus por intermédio de Noé e morreram no dilúvio, estão hoje aprisionados no _hades_ aguardando para serem lançados no lago de fogo.
+
+Nos últimos dois mil anos muitos ouviram o evangelho e morreram na incredulidade e estão hoje no _hades_. Escutaram da graça de Deus enquanto estavam vivos e agora, mortos, já nada podem fazer para mudar seu destino. De nada adiantaria Cristo ir até eles pregar o evangelho, pois o dia da oportunidade já passou. Que dia? O mesmo que Jesus prometeu ao ladrão que estaria com ele no Paraíso: Hoje! Se você ainda não tomou uma decisão por Cristo, lembre-se de que esse mesmo “_hoje”_ serve para quem escuta o evangelho saber que _Amanhã_ será tarde demais. “_Se hoje vocês ouvirem a sua voz, não endureçam o coração”_ ([Hb 4:7](http://bibliaonline.com.br/acf/hb/4/7)).
+
+tic-tac-tic-tac...
+
+*****

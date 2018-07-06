@@ -1,0 +1,15 @@
+# Bendito é o Rei {#bendito-o-rei}
+
+[**Lucas 19:35-40**](http://bibliaonline.com.br/acf/lc/19/35-40)
+
+_Lucas descreve a entrada triunfal de Jesus em Jerusalém: Os discípulos “lançaram seus mantos sobre o jumentinho e fizeram que Jesus montasse nele. Enquanto ele prosseguia, o povo estendia os seus mantos pelo caminho. Quando ele já estava perto da descida do monte das Oliveiras, toda a multidão dos discípulos começou a louvar a Deus alegremente, em alta voz, por todos os milagres que tinham visto: ‘Bendito é o rei que vem em nome do Senhor!’ ‘Paz no céu e glória nas alturas!’” (_[_Lucas 19:35-38_](http://bibliaonline.com.br/acf/lc/19/35-38)_)._
+
+A cena do homem gentil que estende seu casaco sobre a poça de lama para a mulher passar é bem conhecida nos romances. E é nessa disposição que as pessoas estendem suas vestes para forrar o caminho de Jesus. Ele não está montado num possante cavalo, como faria um rei conquistador. Isso ele ainda fará, como revela o Livro do Apocalipse: “_Vi o céu aberto e diante de mim um cavalo branco, cujo cavaleiro se chama Fiel e Verdadeiro. Ele julga e guerreia com justiça. Seus olhos são como chamas de fogo” (_[Ap 19:11-12](http://bibliaonline.com.br/acf/ap/19/11-12)). Aqui ele monta humildemente um jumentinho, pois entra em Jerusalém para morrer e salvar, e não para conquistar e julgar.
+
+_A multidão o exalta “por todos os milagres que tinham visto”, porém Deus coloca em suas bocas o devido louvor: “Bendito é o rei que vem em nome do Senhor”, e “Paz no céu e glória nas alturas”, anunciam “alegremente, em alta voz”. É fácil perceber a origem divina dessas palavras, pois quando “alguns dos fariseus que estavam no meio da multidão disseram a Jesus: ‘Mestre, repreende os teus discípulos!’ ‘Eu lhes digo’, respondeu ele, ‘se eles se calarem, as pedras clamarão’”. (_[_Lucas 19:39-40_](http://bibliaonline.com.br/acf/lc/19/39-40)_). Aquele que seria capaz de fazer as pedras clamarem é quem faz sair louvor da boca daquelas pessoas, mesmo que não entendessem o que falavam._
+
+Em Lucas [2:14](http://bibliaonline.com.br/acf/lc/2/14) os anjos proclamavam “_Glória a Deus nas alturas”_, e depois “_paz na terra”_. Mas aqui o Rei já foi rejeitado e não se fala em “_paz na terra”_, pois esta ficará devastada antes que ele volte para reinar. Aqui o clamor divinamente inspirado diz “_Paz no céu”_ e só depois “_Glória nas alturas”_. Antes que a paz venha sobre a terra Jesus precisa morrer, ressuscitar e ser glorificado, cumprindo assim a única obra capaz de garantir “_paz no céu”_ e “_Glória nas alturas”_. Se você é daqueles que acreditam na possibilidade de paz neste mundo sinto dizer que está iludido. Nenhuma paz haverá até Cristo voltar para reinar, mas seria bom você atentar para o fato de a paz já ter sido resolvida no céu, e é disto que iremos falar nos próximos 3 minutos.
+
+tic-tac-tic-tac...
+
+*****

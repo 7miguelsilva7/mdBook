@@ -1,0 +1,15 @@
+# O beijo da traição {#o-beijo-da-trai-o}
+
+[**Lucas 22:47-48**](http://bibliaonline.com.br/acf/lc/22/47-48)
+
+Enquanto Jesus falava com seus discípulos, “_Apareceu uma multidão conduzida por Judas, um dos doze. Este se aproximou de Jesus para saudá-lo com um beijo” (_[Lucas 22:47](http://bibliaonline.com.br/acf/lc/22/47)). Um beijo demonstra afeto, respeito e consideração. É também uma forma de cumprimentar, equivalente ao moderno aperto de mão. Se Judas apontasse o dedo para Jesus revelaria suas intenções. Se apenas o cumprimentasse poderia passar despercebido dos outros discípulos. Mas não de Jesus, que conhecia seu pensamento, desejos e intenções. Por isso Jesus pergunta, em tom de exclamação: “_Judas, com um beijo você está traindo o Filho do homem?!”_ ([Lucas 22:49](http://bibliaonline.com.br/acf/lc/22/49)).
+
+_Judas não sairia ileso daquela tentativa de fingir devoção. E você, é alguém que realmente crê em Cristo como seu Salvador, ou não passa de um que o beija aos domingos? De pessoas assim Jesus falou: “Este povo me honra com os lábios, mas o seu coração está longe de mim. Em vão me adoram; seus ensinamentos não passam de regras ensinadas por homens” (_[_Mt 15:8-9_](http://bibliaonline.com.br/acf/mt/15/8-9)_). Dos que “viram os sinais miraculosos que ele estava realizando e creram em seu nome”, João revelou que “Jesus não se confiava a eles, pois conhecia a todos” (_[_Jo 2:23-25_](http://bibliaonline.com.br/acf/jo/2/23-25)_)._
+
+Mas por que Judas precisaria mostrar aos soldados quem era Jesus? Porque, ao contrário das imagens religiosas, ele não tinha olhos azuis, cabelos louros e uma auréola em torno da cabeça. Era igual a qualquer judeu comum de sua época, com olhos e cabelos negros ou castanhos e pele bronzeada. Não se destacava dos discípulos, principalmente à noite. Isaías profetizou de seu aspecto exterior: “_Ele não tinha qualquer beleza ou majestade que nos atraísse, nada em sua aparência para que o desejássemos” (_[Is 53:2](http://bibliaonline.com.br/acf/is/53/2)). Tal descrição era condizente com o aspecto exterior do Tabernáculo no deserto, a grande tenda que representava a presença de Deus na terra.
+
+O Tabernáculo tinha quatro coberturas, e quem estivesse dentro veria a mais bela de todas. Assim é hoje para os salvos por Jesus. Enquanto os incrédulos enxergam nele uma pedra comum, que só faz tropeçar, “_para vocês, os que creem, esta pedra é preciosa”_, escreveu Pedro ([1 Pe 2:7](http://bibliaonline.com.br/acf/1pe/2/7)). A feia cobertura exterior do Tabernáculo era feita de peles de animais. Algumas traduções falam de texugos, outras trazem golfinhos ou genericamente animais marinhos. Esqueça a ideia de um casaco de visom ou de uma capa de couro brilhante. O Tabernáculo, visto de fora, “_não tinha qualquer aparência ou majestade que nos atraísse”_. Assim é Jesus para quem não o conhece na sua intimidade: feio e sem graça.
+
+tic-tac-tic-tac...
+
+*****

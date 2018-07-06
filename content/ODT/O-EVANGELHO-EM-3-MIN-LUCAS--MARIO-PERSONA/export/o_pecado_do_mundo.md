@@ -1,0 +1,15 @@
+# O pecado do mundo {#o-pecado-do-mundo}
+
+[**Lucas 22:19-20**](http://bibliaonline.com.br/acf/lc/22/19-20)
+
+_Jesus, “Tomando o pão, deu graças, partiu-o e o deu aos discípulos, dizendo: ‘Isto é o meu corpo dado em favor de vocês; façam isto em memória de mim’. Da mesma forma, depois da ceia, tomou o cálice, dizendo: ‘Este cálice é a nova aliança no meu sangue, derramado em favor de vocês” (_[_Lucas 22:19-20_](http://bibliaonline.com.br/acf/lc/22/19-20)_). Foi com Israel, e não com a Igreja, que Deus fez essa “nova aliança”, conforme profetizou Jeremias: “Farei uma nova aliança com a comunidade de Israel e com a comunidade de Judá. Não será como a aliança que fiz com os seus antepassados... Porei a minha lei no íntimo deles e a escreverei nos seus corações. Serei o Deus deles, e eles serão o meu povo... todos eles me conhecerão, desde o menor até o maior... Porque eu lhes perdoarei a maldade e não me lembrarei mais dos seus pecados” (_[_Jr 31:31-34_](http://bibliaonline.com.br/acf/jr/31/31-34)_)._
+
+A nova aliança está fundamentada no sacrifício de Cristo e terá efeito em Israel quando o povo se arrepender e Cristo estabelecer o seu Reino. Enquanto isso a Igreja desfruta dos benefícios dessa aliança, mas não foi com ela que Cristo fez a nova aliança. Para ser “_nova”_ precisaria existir uma “_velha”_ aliança com a Igreja, o que não é o caso. A Igreja começou no [capítulo 2](http://bibliaonline.com.br/acf/atos/2) de Atos e sua cidadania e destino não são terrenos, como Israel, mas celestiais. “_A nossa cidadania, porém, está nos céus, de onde esperamos ansiosamente um Salvador, o Senhor Jesus Cristo”_ ([Fp 3:20](http://bibliaonline.com.br/acf/fp/3/20)).
+
+O sacrifício de Cristo também tem uma dupla aplicação para atender a dois aspectos da ruína causada pelo pecado. Deus precisava tratar da questão do pecado, no singular, e perdoar os pecados, no plural. João Batista fala da primeira quando vê Jesus passar: “_É o Cordeiro de Deus, que tira o pecado do mundo”_ ([Jo 1:29](http://bibliaonline.com.br/acf/jo/1/29)). Em virtude da obra de Cristo foi garantida a retirada do pecado do mundo, pois ele veio “_para aniquilar o pecado mediante o sacrifício de si mesmo” (_[Hb 9:26](http://bibliaonline.com.br/acf/hb/9/26)).
+
+O cristão ainda traz em si o pecado, pois existe dentro dele uma velha natureza herdada de Adão, mesmo depois de ter recebido a nova natureza. É o pecado em nós que nos leva a pecar; o pecado é que produz os pecados. Na ressurreição já não traremos o pecado em nós, graças ao Cordeiro que morreu. Quando Cristo voltar para reinar os benefícios dessa obra serão estendidos à Criação, a Israel e às nações, mas o pecado só será erradicado de vez nos “_novos céus e nova terra, onde habita a justiça” (_[2 Pe 3:13](http://bibliaonline.com.br/acf/2pe/3/13)). E os “_pecados”_? É o que veremos nos próximos 3 minutos.
+
+tic-tac-tic-tac...
+
+*****

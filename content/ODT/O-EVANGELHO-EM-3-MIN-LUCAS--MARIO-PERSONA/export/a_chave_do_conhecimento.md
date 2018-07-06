@@ -1,0 +1,17 @@
+# A chave do conhecimento {#a-chave-do-conhecimento}
+
+[**Lucas 11:45-54**](http://bibliaonline.com.br/acf/lc/11/45-54)
+
+_Um dos doutores da Lei sente-se ofendido e retruca: “Mestre, quando dizes essas coisas, insultas também a nós”. Mas Jesus tem algo a dizer também àqueles que se consideram especialistas na Palavra de Deus e “que pela injustiça aprisionam a verdade” (_[_Rm 1:18_](http://bibliaonline.com.br/acf/rm/1/18)_): “Quanto a vocês, peritos na lei... ai de vocês também! Porque sobrecarregam os homens com fardos que dificilmente eles podem carregar, e vocês mesmos não levantam nem um dedo para ajudá-los” (_[_Lucas 11:45_](http://bibliaonline.com.br/acf/lc/11/45)_)._
+
+Há três lugares onde você pode guardar a Verdade: na biblioteca, no cérebro ou no coração. Muitos colecionam livros para exibirem erudição. Quem trabalha com decoração de ambientes está acostumado a comprar livros por metro para encher estantes de clientes que não leem nem gibi. Guardar a Verdade no cérebro é obter um diploma de “_Doutor”_ em alguma disciplina cristã, sem nunca ter nascido de novo. São pessoas “_que aprendem sempre e jamais podem chegar ao conhecimento da verdade”_ ([2Tm 3:7](http://bibliaonline.com.br/acf/2tm/3/7)), pois “_rejeitaram o amor à verdade que os poderia salvar... não creram na verdade, mas tiveram prazer na injustiça”_ ([2Ts 2:10-12](http://bibliaonline.com.br/acf/2ts/2/10-12)).
+
+_Em_ [_Apocalipse 10_](http://bibliaonline.com.br/acf/ap/10) _o apóstolo João escuta uma voz que diz: “Vá, pegue o livro aberto que está na mão do anjo... Pegue-o e coma-o! Ele será amargo em seu estômago, mas em sua boca será doce como mel”. João conta o que aconteceu: “Peguei o livrinho da mão do anjo e o comi. Ele me pareceu doce como mel em minha boca; mas, ao comê-lo, senti que o meu estômago ficou amargo. Então me foi dito: ‘É preciso que você profetize de novo acerca de muitos povos, nações, línguas e reis’” (_[_Ap 10:8-11_](http://bibliaonline.com.br/acf/ap/10/8-11)_). O conhecimento intelectual da Verdade é doce como o livrinho na boca. Assim são os que gostam de pregar a Verdade aos outros sem nunca a terem experimentado em si mesmos. É só quando João engole o livrinho e sente a realidade da Verdade aplicada em seu interior que ele está apto a testemunhar a “muitos povos, nações, línguas e reis”._
+
+Os judeus de nosso capítulo são confrontados por Jesus por sua cumplicidade naquilo que seus antepassados fizeram, perseguindo e assassinando os profetas de Deus para impedirem que a Verdade chegasse às pessoas. Agora Jesus diz que eles estão fazendo algo muito pior: Vocês “_se apoderaram da chave do conhecimento. Vocês mesmos não entraram e impediram os que estavam prestes a entrar!”_ ([Lucas 11:52](http://bibliaonline.com.br/acf/lc/11/52)).
+
+A “_chave do conhecimento”_ é o próprio Jesus; é dele que Deus falou por meio de todos os que escreveram o Antigo Testamento, e é dele que Deus fala pelos apóstolos no Novo Testamento. Ao apoderarem-se dele para o matarem aqueles religiosos judeus queriam impedir o acesso ao conhecimento da Verdade. Afinal, “_o testemunho de Jesus é o espírito de profecia”_, e é disto que continuaremos falando nos próximos 3 minutos.
+
+tic-tac-tic-tac...
+
+*****

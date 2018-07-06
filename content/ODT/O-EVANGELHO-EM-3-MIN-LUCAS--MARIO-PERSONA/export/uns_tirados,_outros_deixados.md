@@ -1,0 +1,15 @@
+# Uns tirados, outros deixados {#uns-tirados-outros-deixados}
+
+[**Lucas 17:30-37**](http://bibliaonline.com.br/acf/lc/17/30-37)
+
+_Os versículos seguintes apresentam o cenário na terra por ocasião da vinda de Cristo para julgar as nações e estabelecer o seu reino: “Acontecerá exatamente assim no dia em que o Filho do homem for revelado. Naquele dia, quem estiver no telhado de sua casa, não deve descer para apanhar os seus bens dentro de casa. Semelhantemente, quem estiver no campo, não deve voltar atrás por coisa alguma. Lembrem-se da mulher de Ló! Quem tentar conservar a sua vida a_ _perderá, e quem perder a sua vida a preservará. Eu lhes digo: naquela noite duas pessoas estarão numa cama; uma será tirada e a outra deixada. Duas mulheres estarão moendo trigo juntas; uma será tirada e a outra deixada. Duas pessoas estarão no campo; uma será tirada e a outra deixada” (_[_Lucas 17:30-36_](http://bibliaonline.com.br/acf/lc/17/30-36)_)._
+
+_O_ [_capítulo 24_](http://bibliaonline.com.br/acf/mt/24) _de Mateus, que trata dos mesmos eventos, diz: “Como foi nos dias de Noé, assim também será na vinda do Filho do homem. Pois nos dias anteriores ao dilúvio, o povo vivia comendo e bebendo, casando-se e dando-se em casamento, até o dia em que Noé entrou na arca; e eles nada perceberam, até que veio o dilúvio e os levou a todos. Assim acontecerá na vinda do Filho do homem” (_[_Mt 24:37_](http://bibliaonline.com.br/acf/mt/24/37)_). Repare que foi o juízo de Deus que levou a todos pela morte, e será também o juízo que descerá como abutre fazendo distinção entre duas pessoas ocupadas numa mesma atividade: “uma será tirada e a outra deixada” (_[_Lucas 17:36_](http://bibliaonline.com.br/acf/lc/17/36)_)._
+
+Apesar de alguns interpretarem estas passagens como o arrebatamento da Igreja, elas falam de juízo e morte. Quando Cristo vier reinar ele separará os bodes das ovelhas, tirando uns e deixando outros para habitarem em seu reino na terra com o remanescente de judeus convertidos que ele chama de “_meus pequeninos irmãos”_([Mt 25:31-46](http://bibliaonline.com.br/acf/mt/25/31-46)). Quando os discípulos perguntam onde ocorrerá esse terrível juízo discriminatório Jesus responde: “_Onde houver um cadáver, ali se ajuntarão os abutres”_([Lucas 17:37](http://bibliaonline.com.br/acf/lc/17/37)). Abutres ficam pairando sobre suas vítimas até a hora do mergulho final para despedaçá-las, e assim será na vinda de Cristo. Naquele dia o Senhor irá tirar da terra todo aquele que não servir para viver em seu reino. Os que restarem entrarão com seus corpos físicos e naturais no reino que irá durar mil anos.
+
+Neste [capítulo 17](http://bibliaonline.com.br/acf/lc/17) de Lucas o Senhor falou de exercitarmos um espírito de graça em perdoar, de humildade no servir, de gratidão como a do leproso curado e de vigilância aguardando por sua vinda. Nos próximos 3 minutos ele abre o [capítulo 18](http://bibliaonline.com.br/acf/lc/18) falando da perseverança na oração.
+
+tic-tac-tic-tac...
+
+*****

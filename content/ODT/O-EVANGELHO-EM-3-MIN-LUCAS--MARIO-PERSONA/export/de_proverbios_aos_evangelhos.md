@@ -1,0 +1,17 @@
+# De Provérbios aos Evangelhos {#de-prov-rbios-aos-evangelhos}
+
+Provérbios a João
+
+No livro de Provérbios encontramos Jesus, o verdadeiro Filho de Davi e aquele que é “_maior do que Salomão”_, como a personificação da sabedoria de Deus. Reserve alguns minutos para ler o [capítulo 8](http://bibliaonline.com.br/acf/pv/8) de Provérbios e conhecer melhor este que é de “_Eternidade a eternidade, porque dele são_ _a sabedoria e a força”_ ([Dn 2:20](http://bibliaonline.com.br/acf/dn/2/20)). É neste livro que você encontra Jesus também como “_o amigo [que] ama em todos os momentos”_ e “_um irmão na adversidade”_ ([Pv 17:17](http://bibliaonline.com.br/acf/pv/17/17)).
+
+_O livro de Eclesiastes quase deixa Cristo de fora, por ser um compêndio de sabedoria humana debaixo do sol, ou seja, como o homem enxerga sua vida neste mundo. Mesmo assim nós o encontramos na alegoria de “uma pequena cidade, de poucos habitantes. Um rei poderoso veio contra ela, cercou-a com muitos dispositivos de guerra. Ora, naquela cidade vivia um homem pobre, mas sábio, e com sua sabedoria ele salvou a cidade. No entanto, ninguém se lembrou daquele pobre” (_[_Ec 9:14-15_](http://bibliaonline.com.br/acf/ec/9/14-15)_). A carta de Paulo aos Coríntios nos faz lembrar “de nosso Senhor Jesus Cristo que, sendo rico, se fez pobre por amor de vocês” (_[_2 Co 8:9_](http://bibliaonline.com.br/acf/2co/8/9)_)._
+
+Mas se a descrição árida de sabedoria humana encontrada no livro de Eclesiastes só aumenta nossa sede por Jesus, o livro de Cantares abre um manancial de água pura. Trata-se de uma alegoria que fala de Salomão, uma figura de Cristo, e sua noiva, a Sulamita, uma figura do povo terrenal de Deus, em especial o remanescente judeu fiel que será oprimido durante a “_grande tribulação”_. Ali tudo aponta para Cristo e sua extrema formosura. Ao perguntarem: “_Que diferença há entre o seu amado e outro qualquer?”_, a Sulamita responde:
+
+“_O meu amado tem a pele bronzeada; ele se destaca entre dez mil. Sua cabeça é ouro, o ouro mais puro; seus cabelos ondulam ao vento como ramos de palmeira; são negros como o corvo. Seus olhos são como pombas junto aos regatos de água, lavados em leite, incrustados como joias. Suas faces são como um jardim de especiarias que exalam perfume. Seus lábios são como lírios que destilam mirra. Seus braços são cilindros de ouro engastados com berilo. Seu tronco é como marfim polido adornado de safiras. Suas pernas são colunas de mármore firmadas em bases de ouro puro. Sua aparência é como o Líbano; ele é elegante como os cedros. Sua boca é a própria doçura; ele é mui desejável. Esse é o meu amado, esse é o meu querido” (_[_Ct 5:9-16_](http://bibliaonline.com.br/acf/ct/5/9-16)_)._
+
+Seguem-se os livros dos profetas, que falam de Cristo, de sua obra e do reino vindouro. Digno de nota é o [capítulo 53](http://bibliaonline.com.br/acf/is/53) de Isaías, escrito 700 anos antes da morte de Jesus e dizendo que ele “_foi transpassado por causa das nossas transgressões, foi esmagado por causa de nossas iniquidades... Pois ele carregou o pecado de muitos, e intercedeu pelos transgressores”_. Chegamos então aos Evangelhos e em Mateus Jesus é o Rei de Israel, em Marcos o Profeta e Servo fiel, em Lucas o perfeito Homem e em João o Verbo de Deus, a própria habitação de Deus com os homens. Nos próximos 3 minutos falaremos de mistérios.
+
+tic-tac-tic-tac...
+
+*****

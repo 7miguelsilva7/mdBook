@@ -1,0 +1,15 @@
+# De mercadores a assassinos {#de-mercadores-a-assassinos}
+
+[**Lucas 19:45-48**](http://bibliaonline.com.br/acf/lc/19/45-48)
+
+_No início de seu ministério Jesus viu no pátio do templo “alguns vendendo bois, ovelhas e pombas, e outros assentados diante de mesas, trocando dinheiro” e, enquanto expulsava os comerciantes e cambistas, disse: “Parem de fazer da casa de meu Pai um mercado!” (_[_Jo 2:14-16_](http://bibliaonline.com.br/acf/jo/2/14-16)_). Agora, no final de seu ministério, mais uma vez ele “entrou no templo e começou a expulsar os que estavam vendendo”, dizendo: “A minha casa será casa de oração; mas vocês fizeram dela um covil de ladrões.’” (_[_Lucas 19:45-46_](http://bibliaonline.com.br/acf/lc/19/45-46)_)._
+
+É um erro aplicar estas passagens ao comércio nas dependências das chamadas ‘igrejas’, pois isto seria dar a esses templos o mesmo status do Templo em Jerusalém. Deus não autorizou a construção de nenhum templo cristão, portanto os chamados ‘_templos’_ da cristandade não têm qualquer valor para Deus. Na atual dispensação o Senhor Jesus prometeu estar no meio de dois ou três congregados ao seu Nome. O que importa não são as paredes usadas para reunir os cristãos, mas aquele em torno de quem o Espírito Santo os reúne.
+
+Também é um erro chamar esses edifícios de “_casa de Deus”_, pois “_a casa de Deus... é a igreja do Deus vivo”_ ([1Tm 3:15](http://bibliaonline.com.br/acf/1tm/3/15)). Fazer de quatro paredes o elemento reunidor é perder de vista o Espírito Santo, o único que reúne os crentes em torno de Cristo. Colocar um homem à frente como “_pastor”_ do rebanho é desprezar a liderança do Senhor, que “_chama as suas ovelhas pelo nome e as leva para fora [do aprisco]” (_[Jo 10:3-4](http://bibliaonline.com.br/acf/jo/10/3-4)). Acrescentar ao cristão uma denominação é desonrar o nome que está acima de todo nome — Cristo — dado “_como cabeça de todas as coisas para a igreja, que é o seu corpo, a plenitude daquele que enche todas as coisas” (_[Ef 1:21-23](http://bibliaonline.com.br/acf/ef/1/21-23)).
+
+O corpo de Cristo é perfeito e indivisível, mas a casa de Deus, a esfera da profissão cristã, foi arruinada pelo homem. A “_casa de Deus... coluna e fundamento da verdade”_ ([1Tm 3:15](http://bibliaonline.com.br/acf/1tm/3/15)) se transformou numa “_grande casa”_ onde “_há vasos... para fins honrosos, outros para fins desonrosos”_ ([2Tm 2:20](http://bibliaonline.com.br/acf/2tm/2/20)), principalmente por causa daqueles que “_pensam que a piedade é fonte de_ _lucro”_ ([1Tm 6:5](http://bibliaonline.com.br/acf/1tm/6/5)). Em Israel o comércio associado às coisas de Deus foi só o começo. Na primeira limpeza do Templo Jesus chamou a “_casa de Deus”_ de “_mercado”_, mas agora a chama de “_covil de ladrões”_ que se transformariam em assassinos, pois “_Os chefes dos sacerdotes, os mestres da lei e os líderes do povo procuravam matá-lo”_ ([Lucas 19:47](http://bibliaonline.com.br/acf/lc/19/47)).
+
+tic-tac-tic-tac...
+
+*****

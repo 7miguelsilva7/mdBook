@@ -1,14 +1,21 @@
 [book]
 
-title = 'A OBRA DO EVANGELHO'
-authors = ['CHARLES STANLEY']
+title='Vida Através da Morte'
 
-multilingual = false
-src = 'src'
+bookdir='vida-atraves-da-morte'
+
+authors=['Charles Stanley']
+
+
+
+
+
+multilingual=false
+src='src'
 
 
 [output.html]
-additional-js = ['custom.js']
-additional-css = ['book.css']
+additional-js=['custom.js']
+additional-css=['book.css']
 
 

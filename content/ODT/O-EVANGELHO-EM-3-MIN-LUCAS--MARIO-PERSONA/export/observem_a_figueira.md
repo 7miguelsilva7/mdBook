@@ -1,0 +1,31 @@
+# Observem a figueira {#observem-a-figueira}
+
+[**Lucas 21:29-33**](http://bibliaonline.com.br/acf/lc/21/29-33)
+
+Jesus fez apenas um milagre para amaldiçoar ao invés de abençoar: “_Vendo uma figueira à beira do caminho, aproximou-se dela, mas nada encontrou, a não ser folhas. Então lhe disse: ‘Nunca mais dê frutos!’ Imediatamente a árvore secou” (_[Mt 21:19](http://bibliaonline.com.br/acf/mt/21/19)). A figueira representa Israel que Jesus encontrou sem fruto para Deus e determinou que secasse. E assim tem sido enquanto Jerusalém é “_pisada pelos gentios, até que os tempos deles se cumpram”_ ([Lucas 21:24](http://bibliaonline.com.br/acf/lc/21/24)). Por isso Paulo explica que “_Israel experimentou um endurecimento em parte, até que chegasse a plenitude dos gentios” (_[Rm 11:25](http://bibliaonline.com.br/acf/rm/11/25)). Apesar da volta dos judeus à sua terra, o tempo de os gentios interferirem na terra deles ainda não chegou ao fim.
+
+Jesus volta a falar da figueira: “_Observem a figueira e todas as árvores. Quando elas brotam, vocês mesmos percebem e sabem que o verão está próximo. Assim também, quando virem estas coisas acontecendo, saibam que o Reino de Deus está próximo” (_[Lucas 21:29](http://bibliaonline.com.br/acf/lc/21/29)). Brotos e folhas dão uma aparência de vida às árvores, porém de nada valem se não existir fruto. Assim tem sido desde 1948, não apenas com a figueira, mas com “_todas as árvores”_. Nos últimos anos Israel renasceu graças à capacidade de seu povo, e o petróleo fez as nações vizinhas passarem de tribos nômades a potências com influência global. Mas nada de fruto para Deus.
+
+_Quando Adão e Eva caíram em pecado cobriram sua nudez com aventais de folhas de figueira. Assim está Israel hoje, com seus aventais de folhas e nenhum fruto para Deus. A volta à sua terra ainda não é o cumprimento da profecia que diz: “Quando vocês e os seus filhos voltarem para o Senhor, para o seu Deus, e lhe obedecerem de todo o coração e de toda a alma, de acordo com tudo o que hoje lhes ordeno, então o Senhor, o seu Deus, lhes trará restauração e terá compaixão de vocês e os reunirá novamente de todas as nações por onde os tiver espalhado... Ele os trará para a terra dos seus antepassados, e vocês tomarão posse dela” (_[_Dt 30:2-5_](http://bibliaonline.com.br/acf/dt/30/2-5)_)._
+
+_Os judeus voltaram para sua terra mas não para o Senhor. Sua inimizade contra Cristo permanece a mesma. A promessa de restauração é ainda futura, quando um remanescente se converterá em meio a grande tribulação e dois terços da população perecer, como mostra Zacarias_ [_13:8-9_](http://bibliaonline.com.br/acf/zc/13/8-9)_: “Na terra toda, dois terços serão ceifados e morrerão; todavia a terça parte permanecerá... Colocarei essa terça parte no fogo, e a refinarei como prata, e a purificarei como ouro. Ela invocará o meu nome, e eu lhe responderei. É o meu povo, direi; e ela dirá: ‘O Senhor é o meu Deus’.”_
+
+tic-tac-tic-tac...
+
+*****
+
+“**_Não passará esta geração”_**
+
+[**Lucas 21:29-33**](http://bibliaonline.com.br/acf/lc/21/29-33)
+
+Você não encontra a Igreja nas profecias do Antigo Testamento, e ela só aparece nos Evangelhos duas vezes, em Mateus [16:18](http://bibliaonline.com.br/acf/mt/16/18) e [18:17](http://bibliaonline.com.br/acf/mt/18/17). Por isso é inútil buscar nas profecias coisas relacionadas à Igreja. É de Israel e do mundo que elas falam. Mesmo assim, quando vemos sinais de que as profecias para Israel podem se cumprir a qualquer momento ficamos alegres, pois seu cumprimento só poderá acontecer após a Igreja sair daqui. E hoje vemos “_a figueira e todas as árvores”_ brotando ([Lucas 21:29](http://bibliaonline.com.br/acf/lc/21/29)).
+
+Ao dizer aos discípulos, “_quando virem estas coisas acontecendo, saibam que o Reino de Deus está próximo”_ ([Lucas 21:31](http://bibliaonline.com.br/acf/lc/21/31)), Jesus não se dirigia a eles como Igreja, pois esta só viria a existir em [Atos 2](http://bibliaonline.com.br/acf/atos/2). Ele falava a um remanescente de judeus que “_esperavam a redenção de Jerusalém”_ ([Lucas 2:38](http://bibliaonline.com.br/acf/lc/2/38)), como foram Ana, Simeão e outros. Após Jesus ser rejeitado, morrer, ressuscitar e subir aos céus Deus enviou o Espírito Santo à terra, batizando os salvos num só corpo. Então a Igreja, o mistério guardado desde a eternidade, passou a existir reunindo judeus e gentios convertidos a Cristo.
+
+Jesus diz aos discípulos: “_Eu lhes asseguro que não passará esta geração até que todas essas coisas aconteçam” (_[Lucas 21:32](http://bibliaonline.com.br/acf/lc/21/32)). Alguns achavam que ele falava da geração dos discípulos, mas quando eles morreram sem que Cristo tivesse voltado em glória, ficou claro que a interpretação devia ser outra. Ele poderia estar se referindo à geração que visse a “_figueira e todas as árvores”_ brotando, ou seja, a atual. Apesar de não existir qualquer pré-requisito profético para o arrebatamento, esta interpretação nos levaria a cancelar o plano funerário, por assim dizer, já que somos a mesma geração que viu Israel ressurgir. A terceira possibilidade é que Jesus estaria falando de uma geração no sentido moral, de judeus que, à semelhança daqueles discípulos, estarão aguardando o Reino.
+
+Após o arrebatamento, além desse remanescente judeu fiel, ficarão na terra judeus e gentios incrédulos e também cristãos nominais que não foram arrebatados por nunca terem nascido de novo. “_Rejeitaram o amor à verdade que os poderia salvar”_ e não poderão mais crer. Será que você estaria entre os ‘_deixados para trás’_ que ouviram o evangelho e “_não creram na verdade”_? Ao contrário do que dizem nos filmes e livros sobre o tema, não haverá segunda chance para quem ouviu e não creu, pois “_Deus lhes envia um poder sedutor, a fim de que creiam na mentira, e sejam condenados todos os que não creram na verdade” (_[2Ts 2:10-12](http://bibliaonline.com.br/acf/2ts/2/10-12)). Quem foi evangelizado e não creu em Cristo será enganado e crerá no anticristo.
+
+tic-tac-tic-tac...
+
+*****

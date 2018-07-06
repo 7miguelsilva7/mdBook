@@ -1,0 +1,18 @@
+# Summary
+
+* [CARTAS AOS EVANGELISTAS - C. H. MACKINTOSH](README.md)
+* [PRIMEIRA PARTE](primeira_parte/README.md)
+  * [UMA PALAVRA AO EVANGELISTA](primeira_parte/uma_palavra_ao_evangelista.md)
+  * [UM LEMA PARA O EVANGELISTA](primeira_parte/um_lema_para_o_evangelista.md)
+  * [A OBRA DE UM EVANGELISTA](primeira_parte/a_obra_de_um_evangelista.md)
+  * [O QUE BUSCA COM SINCERIDADE](primeira_parte/o_que_busca_com_sinceridade.md)
+  * [O ENGANADOR](primeira_parte/o_enganador.md)
+  * [O PECADOR ENDURECIDO](primeira_parte/o_pecador_endurecido.md)
+* [SEGUNDA PARTE](segunda_parte/README.md)
+  * [PRIMEIRA CARTA — À Procura de Almas](segunda_parte/primeira_carta__a_procura_de_almas.md)
+  * [SEGUNDA CARTA — O Espírito Santo](segunda_parte/segunda_carta__o_espirito_santo.md)
+  * [TERCEIRA CARTA — A Palavra de Deus](segunda_parte/terceira_carta__a_palavra_de_deus.md)
+  * [QUARTA CARTA — A Oração](segunda_parte/quarta_carta__a_oracao.md)
+  * [QUINTA CARTA — Obra de Literatura](segunda_parte/quinta_carta__obra_de_literatura.md)
+  * [SEXTA CARTA — A Pregação do Evangelho](segunda_parte/sexta_carta__a_pregacao_do_evangelho.md)
+  * [SÉTIMA CARTA — A Escola Dominical](segunda_parte/setima_carta__a_escola_dominical.md)

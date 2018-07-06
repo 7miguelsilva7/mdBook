@@ -9,5 +9,6 @@ custom.js
 gerarLivro.sh
 img
 lista.txt
+paraConverter.txt
 README.md
 src

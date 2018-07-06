@@ -1,0 +1,15 @@
+# Da Lei para a graça {#da-lei-para-a-gra-a}
+
+[**Lucas 24:44-48**](http://bibliaonline.com.br/acf/lc/24/44-48)
+
+Aproxima-se o momento em que Jesus se despedirá de seus discípulos para subir aos céus. Ele lhes diz: “‘_Foi isso que eu lhes falei enquanto ainda estava com vocês: era necessário que se cumprisse tudo o que a meu respeito estava escrito na Lei de Moisés, nos Profetas e nos Salmos’. Então lhes abriu o entendimento, para que pudessem compreender as Escrituras”_ ([Lucas 24:44-45](http://bibliaonline.com.br/acf/lc/24/44-45)). A Lei, os profetas e os Salmos representavam todo o Antigo Testamento, porém nem os discípulos, que andaram por três anos com Jesus, seriam capazes de compreender as Escrituras se o Senhor não lhes abrisse o entendimento.
+
+O apóstolo Paulo deixa isso claro, ao dizer que “_o homem natural não compreende as coisas do Espírito de Deus, porque lhe parecem loucura; e não pode entendê-las, porque elas se discernem espiritualmente”_ (1 Co [2:14](http://bibliaonline.com.br/acf/1co/2/14)). Isto significa que o mais sábio incrédulo nunca será capaz de entender uma vírgula sequer da Bíblia, enquanto o mais iletrado crente absorve naturalmente os mistérios de Deus quando guiado pelo Espírito Santo. Entendeu agora a razão de não existir nada para você aprender em livros, filmes e novelas com temas bíblicos produzidos por incrédulos?
+
+Os discípulos aqui são vistos ainda no caráter de um remanescente judeu e no contexto do reino a ser estabelecido na terra. Ainda não são membros do corpo de Cristo, a Igreja, que só seria formada no [capítulo 2](http://bibliaonline.com.br/acf/atos/2) do livro de Atos. Mas as palavras de Jesus inauguram o evangelho da graça de Deus, que se resume nesta frase: “_O Cristo haveria de sofrer e ressuscitar dos mortos no terceiro dia, e que em seu nome seria pregado o arrependimento para perdão de pecados a todas as nações, começando por Jerusalém. Vocês são testemunhas destas coisas”_ ([Lucas 24:46-48](http://bibliaonline.com.br/acf/lc/24/46-48)).
+
+João escreveu que “_a Lei foi dada por intermédio de Moisés; a graça e a verdade vieram por intermédio de Jesus Cristo”_ ([Jo 1:17](http://bibliaonline.com.br/acf/jo/1/17)), e Paulo pregou aos Coríntios a boa nova de “_que Cristo morreu pelos nossos pecados, segundo as Escrituras, foi sepultado e ressuscitou ao terceiro dia, segundo as Escrituras”_ ([1 Co 15:1-4](http://bibliaonline.com.br/acf/1co/15/1-4)). Este evangelho de Lucas, que começou com uma cena tipicamente judaica e terrena, com o sacerdote Zacarias ocupado com a Lei e os serviços do Templo, termina abrindo os céus e inaugurando o evangelho da graça de Deus. A partir daí os discípulos não mais sairão pregando preceitos da Lei, mas a salvação pela fé em Cristo, que morreu e ressuscitou. E você, será que está entre aqueles que ainda pregam a Lei e uma salvação baseada em obras?
+
+tic-tac-tic-tac...
+
+*****

@@ -1,0 +1,15 @@
+# Pare de duvidar e creia! {#pare-de-duvidar-e-creia}
+
+[**Lucas 24:9-12**](http://bibliaonline.com.br/acf/lc/24/9-12)
+
+“_Quando [as mulheres] voltaram do sepulcro, contaram todas estas coisas aos Onze e a todos os outros... Mas eles não acreditaram nas mulheres; as palavras delas lhes pareciam loucura. Pedro, todavia, levantou-se e correu ao sepulcro. Abaixando-se, viu as faixas de linho e mais nada; afastou-se, e voltou admirado com o que acontecera” (_[_Lucas 24:9-12_](http://bibliaonline.com.br/acf/lc/24/9-12)_). Aqui só fala de Pedro e de como teria ficado “admirado”, mas em outro Evangelho vemos que ele estava acompanhado de João na visita ao sepulcro vazio, e este, chegando lá, “viu e creu” (_[_Jo 20:8_](http://bibliaonline.com.br/acf/jo/20/8)_). Creu em que, se no sepulcro restavam apenas “as faixas de linho e mais nada” (_[_Lucas 24:12_](http://bibliaonline.com.br/acf/lc/24/12)_;_ [_Jo 20:6-7_](http://bibliaonline.com.br/acf/jo/20/6-7)_)? Creu nas Escrituras que previam a morte e ressurreição do Messias, e nas palavras de Jesus._
+
+Naquele primeiro dia da semana, e nos demais do período de quarenta dias que Jesus ainda ficaria na terra, muitos teriam o privilégio de vê-lo, e outros creriam pelo testemunho destes. O Evangelho de Marcos nos diz que “_quando Jesus ressuscitou, na madrugada do primeiro dia da semana, apareceu primeiramente a Maria Madalena, de quem havia expulsado sete demônios”_ ([Mc 16:9](http://bibliaonline.com.br/acf/mc/16/9)). Vemos que apareceu também a Pedro, antes do encontro com dois discípulos no caminho de Emaús.
+
+Em sua carta aos Coríntios, Paulo diz que Jesus “_Apareceu a Pedro e depois aos Doze. Depois disso apareceu a mais de quinhentos irmãos de uma só vez... Depois apareceu a Tiago e, então, a todos os apóstolos” (_1 Co [15:5-8](http://bibliaonline.com.br/acf/1co/15/5-8)). Ele não menciona as mulheres, pois na época elas não eram tidas como testemunhas. Embora então só restassem onze apóstolos, Paulo fala de Jesus ter aparecido “_aos doze”_, tratando-os como um corpo administrativo, algo como quando dizemos que o Congresso aprovou uma lei, mesmo que nem todos os congressistas estivessem presentes à sessão.
+
+Não sabemos quantos desses creram na ressurreição antes de terem visto o Ressuscitado. O que sabemos é que Tomé não creu enquanto não o viu com seus próprios olhos e foi convidado a tocar em seu corpo. Talvez você considere Tomé feliz por tamanho privilégio, mas não é o que Jesus pensa dos que querem ver para crer. “_Disse-lhe Tomé: ‘Senhor meu e Deus meu!’ Então Jesus lhe disse: ‘Porque me viu, você creu? Felizes os que não viram e creram’.”_ Talvez a reprimenda feita a Tomé sirva para você, caso esteja vacilando em aceitar o evangelho, ou se for um daqueles que vivem correndo atrás de sinais, curas e milagres: “_Pare de duvidar e creia”_, Jesus disse a Tomé e diz o mesmo a você e a mim ([Jo 20:27-29](http://bibliaonline.com.br/acf/jo/20/27-29)).
+
+tic-tac-tic-tac...
+
+*****

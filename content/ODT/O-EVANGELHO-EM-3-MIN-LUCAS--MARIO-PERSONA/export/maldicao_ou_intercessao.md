@@ -1,0 +1,15 @@
+# Maldição ou intercessão? {#maldi-o-ou-intercess-o}
+
+[**Lucas 18:1-8**](http://bibliaonline.com.br/acf/lc/18/1-8)
+
+Como você já viu, a parábola da viúva que roga ao injusto juiz está no contexto do judaísmo e para o remanescente de judeus fiéis que habitarão na terra após o arrebatamento da Igreja. É um erro pensar que a viúva aqui represente a Igreja, pois esta não é viúva, e sim “_noiva, a esposa do Cordeiro”_ ([Ap 21:9](http://bibliaonline.com.br/acf/ap/21/9)), uma “_virgem pura”_ ([2 Co 11:2](http://bibliaonline.com.br/acf/2co/11/2)) pela qual Cristo “_entregou-se a si mesmo por ela para santificá-la, tendo-a purificado pelo lavar da água mediante a palavra, e apresentá-la a si mesmo como igreja gloriosa, sem mancha nem ruga ou coisa semelhante, mas santa e inculpável” (_[Ef 5:25-27](http://bibliaonline.com.br/acf/ef/5/25-27)). Mas de Jerusalém o profeta diz: “_Como se parece com uma viúva, a que antes era grandiosa entre as nações” (_[Lm 1:1](http://bibliaonline.com.br/acf/lm/1/1)).
+
+Outro detalhe é que a viúva da parábola não roga pelo pão diário ou por outra necessidade, mas por vingança. Ela diz: “_Faze-me justiça contra o meu adversário”_ ([Lucas 18:3](http://bibliaonline.com.br/acf/lc/18/3)). Esse tipo de oração fazia sentido para Israel, que tinha inimigos de carne e ossos contra os quais lutar, mas não para a Igreja, cuja “_luta não é contra pessoas, mas contra... as forças espirituais do mal nas regiões celestiais” (_[Ef 6:12](http://bibliaonline.com.br/acf/ef/6/12)). Este detalhe passa despercebido para a maioria dos cristãos que acreditam que as promessas feitas a Israel se apliquem à Igreja. Por isso você encontra tantos hinos evangélicos falando de maldição, vingança e vitória sobre os adversários.
+
+_Alguém poderia alegar que tudo isso é encontrado nos Salmos, mas este é o ponto: os Salmos não são hinos cristãos. Se você discorda, tente cantar algo com estes versos tirados dos Salmos: “Certamente Deus esmagará a cabeça dos [meus] inimigos, o crânio cabeludo dos que persistem em seus pecados... para que [eu] encharque os pés no sangue dos inimigos, sangue do qual a língua dos cães terá a sua porção... Puseste os meus inimigos em fuga e exterminei os que me odiavam... Fiquem órfãos os seus filhos e a sua esposa, viúva. Vivam os seus filhos vagando como mendigos... Feliz aquele que pegar os seus filhos e os despedaçar contra a rocha!” (_[_Sl 68:21-23_](http://bibliaonline.com.br/acf/sl/68/21-23)_;_ [_18:40_](http://bibliaonline.com.br/acf/sl/18/40)_;_ [_109:9-10_](http://bibliaonline.com.br/acf/sl/109/9-10)_;_ [_137:9_](http://bibliaonline.com.br/acf/sl/137/9)_)._
+
+_Todavia, na doutrina dos apóstolos aprendemos a interceder pelos que nos fazem mal: “Abençoem aqueles que os perseguem; abençoem, e não os amaldiçoem... Se o seu inimigo tiver fome, dê-lhe de comer; se tiver sede, dê-lhe de beber... Não se deixem vencer pelo mal, mas vençam o mal com o bem” (_[_Rm 12:14, 20-21_](http://bibliaonline.com.br/acf/rm/12/14,20-21)_). Deu para perceber que cristianismo não é uma fé motivacional de prosperidade, vingança e vitória?_
+
+tic-tac-tic-tac...
+
+*****

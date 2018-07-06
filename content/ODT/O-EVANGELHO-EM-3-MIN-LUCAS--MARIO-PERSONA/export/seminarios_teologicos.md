@@ -1,0 +1,15 @@
+# Seminários teológicos? {#semin-rios-teol-gicos}
+
+[**Lucas 20:45-47**](http://bibliaonline.com.br/acf/lc/20/45-47)
+
+Recebi um e-mail de alguém em dúvida se devia ler ou não meus livros de comentários bíblicos, pois não encontrou em meu currículo uma formação em teologia. Os cristãos se acostumaram ao modelo judaico de sacerdotes, escribas e doutores da Lei, e não percebem que isso não existe na Igreja. No judaísmo havia um clero intermediando os homens e Deus, mas não na Igreja. Nela todos são “_sacerdócio santo, oferecendo sacrifícios espirituais aceitáveis a Deus, por meio de Jesus Cristo” (_[1 Pe 2:5](http://bibliaonline.com.br/acf/1pe/2/5)). Hoje alguém que adote o título de “_sacerdote”_ para se distinguir de outros cristãos é um impostor. Todos desfrutam igualmente de “_plena confiança para entrar no Santo dos Santos pelo sangue de Jesus” (_[Hb 10:19](http://bibliaonline.com.br/acf/hb/10/19)).
+
+_Mas não deveria existir na Igreja pessoas aptas a ensinarem as Escrituras? Certamente, e para isso Cristo “deu dons aos homens... com o fim de preparar os santos para a obra do ministério, para que o corpo de Cristo seja edificado” (_[_Ef 4:8-12_](http://bibliaonline.com.br/acf/ef/4/8-12)_). Aprendemos dos dons nas reuniões da igreja, onde “todos podem profetizar”, que significa proferir algo da Palavra de Deus, “de forma que todos sejam instruídos e encorajados” (_[_1 Co 14:31_](http://bibliaonline.com.br/acf/1co/14/31)_). E podemos adotar a sugestão de Paulo a Timóteo: “As coisas que me ouviu dizer na presença de muitas testemunhas, confie a homens fiéis que sejam também capazes de ensinar a outros” (_[_2Tm 2:2_](http://bibliaonline.com.br/acf/2tm/2/2)_)._
+
+Alguém poderá dizer: “_Ah! Eis aí o fundamento para os seminários teológicos!”_. Será? Observe que Paulo fala de transmitir a “_sã doutrina”_ ([2Tm 1:13](http://bibliaonline.com.br/acf/2tm/1/13)) que Timóteo havia escutado dele e que hoje temos nas epístolas, e não na filosofia, sociologia, psicologia, etc., ensinadas nos seminários. O critério para decidir a quem ensinar não seria a capacidade intelectual dos alunos, mas que fossem “_homens fiéis”_. E tudo o que receberiam seria ensino, e não investidura de autoridade e poder sobre os irmãos.
+
+O modelo judaico de “_mestres da lei”_produziu uma classe de homens versados nas Escrituras, porém inimigos de Deus. Foram eles que ajudaram Herodes quando quis matar o menino Jesus ([Mt 2](http://bibliaonline.com.br/acf/mt/2/)). Serão também os líderes de uma cristandade sem Cristo, a “_grande prostituta”_de [Apocalipse 17](http://bibliaonline.com.br/acf/ap/17), os instrumentos do diabo para perseguir os judeus fiéis na “_grande tribulação”_([Ap 7:14](http://bibliaonline.com.br/acf/ap/7/14)). Por isso Jesus aqui alerta seus discípulos: “_Cuidado com os mestres da lei. Eles fazem questão de andar com roupas especiais, e gostam muito de receber saudações nas praças e de ocupar os lugares mais importantes... e para disfarçar, fazem longas orações. Esses homens serão punidos com maior rigor!”_([Lucas 20:45-47](http://bibliaonline.com.br/acf/lc/20/45-47)).
+
+tic-tac-tic-tac...
+
+*****

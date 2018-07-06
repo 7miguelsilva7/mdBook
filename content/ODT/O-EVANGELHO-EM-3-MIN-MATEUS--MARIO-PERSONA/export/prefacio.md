@@ -1,0 +1,29 @@
+# Prefácio {#pref-cio}
+
+Em 2008 decidi publicar uma série de mensagens evangelísticas em formato vídeo na Internet. Usando da experiência que havia adquirido desde 2006 publicando meus vídeos profissionais no canal “TV Barbante” no Youtube, criei a série “O Evangelho em 3 Minutos”.
+
+Durante minha leitura da Bíblia em meu notebook, eu fazia anotações à medida que lia o texto dos Evangelhos e consultava comentários de outros autores. Sempre que o assunto exigia, comentava passagens de outros livros, antes de voltar ao texto do evangelho em questão. Cada comentário tinha um número aproximado de palavras que permitisse a leitura em pouco mais de três minutos. Nos finais de semana eu gravava em vídeo as mensagens em casa, os quais eram depois publicados na Web em versão vídeo, texto e áudio. O texto deste livro é o resultado daquelas anotações.
+
+Você irá reparar que os textos são enxutos, com frases curtas, linguagem coloquial e poucos recursos literários, foram criados na forma de script especialmente para locução. O objetivo principal das mensagens é o de evangelizar, todavia, considerando a enorme confusão de igrejas e doutrinas em que se transformou a cristandade, eventualmente falo de outros assuntos igualmente importantes para aqueles que já creem em Jesus.
+
+Um assunto recorrente nos textos é total inexistência de fundamento bíblico para a criação das diferentes denominações religiosas que dividem os crentes em Cristo. Outro assunto várias vezes abordado é o da segurança eterna, algo que infelizmente muitos cristãos não desfrutam por viverem sob a pressão de líderes e doutrinas distorcidas. Historicamente o clero, que foi criado na cristandade já nos primeiros séculos após a morte dos apóstolos, nunca apreciou que os cristãos se considerassem eternamente salvos e esclarecidos acerca das verdades da Bíblia. Manter as pessoas na ignorância e incerteza sempre foi uma arma poderosa nas mãos do clero, seja ele católico ou protestante.
+
+Apesar de ler regularmente a Bíblia na versão Almeida Revista e Corrigida, nesta série de mensagens feitas inicialmente para serem narradas preferi utilizar as citações da Nova Versão Internacional, principalmente por usar um português mais coloquial. Sempre que necessário, seja por imprecisão da tradução da NVI, seja para tornar a passagem mais clara, faço as citações a partir da versão Almeida Corrigida ou Almeida Atualizada, além de eventualmente fazer uma tradução livre da versão J. N. Darby para a melhor compreensão da passagem. Pela própria informalidade do meio vídeo, para o qual as mensagens foram criadas, o leitor entenderá que não está diante de uma obra erudita ou de um estudo aprofundado.
+
+Um dos recursos adotados no texto foi o de usar o tempo dos verbos no presente, como se a ação do evangelho estivesse se passando no exato momento em que lemos. Isto torna a narrativa mais viva e atual, ajudando o leitor a se envolver na ação que se desdobra diante de seus olhos. Outro recurso adotado foi o que costumo chamar de “técnica de Sherazade”, nome da princesa da obra “As Mil e Uma Noites”. No romance ela usava deste expediente para não ser morta ao final de sua noite de núpcias. A técnica consiste em terminar cada episódio (no vídeo) ou capítulo (no livro) com uma chamada prévia para o que irá ocorrer no próximo. Isto ajuda a manter o interesse do leitor e o leva a se interessar pelo que irá acontecer em seguida.
+
+Além destes recursos, optei também por não usar caixa alta na primeira letra dos pronomes relativos à divindade. Portanto, ao me referir ao Pai, Filho ou Espírito Santo, utilizo “ele” ao invés de “Ele” e “seu” em lugar de “Seu”. De maneira nenhuma isto implica em desrespeito ou irreverência, mas é apenas para manter o texto graficamente mais leve. Esta é também a forma adotada na maioria das edições da Bíblia. Na época em que foram escritos os manuscritos não havia maiúsculas ou minúsculas, mas todos os caracteres tinham o mesmo formato.
+
+Alguns podem se surpreender de eu na maioria das vezes usar o nome “Jesus” sem precedê-lo de “Senhor”. Mais uma vez, isto não se trata de falta de reverência ou reconhecimento do senhorio de Cristo, mas apenas do fato de estar escrevendo principalmente para pessoas que ainda não conhecem o evangelho e muito menos a nomenclatura normalmente utilizada pelos cristãos. Para quem não sabe que “Jesus” é o “Senhor”, dizer frases identificando a Pessoa de Jesus apenas como “Senhor” pode criar dúvidas para um leitor menos experimentado na Bíblia. Além disso, encontramos nos evangelhos e epístolas um número maior de vezes em que o nome de Jesus aparece sem estar precedido de “Senhor” sempre que o texto é narrativo. Porém — e isto é muito importante — nunca encontramos um ser humano dirigir-se a Jesus, pessoalmente ou em oração, sem chamá-lo de “Senhor Jesus”. Os únicos, nos evangelhos, que se dirigem a ele sem tratá-lo por Senhor são os demônios, como em [Marcos 5:7](http://bibliaonline.com.br/acf/mc/5/7).
+
+Para que você aproveite ao máximo a leitura deste livro, tenha sua Bíblia à mão e leia antes a passagem indicada no início de cada capítulo. Sem a leitura bíblica os meus comentários não farão muito sentido para você e você perderá boa parte da compreensão do contexto. No momento em que reviso este material para o formato livro, os vídeos na Web já passam de quatro milhões de visualizações. Que Deus possa ser glorificado neste trabalho e que muitas almas sejam salvas e abençoadas por sua Palavra.
+
+Mario Persona
+
+[www.3minutos.net](http://www.3minutos.net/)
+
+Agosto, 2013
+
+&quot;Então o Senhor me respondeu, e disse: Escreve a visão e torna bem legível sobre tábuas, para que a possa ler quem passa correndo&quot;. [Habacuque 2:2](http://bibliaonline.com.br/acf/hc/2/2)
+
+tic-tac-tic-tac...

@@ -1,0 +1,7 @@
+## A OBRA DE UM EVANGELISTA {#a-obra-de-um-evangelista}
+
+[**Atos 16:8-31**](http://bibliaonline.com.br/acf/atos/16/8-31)
+
+PRETENDEMOS OFERECER uma palavra ao evangelista, o que continuaremos a fazer agora com um capítulo sobre a obra do evangelista; e não poderíamos fazer melhor do que selecionar, como base para nossas observações, uma página do registro missionário de um dos maiores evangelistas que já existiu. A passagem das Escrituras que aparece no início deste capítulo provê amostras de três classes distintas de ouvintes, e também os métodos usados pelo grande apóstolo dos gentios, guiado, com toda certeza, pelo Espírito Santo.
+
+Temos, primeiramente, _aquele que busca com sinceridade; depois, o falso professo;_ e finalmente, _o pecador endurecido_. Estas três classes de pessoas são encontradas em todo lugar, e em todas as épocas, pelo obreiro do Senhor; e por esta razão podemos ficar grat por dispormos de um registro inspirado da maneira correta de se tratar com cada uma delas. É extremamente desejável que aqueles que seguem levando o evangelho estejam aptos para tratar com as várias condições de alma que encontrarão no dia a dia; e não pode haver um modo mais eficaz de se obter tal aptidão do que estudar cuidadosamente os modelos que nos foram dados pelo Espírito Santo de Deus.

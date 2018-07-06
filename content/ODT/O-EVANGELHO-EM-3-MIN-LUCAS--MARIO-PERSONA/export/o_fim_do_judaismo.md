@@ -1,0 +1,17 @@
+# O fim do judaísmo {#o-fim-do-juda-smo}
+
+[**Lucas 13:6-9**](http://bibliaonline.com.br/acf/lc/13/6-9)
+
+_Após denunciar o orgulho individual de alguns judeus, que se consideravam melhores que os outros, Jesus revela o orgulho nacional do povo usando de uma parábola: “Um homem tinha uma figueira plantada em sua vinha. Foi procurar fruto nela, e não achou nenhum. Por isso disse ao que cuidava da vinha: ‘Já faz três anos que venho procurar fruto nesta figueira e não acho. Corte-a! Por que deixá-la inutilizar a terra? ‘ Respondeu o homem: ‘Senhor, deixe-a por mais um ano, e eu cavarei ao redor dela e a adubarei. Se der fruto no ano que vem, muito bem! Se não, corte-a’” (_[_Lucas 13:6-9_](http://bibliaonline.com.br/acf/lc/13/6-9)_)._
+
+Se você quiser entender o Novo Testamento deve ter sempre em mente o que João diz sobre Jesus em seu evangelho: “_Veio para o que era seu, mas os seus não o receberam. Contudo, aos que o receberam, aos que creram em seu nome, deu-lhes o direito de se tornarem filhos de Deus”_ ([Jo 1:11-12](http://bibliaonline.com.br/acf/jo/1/11-12)). Repare que o primeiro advento ou vinda de Jesus tem duas etapas. Primeiro, ele veio para o que era seu, isto é, os judeus. Como os seus não o receberam, ele passou a tratar com judeus e gentios que o receberam pela fé, fazendo deles filhos de Deus.
+
+Portanto, ao ler os evangelhos, pergunte sempre: “O que isto tem a ver com os judeus?”. Somente depois é que você deve tentar identificar se existe algo que possa ser aplicado de forma direta ou indireta a você. Vemos que este capítulo está claramente relacionado aos judeus. Se perguntarmos ao profeta Isaías que vinha ou fazenda é esta, e o que significa a planta figueira, teremos a resposta: “_A vinha do Senhor dos Exércitos é a nação de Israel, e os homens de Judá são a planta que ele amava”_ ([Is 5:7](http://bibliaonline.com.br/acf/is/5/7)).
+
+Durante tempo suficiente — os três anos mencionados na parábola — Deus procurou fruto em sua vinha, Israel, e não encontrou. Depois que a nação foi dividida tudo o que sobrou foi um pequeno remanescente — Judá e Benjamim — que voltou a Jerusalém para reconstruir a cidade e o Templo. Estes são os judeus e, como a figueira da parábola, representam a planta que devia ter dado fruto, porém não deu. Deus mandou que a figueira fosse cortada, isto é, que fosse dado um fim naquele testemunho. Porém um intercessor suplica: “_Deixe-a por mais um ano, e eu cavarei ao redor dela e a adubarei. Se der fruto no ano que vem, muito bem! Se não, corte-a”_ ([Lucas 13:8-9](http://bibliaonline.com.br/acf/lc/13/8-9)).
+
+O que intercede é o próprio Senhor Jesus e este “_mais um ano”_ representa o tempo de seu ministério entre os judeus. Apesar de dar à figueira todas as condições para que desse fruto, isto não aconteceu e ela acabaria sendo cortada totalmente no ano 70 D.C. quando o Templo de Jerusalém foi destruído e o judaísmo se transformou em mera recordação. Os judeus que hoje existem não podem praticar sua religião sem o Templo e sem sacrifícios, por isso mantêm apenas uma casca ou aparência daquilo que era no passado. Mas o recado de Jesus aos judeus não termina aí, como veremos nos próximos 3 minutos.
+
+tic-tac-tic-tac...
+
+*****

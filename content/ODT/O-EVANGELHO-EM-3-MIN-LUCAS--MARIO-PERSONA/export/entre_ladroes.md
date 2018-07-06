@@ -1,0 +1,15 @@
+# Entre ladrões {#entre-ladr-es}
+
+[**Lucas 23:32-43**](http://bibliaonline.com.br/acf/lc/23/32-43)
+
+“_Quando chegaram ao lugar chamado Caveira, ali o crucificaram com os criminosos, um à sua direita e o outro à sua esquerda... Um dos criminosos que ali estavam dependurados lançava-lhe insultos: ‘Você não é o Cristo? Salve-se a si mesmo e a nós!’ Mas o outro criminoso o repreendeu, dizendo: ‘Você não teme a Deus, nem estando sob a mesma sentença? Nós estamos sendo punidos com justiça, porque estamos recebendo o que os nossos Atos merecem. Mas este homem não cometeu nenhum mal’” (Lucas_ [_23:32-33, 39-41_](http://bibliaonline.com.br/acf/lc/23/32,33,39-41)_)._
+
+_Mateus e Marcos dizem que “igualmente o insultavam os ladrões que haviam sido crucificados com ele” (_[_Mt 27:44_](http://bibliaonline.com.br/acf/mt/27/44)_;_ [_Mc 15:32_](http://bibliaonline.com.br/acf/mc/15/32)_), portanto algo fez com que um dos malfeitores parasse de ofender a Jesus. O que o teria feito mudar de ideia? Certamente as palavras de Jesus intercedendo por seus algozes: “Pai, perdoa-lhes, pois não sabem o que estão fazendo” (_[_Lucas 23:34_](http://bibliaonline.com.br/acf/lc/23/34)_). João e Paulo_ _explicam que “Deus enviou o seu Filho ao mundo, não para condenar o mundo, mas para que este fosse salvo por meio dele... Deus em Cristo estava reconciliando consigo o mundo, não lançando em conta os pecados dos homens” (_[_Jo 3:17_](http://bibliaonline.com.br/acf/jo/3/17)_;_ [_2 Co 5:19_](http://bibliaonline.com.br/acf/2co/5/19)_)._
+
+Neste ladrão vemos a conversão do pecador. Ele é um condenado prestes a morrer e se perder eternamente, mas não parece ligar para isso, como qualquer pessoa que “_pensa que escapará do juízo de Deus”_. Ele insulta Jesus, como muitos fazem, sem perceber que “_está acumulando ira contra si mesmo, para o dia da ira de Deus, quando se revelará o seu justo julgamento e Deus retribuirá a cada um conforme o seu procedimento”_ ([Rm 2:3-6](http://bibliaonline.com.br/acf/rm/2/3-6)). Porém, quando escuta as palavras de bondade ditas por Jesus, é como se despertasse para a exortação: “_Será que você despreza as riquezas da sua bondade, tolerância e paciência, não reconhecendo que a bondade de Deus o leva ao arrependimento?”_ ([Rm 2:4](http://bibliaonline.com.br/acf/rm/2/4)).
+
+Portanto, não é você, de si mesmo, quem se arrepende, como se fosse uma boa obra sua, mas é a bondade de Deus que o leva a arrepender-se, pois o Espírito Santo é quem convence “_do pecado, da justiça e do juízo”_ ([Jo 16:8](http://bibliaonline.com.br/acf/jo/16/8)). E, uma vez arrependido, você passa a condenar-se a si mesmo — como fez o ladrão — e a justificar a Deus. Então vem o pedido de um que deposita toda a sua fé e confiança em Jesus: “_Lembra-te de mim quando entrares no teu Reino”_. Será que Jesus respondeu ao ladrão: “_Ok, então desça daí, arrume sua vida, seja batizado, filie-se a uma igreja e depois venha falar comigo”_? Não, ele apenas disse: “_Eu lhe garanto: Hoje você estará comigo no paraíso”_ ([Lucas 23:42-43](http://bibliaonline.com.br/acf/lc/23/42-43)).
+
+tic-tac-tic-tac...
+
+*****

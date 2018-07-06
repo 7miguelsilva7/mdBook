@@ -1,0 +1,15 @@
+# Muitos, mas não todos {#muitos-mas-n-o-todos}
+
+[**Lucas 22:19-20**](http://bibliaonline.com.br/acf/lc/22/19-20)
+
+Apesar de Cristo ter morrido e ressuscitado, cumprindo todas as demandas da justiça divina concernentes ao pecado, ainda não vemos isso realizado no mundo. A razão é que a salvação é pela fé, e não pelo que vemos, “_pois nessa esperança fomos salvos. Mas, esperança que se vê não é esperança. Quem espera por aquilo que está vendo? Mas se esperamos o que ainda não vemos, aguardamo-lo pacientemente” (_[Rm 8:24](http://bibliaonline.com.br/acf/rm/8/24)).
+
+“_Pois é necessário que ele reine até que todos os seus inimigos sejam postos debaixo de seus pés. O último inimigo a ser destruído é a morte” (_[_1 Co 15:25-26_](http://bibliaonline.com.br/acf/1co/15/25-26)_). “Agora, porém, ainda não vemos que todas as coisas lhe estejam sujeitas. Vemos, todavia, aquele que por um pouco foi feito menor do_ _que os anjos, Jesus, coroado de honra e glória por ter sofrido a morte, para que, pela graça de Deus, em favor de todos, experimentasse a morte. Ao levar muitos filhos à glória, convinha que Deus, por causa de quem e por meio de quem tudo existe, tornasse perfeito, mediante o sofrimento, o autor da salvação deles” (_[_Hb 2:8-10_](http://bibliaonline.com.br/acf/hb/2/8-10)_)._
+
+Mas se o Cordeiro de Deus experimentou a morte “_em favor de todos”_ ([Hb 2:9](http://bibliaonline.com.br/acf/hb/2/9)), por que nem todos serão salvos? Pela mesma estranha razão de alguns casos de sequestro. Quando um governo paga o resgate de um grupo de cidadãos sequestrados por extremistas, nem sempre todos voltam aos seus lares. Alguns se convertem à causa ou se apaixonam pelo inimigo e decidem ficar. O resgate foi pago por todos, mas nem todos foram salvos. Cristo “_morreu por todos”_ ([2 Co 5:14](http://bibliaonline.com.br/acf/2co/5/14)) e o preço pago foi suficiente para que nenhum se perdesse. Porém, “_oferecendo-se uma vez para tirar os pecados_ **_de muitos_**_, aparecerá segunda vez, sem pecado,_ **_aos que o esperam para salvação_**” _(_[Hb 9:28](http://bibliaonline.com.br/acf/hb/9/28)).
+
+Você só será salvo se estiver entre os que “_o esperam para salvação”_([Hb 9:28](http://bibliaonline.com.br/acf/hb/9/28)), e isto implica não estar apaixonado pelo inimigo. O pecado do mundo foi resolvido pela obra da cruz, mas os pecados de cada um precisam ser perdoados. Se é verdade que na cruz Jesus morreu para tirar o pecado do mundo, também é certo que ali “_ele carregou o pecado de muitos”_([Is 53:12](http://bibliaonline.com.br/acf/is/53/12)), não de todos. Ao crer em Cristo você desfrutará dos mesmos benefícios prometidos a Israel na nova aliança: “_Eu lhes perdoarei a maldade e não me lembrarei mais dos seus pecados” (_[Hb 8:12](http://bibliaonline.com.br/acf/hb/8/12)). Mas, se persistir na incredulidade, “_já não resta sacrifício pelos pecados, mas tão-somente uma terrível expectativa de juízo e de fogo intenso que consumirá os inimigos de Deus” (_[Hb 10:26](http://bibliaonline.com.br/acf/hb/10/26)).
+
+tic-tac-tic-tac...
+
+*****

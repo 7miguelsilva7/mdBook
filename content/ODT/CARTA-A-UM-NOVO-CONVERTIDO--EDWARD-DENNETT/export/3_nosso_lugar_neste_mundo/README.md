@@ -1,0 +1,5 @@
+# 3 Nosso lugar neste mundo {#3-nosso-lugar-neste-mundo}
+
+Prezado irmão,
+
+Em minha última carta procurei mostrar a você nosso lugar — como crentes — diante de Deus; e agora gostaria de dirigir sua atenção para nosso lugar aqui neste mundo; e veremos, creio eu, que isto também está ligado a Cristo. Assim como é certo que estamos identificados com Cristo diante de Deus no que se refere à nossa posição, estamos também identificados com Cristo diante do mundo. Em outras palavras, somos colocados em Seu lugar aqui, assim como estamos nele diante de Deus; e tenho certeza de que seria de muito proveito se tivéssemos esta verdade continuamente diante de nossa alma. Há, porém, dois aspectos que se referem ao nosso lugar nesta Terra e é importante que ambos sejam bem compreendidos. O primeiro aspecto está relacionado com o mundo e o segundo com o _&quot;arraial&quot;_, isto é, o cristianismo organizado de nossos dias, que nesta dispensação tomou o lugar do judaísmo como testemunho de Deus. Leia [Romanos 11](http://rm:11/) e compare com o [capítulo 13 de Mateus](http://bibliaonline.com.br/acf/mt/13).

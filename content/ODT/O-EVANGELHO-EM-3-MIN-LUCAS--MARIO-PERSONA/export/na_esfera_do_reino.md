@@ -1,0 +1,15 @@
+# Na esfera do Reino {#na-esfera-do-reino}
+
+[**Lucas 19:11**](http://bibliaonline.com.br/acf/lc/19/11)
+
+No episódio anterior Jesus declarou que a salvação havia entrado na casa de Zaqueu, mas não por merecimento de Zaqueu. A salvação é recebida por fé, a mesma fé de Abraão, chamado de “_pai de todos os que creem”_ ([Rm 4:9-11](http://bibliaonline.com.br/acf/rm/4/9-11)). Agora Jesus vai falar da responsabilidade daquele que crê com o coração e com a boca confessa que Cristo é seu Senhor. Se a salvação é recebida por graça e mediante a fé, a recompensa é recebida pelas obras e pelo modo como o crente utiliza o que recebeu de Deus.
+
+_Mas antes Jesus precisava esclarecer algo. Com sua presença no mundo aqueles judeus “foram iluminados, provaram o dom celestial, tornaram-se participantes do Espírito Santo, experimentaram a bondade da palavra de Deus e os poderes da era que há de vir” (_[_Hb 6:4-5_](http://bibliaonline.com.br/acf/hb/6/4-5)_), ou seja, do reino do Messias. Agora, “porque [Jesus] estava perto de Jerusalém o povo pensava que o Reino de Deus ia se manifestar de imediato” (_[_Lucas 19:11_](http://bibliaonline.com.br/acf/lc/19/11)_). Porém os profetas indicavam uma ausência do Messias entre sua primeira vinda e o estabelecimento do Reino em glória. O profeta Daniel dissera: “O Ungido será morto, e já não haverá lugar para ele” (_[_Dn 9:26_](http://bibliaonline.com.br/acf/dn/9/26)_)._
+
+O Reino de Deus aparece em diferentes aspectos no Novo Testamento. João Batista veio como precursor do Rei para anunciar esse reino. Seu discurso era: “_O tempo é chegado... O Reino de Deus está próximo”_ ([Mc 1:15](http://bibliaonline.com.br/acf/mc/1/15)). Então, no início de seu ministério, Jesus declarou, “_O Reino de Deus está entre vocês”_ ([Lucas 17:21](http://bibliaonline.com.br/acf/lc/17/21)), pois ele, o Rei, estava entre eles ainda que o reino não tivesse sido estabelecido em poder. Após Jesus morrer, ressuscitar e subir aos céus, o Reino permanece na terra em sua ausência e dele fazem parte os que se sujeitam a Cristo, vivendo segundo os princípios que ele estabeleceu para o seu Reino. Esses são os “_bem aventurados”_ dos [capítulos 5](http://bibliaonline.com.br/acf/mt/5) de Mateus e [6 de Lucas](http://bibliaonline.com.br/acf/lc/6).
+
+Fica fácil entender se nos lembrarmos da História do Brasil. Quando D. João VI transferiu o reino para as terras brasileiras, Portugal foi invadido e dominado por Napoleão. Os portugueses que continuaram a viver em Portugal permaneceram sujeitos a um rei ausente, falando a língua e praticando os costumes desse reino, mesmo vivendo em terras tomadas pela França. Assim vivem os cristãos no Reino de Deus, um reino cujo Rei viajou para o céu e prometeu voltar. E é exatamente assim que Jesus começa a parábola que veremos nos próximos 3 minutos, quando “_um homem de nobre nascimento foi para uma terra distante para ser coroado rei e depois voltar” (_[Lucas 19:12](http://bibliaonline.com.br/acf/lc/19/12)).
+
+tic-tac-tic-tac...
+
+*****

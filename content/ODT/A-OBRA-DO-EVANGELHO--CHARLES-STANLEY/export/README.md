@@ -1,4 +1,4 @@
-# A OBRA DO EVANGELHO CHARLES STANLEY {#a-obra-do-evangelho-charles-stanley}
+# A OBRA DO EVANGELHO - CHARLES STANLEY {#a-obra-do-evangelho-charles-stanley}
 
 A Obra do Evangelho
 

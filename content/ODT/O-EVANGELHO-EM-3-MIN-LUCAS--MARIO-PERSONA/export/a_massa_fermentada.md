@@ -1,0 +1,17 @@
+# A massa fermentada {#a-massa-fermentada}
+
+[**Lucas 13:20-21**](http://bibliaonline.com.br/acf/lc/13/20-21)
+
+Mais uma vez Jesus faz uma previsão negativa a respeito do crescimento anormal do testemunho de Deus, hoje representado pela cristandade. Agora é a vez de você passar uma borracha no que aprendeu dos teólogos e líderes religiosos sobre o significado da massa fermentada. Jesus volta a fazer uma pergunta seguida da resposta na forma de uma figura: “_A que compararei o Reino de Deus? É como o fermento que uma mulher misturou com uma grande quantidade de farinha, e toda a massa ficou fermentada”_ ([Lucas 13:20-21](http://bibliaonline.com.br/acf/lc/13/20-21)).
+
+Assim como aconteceu com a semente de mostarda, que cresceu além do normal até virar uma aberração, a massa também representa um crescimento da cristandade no mundo, porém causado por fermento. Tente encontrar na Bíblia um significado positivo para “_fermento”_ e você não achará. Desde sua primeira menção no livro de Êxodo, até a última na carta de Paulo aos Gálatas, o fermento sempre tem conotação negativa.
+
+_Em Êxodo_ [_12:15_](http://bibliaonline.com.br/acf/ex/12/15) _Deus ordenava: “No primeiro dia tirem de casa o fermento, porque quem comer qualquer coisa fermentada, do primeiro ao sétimo dia, será eliminado de Israel”. Ao falar da má doutrina que contamina, Paulo escreveu em Gálatas_ [_5:9_](http://bibliaonline.com.br/acf/gl/5/9)_: “Um pouco de fermento leveda toda a massa”, usando a mesma expressão de_ [_1 Coríntios 5_](http://bibliaonline.com.br/acf/1co/5) _ao tratar do pecado moral e do “fermento da maldade e da perversidade” (_[_1 Co 5:8_](http://bibliaonline.com.br/acf/1co/5/8)_). Nos evangelhos o Senhor alertou os discípulos: “Cuidado com o fermento dos fariseus e dos saduceus” e eles “entenderam que não estava lhes dizendo que tomassem cuidado com o fermento de pão, mas com o ensino dos fariseus e dos saduceus” (_[_Mt 16:6-12_](http://bibliaonline.com.br/acf/mt/16/6-12)_)._
+
+Considerando que o crescimento na igreja se dá pelo ensino da Palavra, e que o fermento é comparado à má doutrina, como interpretar o papel da mulher na parábola? Entendendo os limites que Deus coloca ao ministério das mulheres. Em [1 Coríntios 14](http://bibliaonline.com.br/acf/1co/14), a ordem para que as mulheres permaneçam caladas nas igrejas é chamada de “_mandamento do Senhor”_ ([1 Co 14:33-37](http://bibliaonline.com.br/acf/1co/14/33-37)). Em 1 Timóteo, Paulo explica a razão: “_Não permito que a mulher ensine, nem que tenha autoridade sobre o homem. Esteja, porém, em silêncio. Porque primeiro foi formado Adão, e depois Eva. E Adão não foi enganado, mas sim a mulher”_ (1 Tm [2:11-14](http://bibliaonline.com.br/acf/1tm/2/11-14)).
+
+Deus diz que a mulher é suscetível ao engano e por isso não deve ensinar. Além disso, no Éden, Deus colocou inimizade entre a serpente e a mulher, o que a transformou no alvo predileto do diabo. Outra pista para entendermos o que significa a mulher que introduz fermento na massa é o costume católico e protestante de dizer que “a igreja ensina”, quando a igreja, por ser a noiva, jamais deveria ensinar. A igreja aprende; quem ensina são os dons dados à igreja. Antes de você me chamar de machista ou avesso às mulheres é melhor conferir se é isso mesmo que a Bíblia diz. Se for, o melhor a fazer é se submeter ao ensino do Espírito Santo de Deus.
+
+tic-tac-tic-tac...
+
+*****

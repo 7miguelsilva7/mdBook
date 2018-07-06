@@ -1,0 +1,15 @@
+# Sair chorando {#sair-chorando}
+
+[**Lucas 22:61-62**](http://bibliaonline.com.br/acf/lc/22/61-62)
+
+_Todo cristão sincero se identifica com Pedro em seu fracasso. Um pouco antes Jesus tinha avisado: “‘Simão, Simão, Satanás pediu vocês para peneirá-los como trigo. Mas eu orei por você, para que a sua fé não desfaleça. E quando você se converter, fortaleça os seus irmãos’. Mas ele respondeu: ‘Estou pronto para ir contigo para a prisão e para a morte’”. (_[_Lucas 22:31-33_](http://bibliaonline.com.br/acf/lc/22/31-33)_). Satanás queria peneirar todos eles como trigo, mas Simão Pedro corria maior risco. Sua fraqueza estava na confiança própria._
+
+A autoconfiança é vista na carreira profissional como vantagem competitiva, e pode até ser quando o contrário disso é o desânimo, a falta de coragem e sentimento de auto piedade. Mas o cristão possui um recurso muito mais seguro e eficaz que a autoconfiança: a confiança que vem do alto. Posso até ‘_confiar no meu taco’_, como se costuma dizer, por ter me empenhado em treinar para uma competição, estudar para uma prova ou me capacitar para um emprego. Mas o cristão sabe que precisa de outro tipo de confiança para não ir sozinho à luta. Confiança no Senhor.
+
+Muitos confundem ‘_confiar em Deus’_ com uma atitude de comodismo, de deixar ‘_ao Deus dará’_ ou esperar que as coisas caiam do céu. A Bíblia mostra que não é bem assim. “_Prepara-se o cavalo para o dia da batalha, mas o Senhor é que dá a vitória”_ ([Pv 21:31](http://bibliaonline.com.br/acf/pv/21/31)). É responsabilidade humana o preparar-se, mas a vitória é divina_. “Se não for o Senhor o construtor da casa, será inútil trabalhar na construção. Se não é o Senhor que vigia a cidade, será inútil a sentinela montar guarda” (_[Sl 127](http://bibliaonline.com.br/acf/sl/12/7):1). Repare que é o Senhor o construtor, mas alguém assenta os tijolos. É o Senhor quem vigia a cidade, mas existe uma sentinela montando guarda.
+
+Confiar em si mesmo foi a ruína de Pedro. Mesmo depois de convertidos trazemos essa velha natureza teimosa, independente e autossuficiente que herdamos de Adão, e sempre que tiramos do Senhor o olhar ela nos faz pecar. O que fazer então? Olhar para o Senhor, pois nossos olhares certamente se cruzarão. “_O Senhor voltou-se e olhou diretamente para Pedro”_. De nada adiantaria Pedro culpar outros ou tentar se defender. Ele havia sido peneirado como trigo e falhara, mas mesmo assim continuava trigo, não joio. “_Quem esconde os seus pecados não prospera, mas quem os confessa e os abandona encontra misericórdia” (_[Pv 28:13](http://bibliaonline.com.br/acf/pv/28/13)). Pedro “_saindo dali chorou amargamente”_ ([Lucas 22:61-62](http://bibliaonline.com.br/acf/lc/22/61-62)). Ele não apenas chorou, mas saiu dali, abandonando a companhia dos inimigos do Senhor e a falsa sensação de conforto daquela fogueira.
+
+tic-tac-tic-tac...
+
+*****

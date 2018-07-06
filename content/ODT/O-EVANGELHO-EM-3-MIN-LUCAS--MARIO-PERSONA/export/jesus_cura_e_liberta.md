@@ -1,0 +1,17 @@
+# Jesus cura e liberta {#jesus-cura-e-liberta}
+
+[**Lucas 4:33-44**](http://bibliaonline.com.br/acf/lc/4/33-44)
+
+_Apesar da recepção calorosa na sinagoga de Cafarnaum, Jesus encontra ali “um homem possesso de um demônio”, que ao vê-lo, gritou: “‘Ah! Que queres conosco, Jesus de Nazaré? Vieste para nos destruir? Sei quem tu és: o Santo de Deus!’ Jesus o repreendeu, e disse: ‘Cale-se e saia dele!’ Então o demônio jogou o homem no chão diante de todos, e saiu dele sem o ferir. Todos ficaram admirados, e diziam uns aos outros: ‘Que palavra é esta? Até aos espíritos imundos ele dá ordens com autoridade e poder, e eles saem!’” (_[_Lucas 4:33-36_](http://bibliaonline.com.br/acf/lc/4/33-36)_)._
+
+Não sabemos há quanto tempo aquele homem possuído por um demônio frequentava a sinagoga dos judeus sem ser notado. Mas basta a presença de Jesus para o demônio se manifestar e também revelar quem realmente é Jesus. Se os judeus ainda duvidavam de suas credenciais, os poderes das trevas seguem de perto a trajetória do Santo de Deus na terra. Porém Jesus não precisa do testemunho de demônios. Ele diz duas palavras, “_cale-se”_ — para impedir que o demônio continue a falar de Jesus — e “_saia dele”_, para libertar o homem.
+
+Se você leu este [capítulo 4](http://bibliaonline.com.br/acf/lc/4) de Lucas com atenção, terá reparado que no [versículo 22](http://bibliaonline.com.br/acf/lc/4/22) as pessoas ficam admiradas porque dos lábios de Jesus saem palavras de graça. Então, no [versículo 32](http://bibliaonline.com.br/acf/lc/4/32) as pessoas se maravilham por ele falar com autoridade. Agora, no [versículo 36](http://bibliaonline.com.br/acf/lc/4/36), elas testificam que suas palavras não têm só autoridade, mas poder. Não é à toa que perguntam admirados: “_Que palavra é esta?”_ É a mesma Palavra de Deus à qual eu e você temos acesso; a mesma que traz vida a alguém morto em seus delitos e pecados e o transforma, pelo poder do Espírito Santo, em um filho de Deus.
+
+Na sequência Jesus irá curar a todos os que são trazidos a ele. Você ouviu? Todos! “_O povo trouxe a Jesus todos os que tinham vários tipos de doenças; e ele os curou, impondo as mãos sobre cada um deles”_ ([Lucas 4:40](http://bibliaonline.com.br/acf/lc/4/40)). ‘Todos’ significa que ninguém saía da presença dele meio curado. Alguns homens se gabam de fazer as curas que Jesus fazia, mas se fosse assim eles curariam a todos os que viessem a eles. É isso o que você vê por aí? Certamente não.
+
+As curas que Jesus fazia tinham o propósito de cumprir uma profecia de Isaías, que dizia: “_Ele tomou sobre si as nossas enfermidades e sobre si levou as nossas doenças”_. Isso não ocorreu na morte de Jesus, mas em sua vida. E é o que ele faz também com a sogra de Pedro: inclina-se sobre ela, repreende a febre e ela imediatamente se levanta e passa a servir a Jesus e aos discípulos. Hoje você também pode ser curado do maior mal que aflige a humanidade, o pecado. E depois de curado do pecado e de posse da salvação pela fé em Jesus, qual é sua reação? Servir a Deus e aos seus irmãos em Cristo. Foi o que fez a sogra de Pedro; é o que eu e você devemos fazer, e é o que Jesus irá ensinar seus discípulos a fazerem nos próximos 3 minutos.
+
+tic-tac-tic-tac...
+
+*****

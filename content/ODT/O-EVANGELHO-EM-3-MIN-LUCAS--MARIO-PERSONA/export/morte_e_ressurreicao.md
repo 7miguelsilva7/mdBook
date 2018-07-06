@@ -1,0 +1,15 @@
+# Morte e ressurreição {#morte-e-ressurrei-o}
+
+[**Lucas 20:37-40**](http://bibliaonline.com.br/acf/lc/20/37-40)
+
+Se Jesus tivesse vindo apenas para servir de exemplo de como deveríamos viver para agradar a Deus, continuaríamos perdidos. Sabe aquela foto na qual você aparece na praia ao lado de amigos e amigas e se sente péssimo, pois a boa forma deles só serve para revelar que você está fora do padrão? Assim é com a perfeição de Jesus. Ela mostra que estamos longe da boa forma espiritual exigida para passarmos pela “_porta estreita”_, o “_Apertado caminho que leva à vida”_ ([Mt 7:14](http://bibliaonline.com.br/acf/mt/7/14)). Jesus era naturalmente “_sem pecado”_ ([Hb 4:15](http://bibliaonline.com.br/acf/hb/4/15)), mas nós, “_se afirmarmos que estamos sem pecado, enganamo-nos a nós mesmos, e a verdade não está em nós” (_[1 Jo 1:8](http://bibliaonline.com.br/acf/1jo/1/8)).
+
+_Embora a vida de Jesus sirva de exemplo, dizer que para ser salvo você precisaria viver como ele viveu não seria “boa notícia”, que é o significado de “evangelho”. Seria uma péssima notícia, pois ninguém iria conseguir. Então o que é o evangelho? Paulo explica: “Quero lembrar-lhes o evangelho que lhes preguei... por meio deste evangelho vocês são salvos... Pois o que primeiramente lhes transmiti foi o que recebi: que Cristo_ **_morreu_** _pelos nossos pecados, segundo as Escrituras, foi sepultado e_ **_ressuscitou_** _ao terceiro dia, segundo as Escrituras” (_[_1 Co 15:1-3_](http://bibliaonline.com.br/acf/1co/15/1-3)_)._
+
+_Ao pregar o evangelho a Cornélio e seus amigos, Pedro falou de “como Jesus andou por toda parte fazendo o bem e curando todos os oprimidos pelo diabo”, mas não foi por terem escutado isso que eles foram salvos e receberam o Espírito Santo. Foi só quando Pedro disse que “o mataram, suspendendo-o num madeiro” e que “Deus o ressuscitou no terceiro dia... e que todo aquele que nele crê recebe o perdão dos pecados mediante o seu nome” que “o Espírito Santo desceu sobre todos os que ouviam a mensagem” (_[_At 10:38-44_](http://bibliaonline.com.br/acf/atos/10/38-44)_)._
+
+A “_boa notícia”_ inclui a ressurreição, por isso Jesus insiste com os mestres da Lei que Deus “_não é Deus de mortos, mas de vivos”_ ([Lucas 20:38](http://bibliaonline.com.br/acf/lc/20/38)). Paulo explica que “_se Cristo não ressuscitou, inútil é a fé que vocês têm, e ainda estão em seus pecados... Se esperamos em Cristo só nesta vida, somos os mais miseráveis de todos os homens” (_[1 Co 15:12-19](http://bibliaonline.com.br/acf/1co/15/12-19)). Se o “_evangelho”_ que você tem escutado fala de seguir o exemplo de Jesus para ser salvo, você está sendo enganado. Se não passar de curas, prosperidade e libertação, você está perdendo seu tempo. Um evangelho sem sangue não irá limpar seus pecados, e um evangelho sem ressurreição irá prometer benefícios “_só nesta vida”_, colocando você entre “_Os mais miseráveis de todos os homens”_ (1 Co [15:19](http://bibliaonline.com.br/acf/1co/15/19)).
+
+tic-tac-tic-tac...
+
+*****

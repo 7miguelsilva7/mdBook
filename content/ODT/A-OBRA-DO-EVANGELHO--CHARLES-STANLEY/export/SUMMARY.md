@@ -1,6 +1,6 @@
 # Summary
 
-* [A OBRA DO EVANGELHO CHARLES STANLEY](README.md)
+* [A OBRA DO  EVANGELHO -  CHARLES STANLEY](README.md)
 * [CAPÍTULO 1](capitulo_1.md)
 * [CAPÍTULO 2](capitulo_2.md)
 * [CAPÍTULO 3](capitulo_3.md)

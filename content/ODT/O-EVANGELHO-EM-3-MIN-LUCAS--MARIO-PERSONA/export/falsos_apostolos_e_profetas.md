@@ -1,0 +1,15 @@
+# Falsos apóstolos e profetas {#falsos-ap-stolos-e-profetas}
+
+[**Lucas 17:22-24**](http://bibliaonline.com.br/acf/lc/17/22-24)
+
+O apóstolo João escreveu que “_todo aquele que ultrapassa a_ **_doutrina de Cristo_** _e nela não permanece não tem Deus; o que permanece na doutrina, esse tem tanto o Pai como o Filho” (_2 Jo [1:9](http://bibliaonline.com.br/acf/2jo/1/9)). Jesus disse: “_Eu e o Pai somos um”_ ([Jo 10:30](http://bibliaonline.com.br/acf/jo/10/30)), portanto a “_doutrina de Cristo”_ inclui confessar que só tem a Deus quem tem o Pai e o Filho. Paulo a chama de “_sã doutrina”_ em 1 Timóteo [1:1](http://bibliaonline.com.br/acf/1tm/1/1) e [6:3](http://bibliaonline.com.br/acf/1tm/6/3), e acrescenta que a recebeu, não de homens, mas do Senhor juntamente com a revelação do que é a Igreja.
+
+Muitos se gabam de receber novas revelações, mas são falsos profetas, “_homens que torcem a verdade, a fim de atrair os discípulos”_ ([At 20:29](http://bibliaonline.com.br/acf/atos/20/29)). Ultrapassar a doutrina de Cristo é ir além do que Deus revelou em sua Palavra, inclusive negando a graça de Deus e o sacrifício expiatório de Jesus, e pregando uma salvação por obras, religião ou pela guarda da Lei de Moisés. Aos cristãos da Galácia, influenciados por judaizantes que pregavam a salvação pela guarda da Lei, Paulo escreveu: “_Algumas pessoas os estão perturbando, querendo perverter o evangelho de Cristo. Mas ainda que nós ou um anjo do céu pregue um evangelho diferente daquele que lhes pregamos, que seja amaldiçoado!”_ ([Gl 1:6-8](http://bibliaonline.com.br/acf/gl/1/6-8)).
+
+O falso evangelho dá glória ao homem ao dizer que é por seu próprio esforço que ele pode ser salvo. O verdadeiro evangelho glorifica a Deus, que graciosamente salva o pecador que crê em Jesus. Para identificar uma falsa doutrina basta perguntar: “_Quem recebe a glória no final, o homem ou Deus?”_. Se os meus esforços me garantissem merecer a salvação, no final eu poderia chegar ao céu e cobrar: “_Senhor, eu fiz isso e aquilo, agora me dê a salvação porque mereço”._ Isto faria de Deus meu devedor.
+
+O apóstolo Judas acrescenta três características dos falsos profetas. Ele os compara aos que “_seguiram o caminho de Caim... caíram no erro de Balaão e foram destruídos na rebelião de Corá” (_[Jd 1:11](http://bibliaonline.com.br/acf/Jd/1/11)). Caim quis conquistar o favor de Deus com seu trabalho; Balaão era ganancioso e profetizava mediante cachê; e Coré era rebelde e prepotente, querendo ser o que não era. Paulo alerta contra os “_falsos apóstolos, obreiros enganosos, fingindo-se apóstolos de Cristo. Isto não é de admirar, pois o próprio Satanás se disfarça de anjo de luz. Portanto, não é surpresa que os seus servos finjam que são servos da justiça” (_[2 Co 11:13](http://bibliaonline.com.br/acf/2co/11/13)). Quer mais? Então leia o [capítulo 3](http://bibliaonline.com.br/acf/2tm/3) de 2 Timóteo sabendo que ali o apóstolo descreve os “_perversos e impostores”_ ([2Tm 3:13](http://bibliaonline.com.br/acf/2tm/3/13)) dos últimos dias. Será que você está sendo enganado por um deles?
+
+tic-tac-tic-tac...
+
+*****

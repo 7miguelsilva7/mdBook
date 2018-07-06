@@ -1,0 +1,15 @@
+# Livrando-se de Jesus {#livrando-se-de-jesus}
+
+[**Lucas 22:63-71**](http://bibliaonline.com.br/acf/lc/22/63-71)
+
+“_Os homens que estavam detendo Jesus começaram a zombar dele e a bater nele. Cobriam seus olhos e perguntavam: ‘Profetize! Quem foi que lhe bateu?’ E lhe dirigiam muitas outras palavras de insulto” (_[_Lucas 22:63-65_](http://bibliaonline.com.br/acf/lc/22/63-65)_). Pedro já não estava ali para ver como o Senhor se comportou diante de seus acusadores, mas o Espírito Santo mais tarde lhe revelaria que “ele não cometeu pecado_ _algum, e nenhum engano foi encontrado em sua boca. Quando insultado, não revidava; quando sofria, não fazia ameaças, mas entregava-se àquele que julga com justiça” (_[_1 Pe 2:22-23_](http://bibliaonline.com.br/acf/1pe/2/22-23)_)._
+
+“_Ao romper do dia, reuniu-se o Sinédrio, tanto os chefes dos sacerdotes quanto os mestres da lei, e Jesus foi levado perante eles.” Os sacerdotes intercediam pelo povo diante de Deus, mas aqui acusam o Filho de Deus diante do povo. “‘Se você é o Cristo, diga-nos’, disseram eles. Jesus respondeu: ‘Se eu vos disser, não crereis em mim e, se eu vos perguntar, não me respondereis. Mas de agora em diante o Filho do homem estará assentado à direita do Deus Todo-poderoso’. Perguntaram-lhe todos: ‘Então, você é o Filho de Deus?’ ‘Vós estais dizendo que eu sou’, respondeu ele. Eles disseram: ‘Por que precisamos de mais testemunhas? Acabamos de ouvir dos próprios lábios dele’” (_[_Lucas 22:66-71_](http://bibliaonline.com.br/acf/lc/22/66-71)_)._
+
+Jesus não andava por aí proclamando ser o Cristo, por isso a pergunta deles é no mínimo estranha: “_Se você é o Cristo, diga-nos”_. O que os faz pensar assim? Certamente os sinais que Jesus fez, que os profetas haviam apontado como as credenciais do Messias. “_Então, você é o Filho de Deus?”_. Jesus responde de modo a colocar sobre eles toda a responsabilidade de estarem conscientemente condenando seu Messias: “**_Vocês_** _estão dizendo que eu sou”_. Isso deve ter atingido suas consciências como um raio, mas mesmo assim eles estão dispostos a se livrarem dele. Afinal, como poderiam continuar vivendo sua vida de independência e autossuficiência se o Filho de Deus permanecesse ali para atrapalhar?
+
+Embora este julgamento tenha ocorrido há séculos, ele se repete hoje cada vez que alguém é apresentado a Jesus e se recusa a crer nele. Aceitá-lo implicaria sujeitar-se a ele como Senhor; rejeitá-lo dá a falsa sensação de continuar numa vida de independência. Até quando? Até aquele dia quando terá de dobrar os joelhos diante do “_Filho do homem... assentado à direita do Deus Todo-poderoso”_ e ouvir de sua boca a sentença: “_Aparte-se de mim para o fogo eterno”_ ([Mt 25:41](http://bibliaonline.com.br/acf/mt/25/41)). Então aqueles que não quiseram Jesus aqui não o terão também ali. Eternamente_._
+
+tic-tac-tic-tac...
+
+*****

@@ -1,0 +1,17 @@
+# O parêntese profético {#o-par-ntese-prof-tico}
+
+[1 Tessalonicenses 4:15-18](http://bibliaonline.com.br/acf/1ts/4/15-18)
+
+Nos últimos 3 minutos falei de um parêntese que já dura mais de 2 mil anos, o período da Igreja, que é o conjunto de todos os que creem em Jesus. A Igreja não aparece no capítulo 24 de, que trata de Israel e do mundo de um modo geral, e particularmente do remanescente de judeus que ainda irão crer em Jesus. Esse parêntese começou com a formação da Igreja no [capítulo 2](http://bibliaonline.com.br/acf/atos/2) de Atos dos Apóstolos, quando Deus deixou de tratar com Israel e passou a tratar com o conjunto dos que se convertem a Jesus, sejam eles judeus ou gentios. Esta é a Igreja ou Corpo de Cristo.
+
+Esse parêntese termina com um evento conhecido como Arrebatamento e descrito em [1 Tessalonicenses 4](http://bibliaonline.com.br/acf/1ts/4). Ali Paulo diz que “nós, os que estivermos vivos, os que ficarmos até a vinda do Senhor, certamente não precederemos os que dormem” ([1 Ts 4:15](http://bibliaonline.com.br/acf/1ts/4/15)), isto é, aqueles que morreram na fé. Paulo se inclui entre os que ficariam até essa vinda do Senhor, pois esse evento não tem data para ocorrer. Tanto podia ter ocorrido nos dias do apóstolo, como pode ocorrer daqui a cem anos. Porém há indícios de que não vá levar cem anos.
+
+Ainda que as profecias bíblicas tratem de Israel, e não da Igreja, pelo que escreveu o profeta Daniel e por outras passagens sabemos que a vinda de Jesus para estabelecer o seu reino deveria ocorrer sete anos após sua morte. Como o período da Igreja é um parêntese, uma inserção que teve início após a morte de Jesus, esses sete anos estão numa espécie de animação suspensa. O gatilho para o relógio profético voltar a funcionar é o arrebatamento da Igreja.
+
+Imagine que você viaje para visitar um amigo que mora sete quilômetros antes da fronteira com a Argentina. Não há qualquer placa na estrada indicando quanto falta para chegar à casa de seu amigo, mas há placas indicando quanto falta para chegar à fronteira. O [capítulo 24](http://bibliaonline.com.br/acf/mt/24) de Mateus e outras profecias são as placas ou sinais que indicam quanto falta para a fronteira, para Cristo voltar em glória. Sete anos antes ocorre o arrebatamento.
+
+A Carta aos Tessalonicenses revela que, no arrebatamento, o Senhor Jesus descerá do céu, mas sem colocar os pés na terra, como acontecerá sete anos depois quando vier para reinar. No arrebatamento ele vem só até as nuvens, e os que morreram na fé, ressuscitarão primeiro. Em seguida, os vivos que creem em Jesus terão seus corpos transformados e serão arrebatados para encontrar o Senhor nos ares. Nada disso será visto pelos incrédulos, como aconteceu com Jesus, que foi visto por mais de 500 discípulos depois de ressuscitar, mas por nenhum incrédulo.
+
+Duas classes de pessoas serão deixadas para trás no arrebatamento: os que ouviram o evangelho e não creram em Jesus, inclusive os que creem só da boca pra fora, e aqueles que nunca foram evangelizados. Os primeiros jamais terão outra chance, apesar de muitos continuarem frequentando seus templos e serviços religiosos. Do outro grupo, dos que nunca foram evangelizados, muitos se converterão a Jesus, liderados por um remanescente de judeus convertidos e fiéis. É a eles que Jesus dirige o seu discurso do[capítulo 24](http://bibliaonline.com.br/acf/mt/24) de Mateus, ao qual voltaremos nos próximos 3 minutos.
+
+tic-tac-tic-tac...
