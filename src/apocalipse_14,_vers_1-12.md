@@ -1,0 +1,11 @@
+## [APOCALIPSE 14, Vers. 1-12](http://bibliaonline.com.br/acf/ap/14/1-12) 
+
+[Ap 14:1-5](http://bibliaonline.com.br/acf/ap/14/1-5) Cinco versículos que descrevem um impressionante contraste. Já lemos da terrível sorte daqueles que seguiram o falso cordeiro; agora vemos os regozijantes seguidores do verdadeiro Cordeiro. É como uma visão do que nós, no céu, veremos se olharmos para baixo, para a Terra, durante o reino de mil anos de Cristo. O céu e a Terra regozijarão e cantarão. Acaso você se emociona por saber que estará assistindo isto? E podemos ler disto agora mesmo! Vimos que os seguidores do falso Cristo receberam uma marca em suas testas, e agora estes seguidores do verdadeiro Cristo têm Seu nome e o nome de Seu Pai escrito em suas testas!
+
+[Ap 14:6-7](http://bibliaonline.com.br/acf/ap/14/6-7) A pregação do evangelho eterno são as boas novas de Deus vinda do céu para este pobre mundo. Este é o chamado final de Deus e alcança cada canto do globo terrestre.
+
+[Ap 14:8](http://bibliaonline.com.br/acf/ap/14/8) A ímpia e corrupta organização deste mundo, chamada de &quot;Babilônia&quot;. Deus irá despedaçá-la.
+
+[Ap 14:9-11](http://bibliaonline.com.br/acf/ap/14/9-11) A horrível perdição daqueles que adoraram o diabo e seus homens. Estamos aqui tratando com pessoas e coisas que são eternas! (1) A eterna existência de Deus - [10:6](http://bibliaonline.com.br/acf/ap/10/6). (2) A eterna glória do Cordeiro, [5:13](http://bibliaonline.com.br/acf/ap/5/13). (3) O reinado eterno do crente - [22:5](http://bibliaonline.com.br/acf/ap/22/5). (4) A perdição eterna do diabo - [20:10](http://bibliaonline.com.br/acf/ap/20/10). (5) O tormento eterno do perdido. &quot;não têm repouso&quot; - nosso [versículo 11](http://bibliaonline.com.br/acf/ap/14/11) e [20:10](http://bibliaonline.com.br/acf/ap/20/10).
+
+[Ap 14:12](http://bibliaonline.com.br/acf/ap/14/12) Que contraste vemos aqui. A paciência dos santos. Estamos lendo de crentes diante da morte iminente. Mas será melhor ser morto pela &quot;besta&quot; do que ser atormentado com &quot;a besta&quot;.

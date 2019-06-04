@@ -1,0 +1,11 @@
+## [APOCALIPSE 2, Vers. 1-7](http://bibliaonline.com.br/acf/ap/2/1-7) 
+
+Estes dois capítulos ([cap. 2](http://bibliaonline.com.br/acf/ap/2) e cap. 3) são de grande ajuda para nós se os lermos com atenção. Eles são formados de sete cartas escritas para sete cidades diferentes onde viviam os crentes. Em cada uma existe uma condição espiritual diferente. Como acontece também com indivíduos. O Espírito de Deus nos tem mostrado que todas as sete cartas estão nos falando do futuro, desde o dia de Pentecostes, quando o Espírito Santo desceu à terra, até o dia em que o Senhor Jesus vem para os crentes. Todas foram escritas antes que acontecesse!
+
+Agora uma palavra sobre &quot;a igreja&quot;. Antes, leia as seguintes passagens, 1 Co [12:12-13 e 16](http://bibliaonline.com.br/acf/1co/12/12-13,16), e 5:23\. Se você for um crente no Senhor Jesus Cristo, você está na única igreja que as Escrituras endossam. Você está também no único corpo, pois a igreja e o corpo são a mesma coisa. Ef [1:22, 23](http://bibliaonline.com.br/acf/ef/1/22,23) mostra isto claramente. Pense nisto.
+
+[Ap 2:7, 11, 17, 29](http://bibliaonline.com.br/acf/ap/2/7,11,17,29) e [capítulo 3:6, 13 e 22](http://bibliaonline.com.br/acf/ap/3/6,13,22) dizem as mesmas palavras. Somente os verdadeiros crentes no Senhor Jesus Cristo têm ouvidos espirituais para entender a mensagem das Escrituras. Mas será que os estamos usando.
+
+[Ap 2:1-7](http://bibliaonline.com.br/acf/ap/2/1-7) Éfeso é nossa primeira carta. Esta assembléia ou igreja é mencionada em Atos [20:17-38](http://bibliaonline.com.br/acf/atos/20/17-38), [1 Co 15:32](http://bibliaonline.com.br/acf/1co/15/32), [1Tm 1:3](http://bibliaonline.com.br/acf/1tm/1/3), [2Tm 1:18](http://bibliaonline.com.br/acf/2tm/1/18) e obviamente todo o livro de Efésios. O Senhor nos diz que Ele podia ver algo que estava muito errado - eles haviam deixado seu primeiro amor. Quando primeiro aceitamos a Cristo como Salvador, há um grande amor em nosso coração para com Ele. Todavia, a menos que sejamos cuidadosos, este amor acaba esfriando. Quando isto acontece, o discernimento, o gozo e o poder acabam saindo de nossa vida.
+
+[Ap 2:1-3](http://bibliaonline.com.br/acf/ap/2/1-3) É prometida uma bênção a cada um de nós que lê e dá ouvidos a este livro. Na história, o período coberto por esta carta ocorreu nos primeiros séculos após o Pentecostes.

@@ -1,0 +1,9 @@
+## [APOCALIPSE 2, Vers. 8-29](http://bibliaonline.com.br/acf/ap/2/8-29) 
+
+[Ap 2:8-11](http://bibliaonline.com.br/acf/ap/2/8-11) Esmirna; a palavra significa &quot;mirra&quot; (as dores da perseguição). Isto cobre o período quando os crentes passaram por um tempo horrível de perseguição no terceiro século. Nenhuma falha é encontrada nos crentes durante este período. A perseguição os aproximou de Cristo. &quot;Dez dias&quot; podem representar dez períodos de horrível perseguição sob os ditadores Romanos.
+
+[Ap 2:12-17](http://bibliaonline.com.br/acf/ap/2/12-17) Pérgamo significa &quot;muito casado&quot;. Satanás agora muda seus métodos. Ao invés de perseguir os crentes, ele levou os incrédulos a se tornarem Cristãos nominais. Na época de Constantino (cerca de 288 a 337 AD) milhares de súditos deste Imperador Romano tornaram-se Cristãos (alguns apenas de nome). Os crentes receberam essas pessoas no seu meio. Lemos do resultado... Possamos aplicar a nós este aviso. Os mundos político e religioso estavam casados.
+
+[Ap 2:18-29](http://bibliaonline.com.br/acf/ap/2/18-29) Tiatira. Este período foi quando a igreja Católica Romana dominou. Há corrupção aqui, e o Senhor fala com muita severidade.
+
+[Ap 2:20](http://bibliaonline.com.br/acf/ap/2/20) &quot;Jezabel&quot; - este era o nome da ímpia mulher que foi casada com um dos reis de Judá. 1 Reis [16:30, 31](http://bibliaonline.com.br/acf/1rs/16/30,31) e [21:25](http://bibliaonline.com.br/acf/1rs/21/25). Ela é um tipo do que estava acontecendo espiritualmente aqui.

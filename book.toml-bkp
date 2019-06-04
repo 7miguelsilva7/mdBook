@@ -1,0 +1,34 @@
+[book]
+
+type='livros'
+subtype=''
+
+bookdir='chapter-a-day'
+
+title='Chapter a Day'
+
+authors='Norman Berry'
+
+#################################################################################
+
+#Types
+    #folhetos
+    #livretes
+    #livros
+
+#subtype 
+    #doutrinarios
+    #evangelisticos
+
+
+
+
+multilingual=false
+src='src'
+
+
+[output.html]
+additional-js=['custom.js']
+additional-css=['book.css']
+
+

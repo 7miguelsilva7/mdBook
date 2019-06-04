@@ -1,0 +1,11 @@
+## [APOCALIPSE 19](http://bibliaonline.com.br/acf/ap/19) 
+
+[Ap 19:1-10](http://bibliaonline.com.br/acf/ap/19/1-10) Há gozo no céu porque o castigo do mal está sendo efetuado. Deus é assim honrado... o ímpio, o falso sistema religioso, a falsa noiva é destruída. A verdadeira noiva está no céu e está para ser apresentada. Enquanto estas coisas horríveis estão acontecendo na Terra, um grande evento tem lugar no céu. As bodas do Cordeiro. O Senhor Jesus casa-se com Sua noiva (a Igreja do Novo Testamento) e quem é ela? Todos os pecadores que foram lavados pelo Seu sangue precioso, pela morte de Cristo, desde a descida do Espírito Santo. Que dia maravilhoso para nós! Isto encerra a segunda grande parte deste livro. Agora vem a última parte.
+
+[Ap 19:11-21](http://bibliaonline.com.br/acf/ap/19/11-21) O Senhor vindo em glória. Estes versículos descrevem aquele evento. Ele vem em ira, o humilde Jesus que foi desprezado e rejeitado, virá como um Rei conquistador e vitorioso. Ele é Rei de reis, e Senhor de senhores. Finalmente, Ele tem o Seu lugar. Será que concedemos a Ele este lugar em nosso coração hoje?
+
+[Ap 19:14](http://bibliaonline.com.br/acf/ap/19/14) &quot;Os exércitos&quot; no céu não são anjos, mas santos - (nós, os crentes), que seguem seu Capitão. Este é o cumprimento da profecia de Enoque (veja Judas, [vers. 14](http://bibliaonline.com.br/acf/jd/1/14)).
+
+[Ap 19:19-21](http://bibliaonline.com.br/acf/ap/19/19-21) Um imenso exército, chefiado pela besta (a cabeça do Império Romano), reune-se para lutar contra o Senhor Jesus. Todos são destruídos por Ele!
+
+[Ap 19:20](http://bibliaonline.com.br/acf/ap/19/20) Quem pode descrever com palavras o horror de um tão terrível juízo (castigo)? Este será o castigo das duas pessoas, um que é Judeu (veja comentários do capítulo [13, vers. 11](http://bibliaonline.com.br/acf/ap/13/11)) e o outro um Gentio (veja ([13:1](http://bibliaonline.com.br/acf/ap/13/1)), e talvez ambos estejam na Terra neste exato momento! &quot;O lago de fogo é um lugar, e não uma condição, mencionado aqui pela primeira vez.

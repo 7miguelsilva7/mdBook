@@ -1,0 +1,11 @@
+## [APOCALIPSE 12](http://bibliaonline.com.br/acf/ap/12) 
+
+[Ap 12:1-6](http://bibliaonline.com.br/acf/ap/12/1-6) A vinda de Cristo à Terra foi o princípio da grande obra de Deus. Por isso agora lemos de uma mulher (Israel) e da criança (Cristo) que ela dá à luz. O dragão (Satanás) espera pelo nascimento para devorar a criança. Mas a criança escapa.
+
+[Ap 12:6](http://bibliaonline.com.br/acf/ap/12/6) Refer-se ao tempo atual, quando Israel está espalhado.
+
+[Ap 12:7-13](http://bibliaonline.com.br/acf/ap/12/7-13) Isto explica por que ela (Israel) precisava voar. Referem-se particularmente à última metade dos sete anos (1.260 dias no [versículo 6](http://bibliaonline.com.br/acf/ap/12/6)) quando Satanás foi lançado à Terra.
+
+[Ap 12:14](http://bibliaonline.com.br/acf/ap/12/14) &quot;um tempo&quot; é igual a 1 ano, &quot;tempos&quot; é igual a 2 anos. &quot;metade de um tempo&quot; é igual a meio ano. Isto mais uma vez soma 3,5 anos. Durante este tempo de tribulação, o Senhor está protegendo os crentes Judeus.
+
+[Ap 12:15-17](http://bibliaonline.com.br/acf/ap/12/15-17) &quot;atrás da mulher, água como um rio&quot; refere-se às nações Gentias que Satanás usa para tentar destruir Israel durante este período de tribulação. Satanás odeia os crentes em Israel e volta sua fúria contra eles.

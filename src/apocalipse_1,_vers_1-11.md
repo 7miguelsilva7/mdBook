@@ -1,0 +1,13 @@
+## [APOCALIPSE 1, Vers. 1-11](http://bibliaonline.com.br/acf/ap/1/1-11) 
+
+Ontem acabamos de ler sobre o povo de Deus que estava vivendo sob reis e a lei de Deus. Hoje começamos a ler um Livro que mostra como Deus avalia o Seu povo; como eles viveram sob Sua graça até terminar o tempo de Seu teste. Fracasso sob o favor de Deus. Tal é o coração do homem. O lago de fogo para os que não estão salvos... glória junto a Cristo para sempre, para os redimidos. Deus revelou isto e entregou a Jesus a tarefa de revelar a Seus servos. O livro nos mostra o que Jesus tem feito desde que foi ao céu, e o que Ele vai fazer muito em breve.
+
+O livro foi escrito pelo Apóstolo João que tinha sido banido pelo Imperador Romano, para uma pequena ilha no Mediterrâneo. O livro é dividido em partes. A primeira está nos três primeiros capítulos e fala de nosso tempo presente. Foi escrito há 2000 anos, antes que qualquer coisa do atual &quot;Dia da graça&quot; acontecesse.
+
+[Ap 1:3](http://bibliaonline.com.br/acf/ap/1/3) e capítulo [22:6-7](http://bibliaonline.com.br/acf/ap/22/6-7). Estas promessas são para eu e você. Iremos desfrutá-las se quisermos obedecer. Neste Livro Deus nos mostra Seu &quot;projeto&quot; do futuro. Todavia as pessoas dizem que desejam conhecer o que irá acontecer ao mundo! Ao ler este Livro, mantenha seus olhos em Cristo. (Veja as primeiras cinco palavras!). Se nossos olhos estiverem nEle, nossa mente irá compreender, e nosso coração será aquecido.
+
+[Ap 1:5](http://bibliaonline.com.br/acf/ap/1/5) O Senhor Jesus Cristo é todo-poderoso e também todo amor. Um belo versículo. Procure memorizá-lo.
+
+[Ap 1:7](http://bibliaonline.com.br/acf/ap/1/7) Esta é a Sua vinda em glória (conosco, não para nós).
+
+[Ap 1:8-11](http://bibliaonline.com.br/acf/ap/1/8-11) O apóstolo João foi feito prisioneiro por ter pregado a Jesus. Ele escreveu sete cartas a sete assembléias de crentes nestas sete cidades. Embora Satanás pudesse ter pensado que tinha se livrado do apóstolo João, Deus vai encontrá-lo naquela ilha chamada Patmos. Ali mesmo. Através dele, Deus nos mostra o roteiro que avança pelo tempo que ainda resta até a eternidade!

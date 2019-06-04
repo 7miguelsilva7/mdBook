@@ -1,11 +1,38 @@
 [book]
 
-title='Vida Através da Morte'
+type='livros'
+subtype=''
 
-bookdir='vida-atraves-da-morte'
 
-authors=['Charles Stanley']
+bookdir='chapter-a-day-ap'
 
+title='Chapter a Day - Apocalipse'
+
+authors=['"Norman Berry"']
+
+cat=['"Livros","Comentários"']
+
+################################################################################
+################################################################################
+################################################################################
+
+# AUTOR: DESCONHECIDOS
+
+#Types
+    #folhetos
+	#subtype 
+    	    #doutrinarios
+            #evangelisticos
+
+    #livretes
+    #livros
+
+#cat 
+   #Evangelisticos
+   #Doutrinarios
+   #Livros
+   #Livretes
+   
 
 
 
